@@ -56,11 +56,15 @@ I wondered about what the movie was about.  Eric and Athena practiced ayahuasca 
 
 "I talked to Matt, he's not too into it." Jack went on and on.
 
-Jack must have felt the weird tension? How often did this situation occur, lovers of the past and past fight it out with passive aggressive blows. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone and people were dying. Andy knew, I was Renee's latest best friend supposably. We hadn't talked Andy was sullen, apathetic at first glance. But I'm sure it *dug* deep into him.
+Jack must have felt the weird tension? How often did this situation occur, lovers of the past and past fight it out with passive aggressive blows. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone and people were dying. Andy knew I was Renee's latest best friend supposably. We hadn't talked Andy was sullen, apathetic at first glance. But I'm sure it *dug* deep into him.
 
-In the corner were records, piled on the ground. Mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired.
+In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leafed through them.
 
-As we left I took a quick last look at Andy. He got up in fact, and in front of us all he looked me in the eye and said, "I forgive you" smiling, and shook my hand. His sockets sunk like battleships. I shook back blandly and headed towards the stairs, ignoring a snarl.
+Renee started talking to Andy excitedly again, about nothing in particular. How he could use a new type of herbal medication. How she's woken up sick with a rash on her face down to her arm, bed struck and unable to go work. Dock brooded in the shadows not saying anything, and I could see a silhouette putting on some black blurry headphones.
+
+I didn't understand the meaning and didn't have a good idea of why I was there. What was floating in the air? Sarcasm, grief, irony? The consistent atmosphere was boredom though. The art slunked up against the walls undeterred by its inhabitants. I suspected I was pretty small here. The art, the flex-rooms, smoke, dust, dirt and the people, the room still was still so empty. If you winked you weren't sure they were there. Like nothing was sure to exist.
+
+After a few minutes of this, I signaled to Renee I was leaving. She waved that she'd catch up in a few minutes, but got up with me anyway. I took a quick last look at Andy. He noticed, got up in fact, and in front of us all he looked me in the eye and said, "I forgive you" smiling, and shook my hand. His sockets were sunk like battleships. I shook back blandly and headed towards the stairs, ignoring a snarl.
 
 "You can come back and visit." Jack sleepily waved. The rest of the goodbyes procrastinated until we were out the door.
 

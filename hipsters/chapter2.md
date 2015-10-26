@@ -60,15 +60,20 @@ I scanned through the crowds casually. The lights were dim and confused, sprayin
 
 "I've been wearing this since this morning! How long have you been here?" Her smile was huge.
 
-"Not that long, like half an hour. Thought I would check it out. Hey we've got to jam twice this week so we're ready for Saturday."
+"Not that long, like half an hour. Thought I would check it out."
 
-"Ah yea ~no kidding~."
+"Ch-check-ch-check-ch-cheking it out!" She tried to yell over the bad dance style. Most of the moves were just people walking badly.
 
+What was popular possibly eons ago started to play again. We danced a few jigs and tried to steal a few dance moves from our surroundings, but it only looked like everyone was badly walking. We just shuffled left and right and looked around us.
 
+About 20 minutes later Adrian formed out of thin air and pulled Selina by the arm miming a smoker. I followed them outside, and the cold air hit us once again.
 
+"Hey we've got to jam twice this week so we're ready for Saturday." Selina looked up at me as she lit up, and I fanned away wafts of marijuana.
 
-"Did you get your papers yet?" She asked in earnest.
+"Ah yea ~no kidding~." she blew out and coughed a bit. "Oh did you get your papers yet?" with an earnest.
 
 "Not yet, it's going to take a while."
+
+"Whatever, government. THE GOVERNMENT!" She yelled. Selina was against everything government. She gauffed at capitalism and stood honestly in disbelief at the many injustices of the world mentioned to her. Her eyes would literally grow bigger if anyone mentioned grim crimes involving theft, extortion, brutalizing women or death. "Oh my god" she would usually exclaim between sips of latte.
 
 https://www.adbusters.org/magazine/79/hipster.html
