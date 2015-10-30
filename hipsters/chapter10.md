@@ -4,7 +4,7 @@ Dock suddenly turned withered, depleted, a bit drunk and angry. He decomposed in
 
 Renee's eyes were wide open and the pair were both thoroughly confused. He barely remembered Gaby. Girly, thick accented, lost looks in her eyes. Dock woo'ed her by leaving a note for her in an internet cafe, "You make me want to be better one day, I could be so awesome with you." She wasn't thoroughly disgusted and they began dating off and on.
 
-He tried to think back, four years ago. Visiting Dock's house at that time was very uneventful. Dock used to live in a house off campus with a few randoms. Equipped with two floors and a basement, it felt massive. He remembered the kitchen. Fruit flies swam endlessly in circles over the sink, milk jugs in the fridge with just a bit of rotting milk skimming the bottom. One had a neglected pug they were always furious at. Because it shat on their beds whenever it could.
+I tried to think back, four years ago. Visiting Dock's house at that time was very uneventful. Dock used to live in a house off campus with a few randoms. Equipped with two floors and a basement, it felt massive. He remembered the kitchen. Fruit flies swam endlessly in circles over the sink, milk jugs in the fridge with just a bit of rotting milk skimming the bottom. One had a neglected pug they were always furious at. Because it shat on their beds whenever it could.
 
 He thought for a moment, "No, I don't th--"
 
