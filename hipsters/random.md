@@ -106,3 +106,8 @@ We went there, and of course it was crowded because everyone woke up at 11am.
 --------
 
 Renee drank all kinds of liqueurs, plant ointments, liver extracts, and anything that wasn't yet expired with the Aryuvedic sticker she applied herself. I experimented with them, trying 300 grams of turmeric in water daily. I tried some and it was liquid clay.
+
+---------
+
+
+The offenders sat around the room offending. 
