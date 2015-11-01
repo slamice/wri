@@ -2,10 +2,9 @@ Something in the air was broken. Cars swept by and cats snarled. The area was de
 
 "Guitar lessons? Dance space rental? Warm bodies? Call us."
 
-It was pretty obvious this venue, nicknamed 'The Woods', wasn't going to last much longer than eight or so months. While three thousands of dollars of rent per 30 days was high budgeted even for the 6 renters, especially when the only real job any of  them held was barely. Sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
+It was pretty obvious this venue, nicknamed 'The Woods', wasn't going to last much longer than eight or so months. Three thousands of dollars of rent per 30 days was high budgeted even for the 6 renters, especially when the only real job any of them held was barely. At the end of each month they worried, sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
 
-Then there was us. Stuffed up against the brick wall as if hung on it, the three of us watched couples and triples go inside.
-We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon.
+Then there were parties. Then there was us. Stuffed up against the brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon.
 
 "You think Matt'll come?" I asked.
 "Which Matt, what are you talking about?" Ryan said, half laughing.
@@ -16,28 +15,20 @@ Jack pulled out his lighter for the 3rd time and lit a cigarette.
 "You *just* had one"
 "So did you..."
 "But these are mine? Come on obviously you had a lot"
-"But *one* cigarette man. One," Ryan opened his eyes deer in his headlights style. His puppy face.
+"But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became pronounced.
 "Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan kept it and took the cigarette.
 
-My next guess is the other Matt never shows up. He's usually late and occasionally we get pissed at him but we're usually late too. High expectations abound, no one is happy. At least we've got cigarettes I don't smoke.
+My next guess is Matt never shows up. He's usually late and occasionally we get pissed at him but we're usually late too. High expectations abound, no one is happy. At least we've got cigarettes I don't smoke.
 
-We stood around, scratchy and unnerved. We looked like a shitty polaroid.
+We stood around, scratchy and unnerved. We looked like a shitty polaroid. I started to drift from Jack and Ryan here. These two were innocent compared to the hidden gems inside. I didn't know who depressed me more.
 
-I started to drift from Jack and Ryan here. These two were innocent compared to the hidden gems inside. I didn't know who depressed me more.
+Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marajuana for eternity. Jack talled and lanked his way through height and immeasurable incongruency. Various college degrees tried to swoop down on him, but he was great at planking them and none caught him but philosophy. Until shoulder length hair, chittering and shoes for "no shoes no service" are finally outlawed, Jack will reign down punching faces with abstract canvases of modern nude art.
 
-Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until university grabbed him by the collar and shoved him into a lazy comma. He remained high on marajuana for eternity. Jack talled and lanked his way through height and immeasurable incongruency. Various college degrees tried to swoop down on him, but he was great at planking them and none caught him but philosophy. Until shoulder length hair, chittering and shoes for "no shoes no service" are finally outlawed, Jack will reign down punching faces with abstract canvases of modern nude art.
-
-I could tell the two of them were getting finicky. Jack finished, "but seriously man I'm gonna bail. I'm really sorry, but I've got this thing and it's like you know me I'm sorry." His sentence bowed, shuffled and shrugged.
+I could tell the two of them were getting finicky. Jack finished his cigarette in a few minutes and, "but seriously man I'm gonna bail. I'm really sorry, but I've got this thing with Sarah tonight and it's like you know me I'm sorry." His sentence bowed, shuffled and shrugged.
 
 "It's not a big deal, you don't have to apologize. I'll see you later though, like another night."
 
 "Really sorry I can't right now."  And he slowly walked off waving, with Ryan bumbling and lagging behind him whispering a "me too."
-
----
-
-I invited them, at least I initiated a passive invite. When two worlds cross; the drunks with the skids, the attention whores with genuine whores. I stir these pots but there's no cook in sight, and I'll be damned if I have to taste a soup that needs fenugreek.
-
----
 
 How a show usually played out is posters go up in skate shops, coffee shops, really expensive barbershops with 3 items on the menu. Doors at 8, starts at 9. People know it really starts at 10. Bands keep waiting for their drinks and drunks. They go on at 11 or 11:30. It ends at 4am after the fourth band, but the police break it up at 3am.
 
@@ -62,7 +53,7 @@ I scanned through the crowds casually. The lights were dim and confused, sprayin
 
 "Not that long, like half an hour. Thought I would check it out."
 
-"Ch-check-ch-check-ch-cheking it out!" She tried to yell over the bad dance style. Most of the moves were just people walking badly.
+"Ch-check-ch-check-ch-cheking it out!" She tried to yell over the bad dance style. Most of the moves around us were just people walking badly.
 
 What was popular possibly eons ago started to play again. We danced a few jigs and tried to steal a few dance moves from our surroundings, but it only looked like everyone was badly walking. We just shuffled left and right and looked around us.
 
@@ -74,6 +65,6 @@ About 20 minutes later Adrian formed out of thin air and pulled Selina by the ar
 
 "Not yet, it's going to take a while."
 
-"Whatever, government. THE GOVERNMENT!" She yelled. Selina was against everything government. She gauffed at capitalism and stood honestly in disbelief at the many injustices of the world mentioned to her. Her eyes would literally grow bigger if anyone mentioned grim crimes involving theft, extortion, brutalizing women or death. "Oh my god" she would usually exclaim between sips of latte.
+"Whatever, government. THE GOVERNMENT!" She yelled. Selina was against everything government. She gauffed at capitalism and stood honestly in disbelief at the many injustices of the world mentioned to her. Her eyes would literally grow bigger if anyone mentioned grim crimes involving theft, extortion, brutalizing women or death. "Oh my god" she would usually exclaim between sips from her latte.
 
 https://www.adbusters.org/magazine/79/hipster.html

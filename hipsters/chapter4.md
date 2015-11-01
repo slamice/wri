@@ -11,7 +11,7 @@ Renee and I walked back to our makeshift apartment when we saw a light was on a 
 
 "Yea but that's old ages ago. I mean he used to get really mad but he's getting in a better place. He's moving to a BETTER PLACE in his life. Can't you see that?"
 
-We walked underneath the window and Renee yelled for Andrew. Renee yelled up, and from the second floor Jack's sleepy voice yelled "Yeah he's here. Come up!". Squirrely Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
+We walked underneath the window and Renee yelled for Andrew. Renee yelled up, and from the second floor Jack's sleepy voice yelled "Yeah he's here. Come up!". Squirrelly Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
 
 Her ex's apartment was a desolate. It was a single huge room he lived in with Jack and Doc. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low but anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight.
 
