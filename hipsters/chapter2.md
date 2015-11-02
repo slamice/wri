@@ -7,18 +7,28 @@ It was pretty obvious this venue, nicknamed 'The Woods', wasn't going to last mu
 Then there were parties. Then there was us. Stuffed up against the brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon.
 
 "You think Matt'll come?" I asked.
+
 "Which Matt, what are you talking about?" Ryan said, half laughing.
+
 "The guy, Matt, in the band."
+
 "Band guy? Yea he's coming."
-Jack pulled out his lighter for the 3rd time and lit a cigarette.
+
+Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blankly at both of them.
+
 "Hey man can I have one?" Ryan asked.
-"You *just* had one"
+
+"You *just* had one."
+
 "So did you..."
-"But these are mine? Come on obviously you had a lot"
+
+"But these are mine? Come on obviously you had a lot."
+
 "But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became pronounced.
+
 "Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan kept it and took the cigarette.
 
-My next guess is Matt never shows up. He's usually late and occasionally we get pissed at him but we're usually late too. High expectations abound, no one is happy. At least we've got cigarettes I don't smoke.
+My next guess is Matt never shows up. He was usually late and occasionally we'd get pissed at him but we were usually late too. High expectations abound, no one was happy. At least we had cigarettes I don't smoke.
 
 We stood around, scratchy and unnerved. We looked like a shitty polaroid. I started to drift from Jack and Ryan here. These two were innocent compared to the hidden gems inside. I didn't know who depressed me more.
 
@@ -66,5 +76,27 @@ About 20 minutes later Adrian formed out of thin air and pulled Selina by the ar
 "Not yet, it's going to take a while."
 
 "Whatever, government. THE GOVERNMENT!" She yelled. Selina was against everything government. She gauffed at capitalism and stood honestly in disbelief at the many injustices of the world mentioned to her. Her eyes would literally grow bigger if anyone mentioned grim crimes involving theft, extortion, brutalizing women or death. "Oh my god" she would usually exclaim between sips from her latte.
+
+Adrian took a toke next to her with her boyfriend Hayden. I never really did know what to say to her friend. She worked in a coffee shop day in day out, surrounded by people who looked familiar but I didn't know. She gave Selina free coffee every time she visited with soy milk of course thanks. She coughed it up a bit, her face red. She talked to Selina.
+
+"How long do you wanna stay? I saw Steve inside, we could go to his house afterwards. Kind of an after party thing."
+
+"I'm up for that, he's a good guy. Wait, Steve Flemer? Or Steve from 'No Hope?'"
+
+"From No Hope." Adrian yelled, laughing. "Who's the other guy?"
+
+They trailed off into a world of drama. I turned to Hayden, also slunked against the brick wall, and ask him what exactly was up. He said nothing in particular, which was nothing. A distintive ambiguous shrug. Hayden was between jobs, working as a graphic designer for a business by the waterfront.
+
+-----
+
+Adrian led us back to Steve's house. A fair oodle of people were inside. The place was barely furnished, toppled in and out of itself. a mattress, love seat and small table were occupied in the living room. We sat down next to these stranger and strangers underneath the projector.  Steve started up some indian music. Obviously he was heavily influenced by these rhythms to be in his other band, Boombastic. This environment sat nicely with the rest of the people hanging out there. All friends of his roommates or friends. They passed around some sort of marijuana and pill I didn't recognize. I didn't bother to take either off their hands.
+
+Steve was hard at work entertaining Adrian and Hayden. His voice fit so well in the background I couldn't distinguish it first whe he turned to me, "Why don't you smoke up?"
+
+"I'm not so sure I'd be happy with the results."
+
+"I don't know man sometimes it's nice to find out what those are. But that's cool." I nodded at a few more things he said muffled by the music and the crowd, and he went back to Adrian promptly.
+
+
 
 https://www.adbusters.org/magazine/79/hipster.html

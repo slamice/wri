@@ -1,7 +1,5 @@
 __With Adrian__
 
-I never really did know what to say to her friend. She worked in a coffee shop and gave Selina free coffee with soy milk of course thanks.
-
 Adrian began discussing her family for a bit. People in her story were drunk, had financial problems. Selina and I echoed "Yea I know that's hard."
 
 "I don't know what to do about my Dad. I don't know what to do. So many family issues and nothing gets resolved, you know?" She was talking strictly to Selina.

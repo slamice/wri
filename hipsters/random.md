@@ -110,4 +110,23 @@ Renee drank all kinds of liqueurs, plant ointments, liver extracts, and anything
 ---------
 
 
-The offenders sat around the room offending. 
+The offenders sat around the room offending.
+=======
+--------
+
+Renee gave me a juicer from the 70's, incredibly powerful and just as hard to clean. Fruit flies laid back on lawn chairs on it, sunglasses and a bit of smoothie in their tiny glasses. Occassionally they flew up a bit and waggled around looking for another spot.
+
+--------
+
+I practically begged her to come with me. In fact I did beg her, to walk down the street to the train statiion because it had a photo booth. Between bouts of mono and her rash she finally agreed one night to the 20 minute venture.
+
+
+-------
+
+Someone is wearing a Jewish smiley face Yamica :)
+
+"That's the most interesting Jicama I've seen..."
+
+"You mean Yamica?"
+
+"Yea whatever one of those."
