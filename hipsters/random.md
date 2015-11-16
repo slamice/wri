@@ -130,3 +130,70 @@ Someone is wearing a Jewish smiley face Yamica :)
 "You mean Yamica?"
 
 "Yea whatever one of those."
+
+
+--------
+
+
+Main character:
+
+
+
+What he wants: to fit in
+
+
+
+How to get it: hang out with friends, coworkers, until he finds something
+
+
+
+Problem: he's disgusted with everyone, tries to change them
+
+
+
+Renee:
+
+
+
+What she wants:
+
+
+
+
+
+
+
+
+
+
+
+
+
+I scrolled through a database of thousands of people, each with a name, birthday and an insincere smile waiting to be boxed again and printed.
+
+
+
+
+-------------
+
+
+
+
+
+The room swirled like a brick thrown through a window. There were voices, some scowling, some howling. Someone tried jowling their words in a effort to make them clearer. Someone whispered in my ear, "YEAAAAH!"
+
+
+
+I thought a weight would be lifted. I thought we'd take it all in stride, catapulting ourselves to stardom. I thought we'd all be higher, together even, rimbaulding around... Our gullets wet and our minds thoroughly relaxed, waning in and out of pleasure commas. I thought the more I sunk the more I'd be in the thick of it.
+
+
+
+But really, I didn't and couldn't think of anything at that point. As soon as I had an idea it kicked me in the face. I felt it.
+
+
+
+Was there anything to understand?
+
+
+
+I was drunk.

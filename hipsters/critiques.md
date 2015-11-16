@@ -22,7 +22,7 @@ Separate the dialogue from the narrative, readers like seeing white space on a p
 Steven pinker, "style development" on writing
 White Space is attractive and easy to read.
 
-Imaginative us of language
+Imaginative use of language
 Cynacism in Catch 22
 Narrator, how old is he? His background? He sounds like a hipster too, what makes him different.
 
@@ -41,7 +41,7 @@ who he is.
 Why he wants it.
 
 
-Protagonist is lookign for something more, could achieve something?
+Protagonist is looking for something more, could achieve something?
 (some ppl in the 50's haven't grown up either)
 
 Feels nothing for the people in the room.

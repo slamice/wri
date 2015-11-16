@@ -30,11 +30,11 @@ Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blank
 
 My next guess is Matt never shows up. He was usually late and occasionally we'd get pissed at him but we were usually late too. High expectations abound, no one was happy. At least we had cigarettes I don't smoke.
 
-We stood around, scratchy and unnerved. We looked like a shitty polaroid. I started to drift from Jack and Ryan here. These two were innocent compared to the hidden gems inside. I didn't know who depressed me more.
+We stood around, scratchy and unnerved. We looked like a shitty polaroid. I started to drift from Jack and Ryan here. These two were innocent compared to the hidden gems inside. I invited them out but I didn't know who depressed me more.
 
-Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marajuana for eternity. Jack talled and lanked his way through height and immeasurable incongruency. Various college degrees tried to swoop down on him, but he was great at planking them and none caught him but philosophy. Until shoulder length hair, chittering and shoes for "no shoes no service" are finally outlawed, Jack will reign down punching faces with abstract canvases of modern nude art.
+Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marijuana for eternity. As for Jack, various college degrees tried to swoop down on him, but he was great at avoiding them. Eventually he gravitated towards a bachelors in philosophy and did nothing with it. He sported shoulder length hair, was often seen chittering occasionally wore no shoes. Jack reigned in his own world of abstract canvases of modern nude art.
 
-I could tell the two of them were getting finicky. Jack finished his cigarette in a few minutes and, "but seriously man I'm gonna bail. I'm really sorry, but I've got this thing with Sarah tonight and it's like you know me I'm sorry." His sentence bowed, shuffled and shrugged.
+We were there for another 20 minutes. They went in for a bit to check it out, but I could tell the two of them were getting finicky. Jack finished his cigarette in a few minutes and, "but seriously man I'm gonna bail. I'm really sorry, but I've got this thing with Sarah tonight and it's like you know me I'm sorry." His sentence bowed, shuffled and shrugged.
 
 "It's not a big deal, you don't have to apologize. I'll see you later though, like another night."
 
@@ -85,17 +85,46 @@ Adrian took a toke next to her with her boyfriend Hayden. I never really did kno
 
 "From No Hope." Adrian yelled, laughing. "Who's the other guy?"
 
-They trailed off into a world of drama. I turned to Hayden, also slunked against the brick wall, and ask him what exactly was up. He said nothing in particular, which was nothing. A distintive ambiguous shrug. Hayden was between jobs, working as a graphic designer for a business by the waterfront.
+They trailed off into a world of drama. I turned to Hayden, also slunked against the brick wall, and ask him what, exactly, was up. He said nothing in particular, which was nothing. A distinctive ambiguous shrug. Eventually he gave out that he was between jobs, working on contract as a graphic designer for a business by the waterfront. "I've been making some show posters too."
 
------
+"I saw one of them I think, the kiwis with the lasers coming out of their eyes, that-"
 
-Adrian led us back to Steve's house. A fair oodle of people were inside. The place was barely furnished, toppled in and out of itself. a mattress, love seat and small table were occupied in the living room. We sat down next to these stranger and strangers underneath the projector.  Steve started up some indian music. Obviously he was heavily influenced by these rhythms to be in his other band, Boombastic. This environment sat nicely with the rest of the people hanging out there. All friends of his roommates or friends. They passed around some sort of marijuana and pill I didn't recognize. I didn't bother to take either off their hands.
+"Hah, yea I'm particularly proud of that one."
 
-Steve was hard at work entertaining Adrian and Hayden. His voice fit so well in the background I couldn't distinguish it first whe he turned to me, "Why don't you smoke up?"
+"To Steve's!" Adrian yelled. Selina followed suit, and we slowly walked to Adrian's cyan beetle and piled in.
+
+Inevitably, Adrian began discussing her family for a bit. People in her story were drunk, had financial problems. Selina and I echoed "Yea I know that's hard."
+
+"I don't know what to do about my Dad. I don't know what to do. So many family issues and nothing gets resolved, you know?" She was talking strictly to Selina.
+
+"No kidding that's hard." Selina stared out into the street. For a bit we drove in her bug silently. Hayden flipped through radio stations until he gave up. It coughed up something we didn't recognize, but we were lulled by it and the static with every turn down a street. A few cats were lying on sidewalks waiting to be petted.
+
+"Did you hear about Darren?" Adrian said, her voice a bit less scratchy and distressed.
+
+"Oh my god what a disaster." Hayden echoed.
+
+ Selina woke up "No, what about him? Didn't he have a show recently?" I could see Adrian was still, her mouth straightened and formed slowly, over the next few minutes, into a frown.
+
+ "Him and Gabe were playing a show at The Laundry Room the other day. With his band Hellen Killer? You know. Darren thought that it would be cool if he brought some lighter fluid right? It would be a great show. He dumped a bit on his guitar and lit it on fire, and continued to play as much as he could. But the space is pretty small, and the fire slowly got out of control. The whole place was wood. And while he was taking his guitar off he kicked the lighter fluid into the crowd. This girl ended up catching on fire and the paramedics came. It was 2 a.m. and everyone was panicking."
+
+"****" I said, any expression I had before fell to the floor of the car, rolling back and forth as we turned.
+
+"What happened to the girl?" Selina whispered in shock.
+
+"Well the horrible thing is she ended up in the hospital with two degree burns. Everyone is blaming them and berating Darren and Gabe any way they can. On their flyers too now. It's horrible. They visited the girl in the hospital a few times and apologized." Adrian then turned to Selina, stern, "It didn't make a difference. Also The Laundry Room is gone, it burnt down that night. No one can play there any more."
+
+"God, that's horrible." Selina said.
+
+"No one stops telling them they're jerks. I mean no one thinks about it. Darren feels horrible and they don't have to make him feel any worse. They probably won't play for months too."
+
+Adrian parked on the street. A fair oodle of people were inside Steve's house. The place was barely furnished, toppled in and out of itself. a mattress, love seat and small table were occupied in the living room. We sat down next to these stranger and strangers underneath the projector.  Steve started up some indian music. Obviously he was heavily influenced by these rhythms to be in his other band, Boombastic. This environment sat nicely with the rest of the people hanging out there. All friends of his roommates or friends. They passed around some sort of marijuana and pill I didn't recognize. I didn't bother to take either off their hands.
+
+Steve was hard at work entertaining Adrian and Hayden. His voice fit so well in the background I couldn't distinguish it at first when he turned to me, "Why don't you smoke up?"
 
 "I'm not so sure I'd be happy with the results."
 
-"I don't know man sometimes it's nice to find out what those are. But that's cool." I nodded at a few more things he said muffled by the music and the crowd, and he went back to Adrian promptly.
+"I don't know man sometimes it's nice to find out what those are. But that's cool." I nodded at a few more things he said muffled by the music and the crowd, and he went back to Adrian and Hayden promptly.
+
 
 
 
