@@ -1,9 +1,9 @@
 
-Renee and I walked back to our makeshift apartment when we saw a light was on a block bad. Since we moved in we haven't said hi to old friends we hadn't seen in months. It was fairly uninteresting.
+Renee and I walked back to our makeshift apartment when we saw a light was on a block back. Since we moved in we haven't said hi to Jack and his friends. We hadn't seen them in while. It was fairly uninteresting.
 
 "We should at least stop by to visit them. It's been four months?"
 
-"Five months. I don't know why I'm supposed to see him."
+"Five months. I mean maybe Jack but that's it. Just avoid Andy. Why am I supposed to see him?"
 
 "Because he's still my friend-" she said, stammering.
 

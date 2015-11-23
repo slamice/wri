@@ -195,5 +195,11 @@ But really, I didn't and couldn't think of anything at that point. As soon as I 
 Was there anything to understand?
 
 
+What are cruises to people anyway?
+
 
 I was drunk.
+
+------
+
+Iceland
