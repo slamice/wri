@@ -84,9 +84,9 @@ Anne walked Diana to the second stump beyond the gassy knoll into town, past Cha
 
 Anne got home. She wasn't in the habit of making people uproariously drunk by accident. She didn't make a deal of it except it killed her inside not to be perfect in front of these Plebbs, so she made Marilla's gorilla Matthew and that guy Jerry some tea and offted to bed.
 
-The days dragged on. Anne worried about Diana day and night like a lost dog only she was a drunk girl. On a Monday errand to the chocolate witch Anne bombastically broke down her home door on return and lie sobbing in heap.
+The days dragged on. Anne worried about Diana day and night like a lost dog only she was a drunk girl. On a Monday errand to the chocolate witch Anne bombastically broke down her home door on return and lied sobbing in heap.
 
-"Anne, have you been saucing up Mrs. Lindt again?" Meltily.
+"Anne, have you been saucing up Mrs. Lindt again Meltily?"
 
 She loses it. _It is gone_. Anne simply sobbed away ocean after ocean of tears crying tinier tears. The whole mood in the house dampened. No doubt a few more mice will be ignored tonight in the various array of puddings and pies Marilla made in Anne's soggy ignorance.
 
@@ -138,6 +138,6 @@ Mrs. Barrymore's rock face somehow conjugated into Titanium. "Geez Diana." She t
 
 Anne was so dismayed that she underestimated Mrs. Plebb's foolishness, Diana's sanity and Barrymore's one less of a berry too many her raspberry of anger. Did she know people at all?
 
-Marilla found her asleep that night, face down in a tear soaked pillow that she surely would have drowned from except the bed had many holes from Matthew the Gorilla's pure carpentry. The bed holes drained the tears through.
+Marilla found her asleep that night, face down in a tear soaked pillow that she surely would have drowned from except the bed had many holes from Matthew the Gorilla's pure insulted carpentry. The bed holes drained the tears through.
 
 She turned Anne over, let a cloth soak on her face for an hour, brushed her curls from her face and then gave her a tummy tuck into the sheets. Anne dreamt wicked dreams, with tears taht weren't hers.
