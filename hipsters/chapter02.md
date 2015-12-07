@@ -115,17 +115,38 @@ Inevitably, Adrian began discussing her family for a bit. People in her story we
 
 "God, that's horrible." Selina said.
 
-"No one stops telling them they're jerks. I mean no one thinks about it. Darren feels horrible and they don't have to make him feel any worse. They probably won't play for months too."
+"No one stops telling them they're jerks. I mean no one thinks about them. Darren feels horrible and they don't have to make him feel any worse. They probably won't play for months too, how could they?"
 
-Adrian parked on the street. A fair oodle of people were inside Steve's house. The place was barely furnished, toppled in and out of itself. a mattress, love seat and small table were occupied in the living room. We sat down next to these stranger and strangers underneath the projector.  Steve started up some indian music. Obviously he was heavily influenced by these rhythms to be in his other band, Boombastic. This environment sat nicely with the rest of the people hanging out there. All friends of his roommates or friends. They passed around some sort of marijuana and pill I didn't recognize. I didn't bother to take either off their hands.
+Adrian parked on the street and we headed quietly towards Steve's house. A fair oodle of people were already inside. The place was barely furnished, toppled in and out of itself. The living room was a mattress, love seat and a short coffee table with papers and weed. We sat down next to these stranger underneath the projector.  Steve started up some indian music. His band, Boombastic, practically stole all these rhythms and put a beat to them.
 
-Steve was hard at work entertaining Adrian and Hayden. His voice fit so well in the background I couldn't distinguish it at first when he turned to me, "Why don't you smoke up?"
+This environment sat nicely with the rest of the people hanging out there, about fifteen more or so. All friends of his roommates or friends. They passed around some sort of blunt and pills I didn't recognize. I didn't bother to take either off their hands. Steve was hard at work entertaining Adrian and Hayden. His voice fit so well in the background I couldn't distinguish it at first when he turned to me, "Why don't you smoke up?"
 
 "I'm not so sure I'd be happy with the results."
 
 "I don't know man sometimes it's nice to find out what those are. But that's cool." I nodded at a few more things he said muffled by the music and the crowd, and he went back to Adrian and Hayden promptly.
 
+Looking back, I remember not wondering about Renee. I remember staring at those faces, hazy through the smoke. Words drifting in the air next to them. They were cut up by the music and popped like bubbles as they spoke. Adrian's round face looked like a laughing cloud. My memory reduces Hayden was only to his fat nose getting high.
 
+Selina grabbed me hard by the arm and let me to a corner and we got up, and led me to a corner. Her eyes were a bit bloodshot and half closed dreamily. She smirked like a thoroughly candied child. We didn't need to shout anymore and I smiled with her.
 
+"Is this the after party or the after after party?"
 
-https://www.adbusters.org/magazine/79/hipster.html
+"Hmmm..." she wondered, her lips thoroughly pushed up exaggerated, "Has kind of an after-after party feel. I think we skipped one." and then her eyes opened up fully and I could see her red cornea canals, "We NEED to get a show Steve."
+
+"WE NEED TO GET A SHOW WITH STEVE."
+
+"He's got so many connections and he's such a nice guy."
+
+"Adrian barely knows him though."
+
+"We could tour Europe with them Om." and then she whispered, "we could tour..."
+
+"How?" after realizing she was serious.
+
+"They have a record deal. We could piggy back off of them. It would be the greatest time of your life Om."
+
+I thought about any possible complications.
+
+"You'll get your visa by then! It's been years! Om! Om!" she stared me in the eyes, paused. Her hands started stuffing invisible scones and butter rolls in her mouth "Om Om Om." she laughed to infinity and I joined in for a bit. It was so stupid we never got tired of it.
+
+I got home, 3am.

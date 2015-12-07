@@ -68,11 +68,11 @@ I packed my things and left. Out the door, into the street, on the crowded train
 
 Renee was awake, but I was unsure if she went to the clinic or not. It was impossible to tell. Sitting in bed, topless, her posture and nudity fit a greek aristocratic she-lump. What played in front of her was the most unimaginable imaginable television. Horror movies with identical endings, relationship finales foreshadowing later romps.
 
-"How was your day, Cubby? What did you do?" a seedless grape slid down Renee's mouth.
+"How was your day, Om? What did you do?" a seedless grape slid down Renee's mouth.
 
 "Nothing happened today. Things happened that were less than nothing today." I murmured.
 
-"Cubby can you turn on the washing machine again? I forgot to put the clothes in the dryer. Wash them again so they don't get moldy."
+"Om can you turn on the washing machine again? I forgot to put the clothes in the dryer. Wash them again so they don't get moldy."
 
 "Did you happen to check the mail?" I perked my ears up a bit.
 
@@ -80,9 +80,9 @@ Renee was awake, but I was unsure if she went to the clinic or not. It was impos
 
 "I'm trying to be patient I swear..." I flipped through my vinyl and wondered which record would numb effectively. Most were hygenicized, trapped in clear plastic. The 70's, 80's, 90's underground flip by. Nothing was jarring enough to procrastinate to. I shed so many tears over those new wave, no wave, ho wave genres and perhaps they dulled me. Good or bad goosebumps with every listen. Finally I settled on something with a really light voice I couldn't quite hear the lyrics to some ambient piano, and started up dinner.
 
-The kitchen was a tiny mess compared to the living room. Dishes weren't piled high enough to call it a disaster. I don't remember what I cooked that night, but I do remember it was bland. I was following a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Cubby. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. I took her challenge as an excuse to make something creative. My mouth took it as a challenge to taste any flavor.
+The kitchen was a tiny mess compared to the living room. Dishes weren't piled high enough to call it a disaster. I don't remember what I cooked that night, but I do remember it was bland. I was following a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Om. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. I took her challenge as an excuse to make something creative. My mouth took it as a challenge to taste any flavor.
 
-Outside stood the vacant parking lots and warehouses, limos occasionally driving to and fro. The window made a frame with the distant city and the reddening horizon. The New York sun wasn't at all like the sun back in Lebanon. Somehow it felt more expansive there, pulsing with blood and vigor as it slid down the sky.
+Outside stood the vacant parking lots and warehouses, limos occasionally driving to and fro. The window made a frame with the distant city and the reddening horizon. The New York sun wasn't at all like the sun back in Lebanon. Somehow it felt bigger there, pulsing with blood and vigor as it slid down the sky.
 
 I sometimes forgot the sun existed in New York. It didn't mean as much to me but I felt it should have. I desperately wanted to love it.
 

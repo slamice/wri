@@ -35,6 +35,10 @@ Polka dotted apron skirt, grey shirt white collar. Two ear piercings per ear. Wh
 
 -----------
 
+I don't remember too much about myself, honestly. It didn't seems like a big deal at the time to memorize anything about me.
+
+-----------
+
 Subway trains and hipsters
 
 TOKYO: around specific stations, living near there, they disappear into suits in the morning.
@@ -43,7 +47,7 @@ NYC: decorating a dilapidated environment. Not a compliment but a christening on
 
 Story:
 
-Issam is between two worlds. A fantasy yuppie lifestyle and a hipster dumpster dream. In a world of misfits, strange characters and lazy people, he brushes shoulders with them as he passes, leading to his ultimate conclusion of where he belongs.
+Om is between two worlds. A fantasy yuppie lifestyle and a hipster dumpster dream. In a world of misfits, strange characters and lazy people, he brushes shoulders with them as he passes, leading to his ultimate conclusion of where he belongs.
 
 It begins with him facing off his fears of doubt and loneliness. He works in an office but is still detached from the environment. He has friends from university but they fit in with the rest of the drunken hipster
 miscreants, all dating each other. He goes to concerts, plays in concerts, goes to crappy breakfast places. Eventually it all breaks down. He
@@ -203,3 +207,8 @@ I was drunk.
 ------
 
 Iceland
+
+
+
+
+https://www.adbusters.org/magazine/79/hipster.html

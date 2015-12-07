@@ -9,7 +9,7 @@ story follows his motions through life,
 Work
 Dance show 1
 Show 1
-Jack's house 
+Jack's house
 Show 2 (My show)
 Cruise
 Hipster wedding
