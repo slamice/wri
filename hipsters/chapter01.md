@@ -10,9 +10,9 @@ I should mention the owners of the place were dodgy themselves. Two cousins from
 
 We arranged a deal with Raf that we'd pay to live in his illegally zoned apartment for nothing more.
 
-After shifting the couch I found a pair. Renee moaned in her sleep softly but the wake of it was loud enough. You could still hear it as I shut the door quietly behind her.
+After shifting the couch I found a pair. Renee moaned in her sleep softly but the wake of it was loud enough. I still heard it as I shut the door quietly behind her.
 
-Outside, the recycling station stood tall and solid. People were fast at work, trucks driving in and out recycled material, laughing loudly at each other just because. The bottles, cans, tins, broken glass, milk jugs, and whatever else bore the arrows symbol was sorted, tossed and recombined with each other. I wasn't clear exactly what they did with the recycling besides pack it. These people showed off their wealth of trash. One day it'll be useful, but now someone will figure something out.
+Outside, our neighboring recycling station stood tall and solid. People were fast at work, trucks driving in and out recycled material, laughing loudly at each other just because. The bottles, cans, tins, broken glass, milk jugs, and whatever else bore the arrows symbol was sorted, tossed and recombined with each other. I wasn't clear exactly what they did with the recycling besides pack it. These people showed off their wealth of trash. One day it'll be useful, but now someone will figure something out.
 
 Past the few warehouses, the territorial crows buzzed on one corner, some above my head. One in particular took to swooping down on me daily, nearly scathing my hair. So territorial. I ignored it completely though, it really wasn't worth it. The city was already awake and in full motion. Cars went places. The coffee shop lines were long and the trains were packed.
 
