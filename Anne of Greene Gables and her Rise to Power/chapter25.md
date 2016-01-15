@@ -1,18 +1,16 @@
 CHAPTER XXV. Matthew Insists on Puffed Sleeves
 
-Yes he loves em, that lark.
+Yes he loves em in more ways than a few, that lark.
 
-Anne was privy in the living room parading her friends around her to ominous music. Her friends were circling her courtesying, obviously so tired from their knees could hardly put out another squat. Anne was in the middle. She spun, her arms raised in the air, he head flung back with a fountain of demands streaming out of her.  A techno march danced in her head while dream after dream of her absolute monarchy came true in it.
+Anne was privy in the living room parading her friends around her to ominous music for an upcoming school play. Her friends were circling her courtesying shakily, obviously so tired their knees could hardly put out another squat. Anne was in the middle. She spun, her arms raised in the air, her head flung back with a fountain of demands streaming out of her.  A techno march danced in her head while dream after dream of her absolute monarchy came true in it.
 
-Matthew Cutthroat was in pure shock. He could have cut his _own_ throat after seeing that. The girls were soon too turned to move, so they scurried clumsily away out of the house barely walking. Anne assured them they'll practice again tomorrow until they get "The Fairy Queen" down tight. Marilla's Gorilla shrunk in a corner and into his sweater like a Dracula snail as the girls.
+Matthew Cutthroat was in pure shock. He could have cut his _own_ throat after seeing that. The girls were soon too turned to move, so they scurried clumsily away out of the house barely walking. Anne assured them they'll practice again tomorrow until they get "The Fairy Queen" down tight. Marilla's Gorilla shrunk in a corner and into his sweater like a Dracula snail as the girls slumped out.
 
 Creepily, he watched the girls put on their bonnets, boots and outer corsets on while Anne simply patted down her dress. Matthew looked at the sack Anne wore and then back at the other girls. Then back at Anne. Then back at the other girls, then back at Anne. Like a spectre in the dark he studied them until they were out the door.
 
-Something was off, and it came to Matthew while hacking on his pipe smoke with Marilla shaking her head in disgust...
+Something was off, and it came to Matthew while hacking on his pipe smoke with Marilla shaking her head in disgust later that evening...
 
 The clothes! The other girls wore lace and fine cottons. Their pocket lint was balls of silk. Mrs. Plebb's only ever made Anne's dresses in one color, dirt.
-
-~That one by the way is always on the test, if you're taking notes. The dirt dress question.~
 
 Like the mill he worked with his hands, another mill ground non-creepy girls dress thoughts in his head. The other girls wore pink bows and came each day with all colors of the rainbow. Anne had a flower stapled to her dress.
 
@@ -20,7 +18,7 @@ Fashion areas as distant to him as Antartica. Also the sleeves! The other girls'
 
 The next day he headed carmodying to the store. The Cutthroats usually only dealt with one stop shop William Blake's makes. But he wanted to get Anne something over a nickel, so he headed to the infamous S&L's Chic Boutique, where only the finest gabelers shopped.
 
-ALAS! DISDAIN! Who behind the counter but a lovely blossomy woman. Her figure like a disproportionately blown up clown balloon. Matthew could barely keep up a conversation with the three people he knew. This would surely kill him.
+ALAS! DISDAIN! Who behind the counter but a lovely blossomy woman. Matthew could barely keep up a conversation with the three people he knew. This would surely kill him.
 
 She had a huge, drooping... Pompadour. Big, rolly polly eyes and a most extensive and bewildering, hmm.... Smile. Her name was Lucilla.
 
@@ -76,9 +74,9 @@ When the common place peon breakfast was over, Dianna appeared as a fleck on the
 
 Anne opened the box and peered inside. Inside were golden slippers. With beaded toes, satin bows, glistening buckletes and yes, puffy sleeves as well. "OH EM GEE" Anne mouthed.
 
-"You won't have to wear slippers too big for you for us to hear you shuffle in them. Can your eyes get wider for the excitement at the concert tonight?"
+"You won't have to wear slippers too big for you for us to hear you shuffle in them." Could Anne's eyes get wider for the excitement at the concert tonight?
 
-All the scholars from all the villages of Canada were there, eagerly waiting. The hall was decorated heavily like a few fat men. It got really crowded with the whole cast on stage, but Anne made it clear she was the star. Just like her speeches, she reigned hard. She belted out off key tunes and whipped the audience's faces with broken melodies and half notes hanging off the sides of the stage. Girls danced around her, sacrificing their shoes, feet, throats for what they thought was the show. They shuffled hard medival turned modern dance summersaults. Anne grinned "No one could be apathetic after that. Come on."
+All the scholars from all the villages of Canada were there. The people of Onion Lake, Meat Cove, Homeville... the aching peasantries were eagerly waiting. The hall was decorated heavily like a few fat men. It got really crowded with the whole cast on stage, but Anne made it clear she was the peacock of the bunch. Just like her speeches, she reigned hard. She belted out off key tunes and whipped the audience's faces with broken melodies and half notes hanging off the sides of the stage. Girls danced around her, sacrificing their shoes, feet, throats for what they thought was the show. They shuffled hard medival turned modern dance summersaults. Anne grinned "No one could be apathetic after that. Come on."
 
 "I guess," Diana counted after the epic, "we made ten dollars. Our names will be in the newspapers, fonted in bold and italic."
 
