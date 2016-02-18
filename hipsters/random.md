@@ -107,6 +107,9 @@ We went there, and of course it was crowded because everyone woke up at 11am.
 
 "This city never sleeps but everyone is tired"
 
+
+"At all hours everyday, the world is here. It's got everything you want but nothing you need."
+
 --------
 
 Renee drank all kinds of liqueurs, plant ointments, liver extracts, and anything that wasn't yet expired with the Aryuvedic sticker she applied herself. I experimented with them, trying 300 grams of turmeric in water daily. I tried some and it was liquid clay.
