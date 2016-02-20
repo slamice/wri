@@ -24,5 +24,14 @@ Samir's eyebrow twitched in confusion. He felt himself waking up a bit, wonderin
 
 But suddenly the doors closed and the train continued on, down the tunnel again. He was sure he was on the same train ten minutes ago, and yet he had no idea where he was. Clues were standing around him spitting and shouting odd remarks back from a club.
 
-
 Samir's English was anything but great, but it was good enough to break. He almost got up to approach the group in front of him, but sat back down when he realized he didn't how to ask what he didn't know to ask.
+
+The train sped on down a long tunnel, the dark round greyness passing quicker and quicker, only the pipes remain constant. The people on th train was racketeering to themselves, the quiet lady in the corner shrunk and simply looked away to nothing. The spanish family chatted in brief spurts to each other. Samir studied all their faces. They were completely without any doubt. No one was surprised in teh least that the world suddenly changed.
+
+The train announcer was barely audible above the static that suddenly crashed into the car, but Samir then heard a recorded voice but barely understood the accent, "The next station is Marble Arch". The same white walls glimmered and shined through palely.
+
+Samir sat there, still, as the talkative bunch got off the train, bumbling. An older man balding man stepped on, brutally tired out of his mind. And then the train doors closed, and continued on.
+
+Samir sighed. He wondered what kind of bizarre twighlight zone he was in. Maybe he was getting taken back, back to the end of the world, back to the destruction, back to his missing father. Anything could explain this really. He prayed to himself while the wooshing sound of the train nestled into his heart and punched it slowly form the inside, beating harder and harder. Samir sat there in silence, wishing he studied harder.
+
+The train threw time behind it as it continued in the only direction it knew. It shooped and whooped down its runway in a hurry. The train conductor's voice grew harder and harder to understand. Samir began to give up when it announced "Cowcaddens" and "Ibrox". The doors flew open and closed, and the singles and families grew paler and paler. The Spanish family remained on the train, shuffling. The African American lady sat in the corner, reading a newspaper that somehow materialized out of her bag.
