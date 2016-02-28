@@ -56,7 +56,7 @@ The house was quiet for a few. "Well, I don't envy you your job bringing THAT up
 
 "We need to raise her right." Mrs. Pleb said with a thorough glance at her. "I'm not saying she's not stark raving mad, but there is no dignity in degradation."
 
-"What's bred in the bone is bred alone!" she fought back, but Mrs. Pleb didn't understand.
+"What's bred in the bone is bred alone!" she fought back, but Mrs. Pleb didn't understand because it didn't make sense.
 
 "I'm too sorry for you to leave any room for anger in my mind. You'll have your own troubles with that child. But if you'll take my advice—which I suppose you won't do, although I've brought up ten children and buried two—you'll do that 'talking to' you mention with a fair-sized birch switch. I should think THAT would be the most effective language for that kind of a child. Her temper matches her hair I guess. Well, good evening, Marilla. I hope you'll come down to see me often as usual. But you can't expect me to visit here again in a hurry, if I'm liable to be flown at and insulted in such a fashion. It's something new in MY experience." And with that she got about, obviously shaken from the experience, and trotted off back home.
 

@@ -140,4 +140,4 @@ Anne was so dismayed that she underestimated Mrs. Plebb's foolishness, Diana's s
 
 Marilla found her asleep that night, face down in a tear soaked pillow that she surely would have drowned from except the bed had many holes from Matthew the Gorilla's pure insulted carpentry. The bed holes drained the tears through.
 
-She turned Anne over, let a cloth soak on her face for an hour, brushed her curls from her face and then gave her a tummy tuck into the sheets. Anne dreamt wicked dreams, with tears taht weren't hers.
+She turned Anne over, let a cloth soak on her face for an hour, brushed her curls from her face and then gave her a tummy tuck into the sheets. Anne dreamt wicked dreams, with tears that weren't hers.
