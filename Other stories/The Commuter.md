@@ -36,4 +36,102 @@ Samir sighed. He wondered what kind of bizarre twilight zone he was in. Maybe he
 
 The train threw time behind it as it continued in the only direction it knew. It shooped and whooped down its runway in a hurry. The train conductor's voice grew harder and harder to understand. Samir began to give up when it announced "Cowcaddens" and "Ibrox". The doors flew open and closed, and the singles and families grew paler and paler. The Spanish family remained on the train, shuffling. The African American lady sat in the corner, reading a paper that somehow materialized out of her bag just a moment ago.
 
-Eventually the tunnel lights grew lighter. Samir felt they flushed down deeper into the earth.
+
+
+Eventually the tunnel lights grew lighter. Samir slumped as they flushed down deeper into the earth. They emerged out a tunnel, once again cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds suspiciously clear, and a low solemn voice pronounced "Valcarca" in a familiar accent. The spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
+
+A small black haired kid sat next to Samir as his mother stood in front of him. Samir glanced out the window as the train started moving, lost twice as hard. The kid held out a flat aluminum papered stick between his fingers. "¿Chicle?" he offered. Hismom glanced at both of them and smiled.
+
+"No, thank you." Samir smiled back, but then he realized "Excuse me, excuse me. Where is?"
+
+"Qué?" she asked him.
+
+"Where is here?" He asked her, hoping dreadfully she'd understand. He bit his mind nails.
+
+"¿Qué? Eh, Barcelona. Barcelona." She said slowly in a half smile.
+
+"English? You say English?" Samir said hopefully.
+
+"Ah, siento. No Inglés" Her face puckered a sad smile. Her son looked out the window and Samir did a thank you head bow.
+
+They sped down the bright fluorescent grey tunnel.
+
+----
+
+Japan
+
+
+
+---
+
+France
+
+----
+
+
+Germany
+
+---
+
+He considered himself so lucky when he emerged into a desert of buildings and sand. Some hope began stirring in Samir. He felt familiarity creep over him. It felt like a morning just waking up groggy, the huge highways full only of buses and vans. He sped into a large arcy architectural behemoth of a building and slowed down almost too quickly. But as the train pulled in the station, he couldn't believe his eyes when he saw above the crowd about to get in a blue sign glaring "خروج Exit". He got so excited he could talk to someone his heart tensed. He didn't quite know where he was yet but he knew he could find out.
+
+Glass doors opened outside of the train doors and people quickly erupted in by the train mouthfuls. It was almost as crowded as the Japanese train. He sat in the corner as people smooshed themselves against themselves. Many wore mustaches and were a bit short, and he recognized them to be foreign even to him. Most were dressed in construction clothes.
+
+"!السلام عليكم" Samir said politely to the man in front of him.
+
+"!السلام" The man next to him said, the other stared at him and repeated it.
+
+"لو سمحت نحن فين؟" Samir said smiling at the new man.
+
+"Ah sorry sorry, don't speak. Sorry." He put his hand on his chest and smiled.
+
+"It is... Ok." Samir sighed inside.
+
+"You are from Dubai?" The first man asked. 
+
+------
+
+It must have been a good five hours he worried. He got sick of the doors opening and closing. He got tired of all the people going in and out.
+
+They ended up all alone, speeding down yet another dark corridor. Samir walked toward her hopefully, wondering with a heavy heart if she knew where they were headed. She noticed him lazily and pushed up her lips and then dropped them bored.
+
+"Excuse me?" Samir intended it shyly but it came out perverse. "Where is here?"
+
+"We on the train honey." She said bluntly. He was about to ask again but she charged "ON. THE. TRAIN."
+
+"Yes, ok. On the train. But where?"
+
+"You asking me? Why you asking me?"
+
+"Where do we go?"
+
+"We going home." She was quickly losing interest, her eyelids grew heavier and glanced back at her papers.
+
+"It is not ok." Samir began to get angry at how cold she seemed to him, but then he couldn't tell if it was New York or him or her. The lady didn't budge but then looked straight at him.
+
+"Wha you mean?"
+
+"Why it is ok? We go far. It's not ok. Where do you go?"
+
+
+
+
+"No one forcing you to stay here. You can get off anytime"
+
+------
+
+It must be all kinds of confusion.
+
+-------
+
+The looked empty to Samir. He didn't feel there was anyone driving it either. It was only him and the train.
+
+The next stop was deserted, and the train intercom didn't crackle on this time. The train stopped in exhaustion and Samir looked outside. Two signs, one on top of the other read the same but the words were in different order, "도곡　Dogok　谷道".
+
+Samir sighed and looked up and down at the grey and white stripped lines. He didn't know how probable he'd see the grayish black hues of concrete and brick he was used to again. But at that point he didn't much care.
+
+The doors stood open, mocking him for several minutes.
+
+He stopped thinking. He looked out the train both ways. It felt eerily clean and completely silent. He took a step, and walked out. His shoes echoed squeaks in the tunnel. until he headed up the stairs.
+
+A few minutes later, the train doors closed.
