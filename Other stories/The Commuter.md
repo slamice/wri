@@ -1,4 +1,4 @@
-Samir sat sullen, sunken on his seat. The cart sped down the tracks, pretty rocky as it threw itself into high gear.
+Samir sunk into his seat. The cart sped down the tracks, pretty rocky as it threw itself into high gear.
 
 The people around him are like him, everyone with a few stories. Some of their faces pock marked, others lost in their headphones, a few leaned up against the pole molding into it.
 
@@ -8,7 +8,7 @@ A few people got off the next stop, and then the next stop. Samir was so tired a
 
 The conductor began pronouncing the train stops delicately, with a joking coo. Every station name and _next stops_ were slowly getting a few chucklettes. A few got on and a few more got off.
 
-"Nereld ave." was coming up. Samir didn't feel like moving. He moved a lot and didn't want to move anymore. He moved so much and didn't know where to go anymore.
+"Nereid ave." was coming up. Samir didn't feel like moving. He moved a lot and didn't want to move anymore. He moved so much and didn't know where to go anymore.
 
 So the doors slid open, a few people stepped off, and Samir just sat there. His flat butt cheeks kissed the seat through his jeans and he was undeterred. He didn't want to pass the corner stores. He didn't want to drag his feet seven more blocks to his walk up. At least not yet.
 
@@ -87,7 +87,7 @@ Glass doors opened outside of the train doors and people quickly erupted in by t
 
 "It is... Ok." Samir sighed inside.
 
-"You are from Dubai?" The first man asked. 
+"You are from Dubai?" The first man asked.
 
 ------
 
@@ -134,4 +134,4 @@ The doors stood open, mocking him for several minutes.
 
 He stopped thinking. He looked out the train both ways. It felt eerily clean and completely silent. He took a step, and walked out. His shoes echoed squeaks in the tunnel. until he headed up the stairs.
 
-A few minutes later, the train doors closed.
+A few minutes later, the ringing closed the doors.

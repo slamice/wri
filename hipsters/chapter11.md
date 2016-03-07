@@ -27,7 +27,7 @@ The oompa-loomps band jawed and jeered thick horn drawls and hard drum beats at 
 
 Thin man Dan walked out in front of us. He was a tall pencil head who played a tenor sax like a gift teasing us. The band quieted their harmonies until it was only him playing. He did a jig soloing to the air, and all at once stopped suddenly. We all clapped profusely at his talent and beret.
 
-"Friends!" He raised his arms. "We don't know you but applaud this hefty wager you're playing with life. We're all with you, but we're gambling just by just throwing in our hats," and tipped his dusty top hat off. It landed with a tiny crunch on the grass. Dan paused while no one seemed to notice though. "Shakespeare once said in a mixed review play, 'All the world is a stage! You get hitched and life's a bitch!' So please let us be your audience and see through it that you have a happy ending."
+"Friends!" He raised his arms. "We don't know you but applaud this hefty wager you're playing with life. We're all with you, but we're gambling just by throwing in our hats," he tipped his dusty top hat off. It landed with a tiny crunch on the grass. Dan paused. A few people glanced at the hat then back at him. "Shakespeare once said in a mixed review play" he bellowed "'All the world is a stage! You get hitched and life's a bitch!' So please let us be your audience and see through it that you have a happy ending."
 
 He finally lowered his hands and presented them to the couple, "Congratulations!"
 

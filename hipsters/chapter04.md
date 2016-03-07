@@ -1,3 +1,6 @@
+*TODO* Possibly time has passed from seeing Jack, explain how they are flaky and barely talk to each other anyway? Or that they slowly have been growing apart since college because narrator Om is losing interest?
+
+
 
 Renee and I walked back to our makeshift apartment when we saw a light was on a block back. Since we moved in we haven't said hi to Jack and his friends. We hadn't seen them in while. It was fairly uninteresting.
 
@@ -83,4 +86,6 @@ And she tried to bring me back, "Hey! Come on! Don't worry of course I still lov
 
 The receptionist was there. Behind the counter was a huge grin, a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She now hobbled busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone 3000km away. It stuck in her pride from then on, adding more weight. She gave me the mail in a heap. "Read 'em and weep!" She laughed hard. I picked through the letters. Renee took her phone bill and some sales flyers unabashed.
 
-It had been a week, no notices. Apparently the government said nothing. They weren't thinking of me, they didn't miss me. The cat hurled puddles of hiss and screams in our faces as we opened the door and went in our apartment.
+It had been a week, no notices. The government shrugged and said nothing. They weren't thinking of me, they didn't miss me.
+
+We opened the apartment door and Renee's cat hurled puddles of hiss and screams in our faces.

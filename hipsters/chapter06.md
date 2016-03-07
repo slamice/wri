@@ -1,4 +1,4 @@
-Michael bailed hard on me. He finally brought up some believable excuse, follow by another fake two. I couldn't get Renee to follow me on either. Nothing about it enticed her. He diet spit in the face of the Hawaiian food she couldn't eat, alcohol she couldn't drink.
+Michael bailed hard on me. He finally brought up some believable excuse, follow by another fake two. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl at the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
 Alone, I threw away the other ticket and went to the dock on a Wednesday after work. A plastic Leigh was draped over my head, as if it were knighting me before stepping aboard. I walked slowly onto the yacht, a bit cautious, perhaps overly so, but one can never be too sure can they? I couldn't help but be excited though. I could see the city now from so many angles.
 

@@ -53,7 +53,7 @@ The party was a pagan dance. 90's theme be damned. Someone threw up the 60's, 70
 
 Many weirds and beards shot each other, the digital polaroids barely drying between takes. Mouths were open, strung out on jargon, cheap beer and dance music. Some girls made a few soft-core poses, each holding a meaningless subliminal message.
 
-I scanned through the crowds casually. The lights were dim and confused, spraying in every other direction. I recognized a few passing faces in passing.  A few more prominent and active members ignored me. I made a hard nod at one girl made tapestries. Finally Selina waded into the crowd. I caught fleeting glimpses of Adrian and her periodic boyfriend. They were lost in a few ways, most prominently in dancing.
+I scanned through the crowds casually. The lights were dim and confused, spraying in every other direction. I recognized a few passing faces in passing.  A few more prominent and active members ignored me. I made a hard nod at one girl made tapestries. Finally Selina waded into the crowd. I caught fleeting glimpses of Selina's roommate Adrian and her periodic boyfriend. They were lost in a few ways, most prominently in dancing.
 
 "What up yo?" Selina and I pounded hands and laughed. She donned light flannel and a grey cap.
 
