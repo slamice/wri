@@ -229,3 +229,163 @@ It grew a bit colder, and I stepped back into the bar.
 ---------
 
 https://www.adbusters.org/magazine/79/hipster.html
+
+
+#####################################
+
+3 things happen with his life:
+
+His band
+His job
+His personal life with his gf
+
+
+The point of the book is about utterly giving up. He hates his job, begins to hate his friends, and hates the burden he has towards his gf. The only two people he likes are Selina and his mom.
+
+
+
+It's about the descent from despair. About cornering yourself, and the consequences.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Things riddle down to the wire.
+
+--------
+
+
+
+"Here you can lose yourself like keys."
+
+
+
+--------
+
+"You're not going to drink the coffee?"
+
+"Coffee gives me a headache. I can only drink it with other stuff in it."
+
+"Why did you get it then?"
+
+I put the mug up to my cheek "I got it for warmth." I said with a shy sad smile.
+
+"It keeps you warm?" She said smiggling. (A Smile giggle)
+
+"Yea. It keeps me warm."
+
+"Why not tea then?"
+
+"Somehow, I thought coffee was thicker... So it would be warmer."
+
+
+
+--------
+
+
+
+Humble bragging
+
+
+
+-------
+
+
+
+The quick jerk shrug and violent heavy moping nearly cut me.
+
+
+
+-----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+The working passively pushed on the turnstiles. And they never pushed back. And the next day and the next. They came back around, sometimes feeling heavier.
+
+
+
+The train lurched forward. It trudged against the tracks, stuttering between stations. People slumped and grumped in small huffs. The readers stood, hovering over their books with one bead adorned hand in the air holding the rail. The phonies rubbed and smudged their mobiles into a fine oily fingerprint mess. The rest sat or stood vacantly waiting.
+
+
+
+----------
+
+I am the shit.
+
+(He sucks or is he great?)
+
+----------
+
+
+Michael faces me one Monday morning.  The facing face is torn up into a heavy smile. It's tired and it hides behind itself with a fake drowsy sickness. The combination is familiar yet bizarre.
+
+
+
+He asked me, "what?"
+
+
+
+I said, "nothing."
+
+
+
+He asked me "what do you see?" And he touched it, trying to pull off a stray hair.
+
+
+
+I saw a taboo, so I said nothing and shrugged perfectly. I'd become a professional shrugger, might as well abuse the talent.
+
+
+
+---------
+
+Chinese lady "socks socks underwear tanktop!"

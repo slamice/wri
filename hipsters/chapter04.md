@@ -1,6 +1,18 @@
 *TODO* Possibly time has passed from seeing Jack, explain how they are flaky and barely talk to each other anyway? Or that they slowly have been growing apart since college because narrator Om is losing interest?
 
 
+Ch4 . Renee is still connected with his old friends. Eventually they go to jack's place. The point of this chapter is to develop the story behind Renee and her self victimization, also Om's growing ambivalence and hate for his social circle.
+
+
+
+
+
+
+
+
+
+
+
 
 Renee and I walked back to our makeshift apartment when we saw a light was on a block back. Since we moved in we haven't said hi to Jack and his friends. We hadn't seen them in while. It was fairly uninteresting.
 

@@ -1,16 +1,23 @@
-There were no curtains on my windows yet, but I somehow slept well into the late morning. I woke up still in a bizarre dream while Renee dozed next to me in a really thick sleep deep in a gutter. The bed springs shook as I got up, slowly, and they bit back audibly. Grabbing my jeans from the floor and a shirt from the rack, I slipped off the bed. The cat, Chibi, lay on a pile of our clothes looking up at me, tired and bloated. It watched me wander around the room. With its' eyes it asked me, "why are you awake, that's a pitiful thing to be."
+Ch1. The book opens with a daily routine, a trudge everyone knows well to and from work. This sets the scene for who his coworkers are, who his gf is, who he is. The cat is a siren. We learn he is tired of his office life, working like a broken machine.
+
+
+
+
+
+
+There were no curtains on my windows yet, but I somehow slept well into a late morning. I woke up still in a bizarre dream while Renee dozed next to me in a really thick sleep deep in a gutter. The bed springs squirmed as I got up, slowly, and they bit back audibly. I slipped off the bed, grabbing my jeans from the floor and a shirt from the rack. The cat, Chibi, lay on a pile of our clothes looking up at me, tired and bloated. It watched me wander around the room. With its' eyes it asked me, "why are you awake, that's a pitiful thing to be."
 
 The morning met my gaze. I felt my shirt was too big for me, like someone threw a blanket on a chair and it just sat there. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelting in a rage.
 
 Everyday I shaved and tapped the razor handle against my hand to empty it. Renee said she could hear the tapping against the sink in her dreams. It was far too loud and she hated waking up in the morning to my tapping, tiny hair spraying against the sink so early. "No one does that, it's incessant and tiring." And she mimicked an exaggerated throw down of a huge razor to the floor.
 
-The bag of my socks were under random bits of clothes and books. It was pretty late but the only way to find anything was  to start cleaning the house. We moved in recently with boxes unopened, half opened, opened for business, under restoration, national heritage, etc and etc. The room defined askew. And yet the irony was ironically built on top of yet more trash. Our apartment was above a shifty limousine dispatch, neighboring a recycling office.
+The bag of my socks were under random bits of clothes and books. It was pretty late but the only way to find anything was to start cleaning the house. We moved in recently with boxes unopened, half opened, opened for business, under restoration, national heritage, etc and etc. The room defined askew. And yet the irony was ironically built on top of yet more trash. Our apartment was above a shifty limousine dispatch, neighboring a recycling office.
 
-I should mention the owners of the place were dodgy themselves. Two cousins from rich Indian families started it a century back. One absolutely never ever never for sure 100% never visited the office. His pictures were all over it with the latest limousine models. The other, simply nicknamed Raf, was shackled under house arrest for arranging prostitute rides for political clients. I found that out in a newspaper one day, on the coffee table in my office. The print read Raf talked behind their backs, calling the prime minister 'little dictator' while dispatching the driver and an unclassy broad. I was confused that day if mentioning the prostitutes was somehow clever or not. Oh and he was our landlord.
+I don't need to but will mention the owners' of the place were dodgy themselves. Double dodgy. Two cousins from rich Indian families started the limo dispatch a century back. One absolutely never ever never for sure one hundred percent never visited the office. His pictures were all over it with the latest limousine models. The other, simply nicknamed Raf, was shackled under house arrest for arranging prostitute rides for political clients. I found that out in a newspaper one day, on the coffee table in my office. The print read Raf talked behind their backs, calling the prime minister 'little dictator' while dispatching a driver and an unclassy broad. I was confused that day if mentioning the prostitutes in the paper was somehow clever or not. Oh and he was our landlord.
 
 We arranged a deal with Raf that we'd pay to live in his illegally zoned apartment for nothing more.
 
-After shifting the couch I found a pair. Renee moaned in her sleep softly but the wake of it was loud enough. I still heard it as I shut the door quietly behind her.
+After shifting the couch I found a pair of socks. Renee moaned in her sleep softly but the wake of it was loud enough. I still heard it as I shut the door quietly behind me.
 
 Outside, our neighboring recycling station stood tall and solid. People were fast at work, trucks driving in and out recycled material, laughing loudly at each other just because. The bottles, cans, tins, broken glass, milk jugs, and whatever else bore the arrows symbol was sorted, tossed and recombined with each other. I wasn't clear exactly what they did with the recycling besides pack it. These people showed off their wealth of trash. One day it'll be useful, but now someone will figure something out.
 
@@ -82,8 +89,6 @@ Renee was awake, but I was unsure if she went to the clinic or not. It was impos
 
 The kitchen was a tiny mess compared to the living room. Dishes weren't piled high enough to call it a disaster. I don't remember what I cooked that night, but I do remember it was bland. I was following a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Om. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. I took her challenge as an excuse to make something creative. My mouth took it as a challenge to taste any flavor.
 
-Outside stood the vacant parking lots and warehouses, limos occasionally driving to and fro. The window made a frame with the distant city and the reddening horizon. The New York sun wasn't at all like the sun back in Lebanon. Somehow it felt bigger there, pulsing with blood and vigor as it slid down the sky.
+Outside stood the vacant parking lots and warehouses, limos occasionally drive to and fro. The window made a frame for the distant city and the reddening horizon. The New York sun wasn't at all like the sun back in Lebanon. Somehow it felt bigger there, pulsing with blood and vigor as it slid down the sky.
 
-I sometimes forgot the sun existed in New York. It didn't mean as much to me but I felt it should have. I desperately wanted to love it.
-
-Then after dinner I slid downstairs, but they said nothing came that day. There was no mail.
+After dinner and before I slept I slid downstairs, but they said nothing came that day. There was no mail.

@@ -1,12 +1,12 @@
 CHAPTER XXIII. Anne's Good Grief with an Affair to Honor
 
-Griefly, it took all of Anne's courage to muster lasting a month after the emininent liniment cake incident. Its not that she didn't outlast the many other crazy incidents she caused, but it was only a matter of time before Anne strapped herself in for another stunt. She poured some skilled milk into a yarn closet. She piggieback rided a young oinker into a pond, hogging it all to herself. But nothing could prepare anyone for the good grief Anne would dish out next.
+Griefly, it took all of Anne's courage to muster lasting a month after the emininent liniment cake incident. Its not that she didn't outlast the many other crazy incidents she caused, but it was only a matter of time before Anne strapped herself in for another stunt. She poured some skilled milk into a yarn closet. She piggieback rided a young oinker into a pond, hogging it all to herself. Anne practically dolled out affairs and incidents she was one of the most turned to fantasy of high school drama clubs across Canndania. But nothing could prepare anyone for the good grief Anne would dish out next.
 
 Exactly one week after the famous tiddly manse widdly tea time incident, Diana Barry, the rest of the bears and the girls had a party. "Small and select," Anne told Marilla Plebb, "only all the girls in our class and their mild mannered servants are allowed."
 
-They all sat chummly picking at eachother's hair, and nothing happened until they went to the Barry berry beer garden. They decided to Cun their wits on a truth or dare. All the kids were doing it. Dares were the new hotness and some like it hot.
+They all sat chummly picking at eachother's hair, and nothing happened until they went to the Barry berry beer garden. They decided to cun their wits on a truth or dare. All the kids were doing it. Dares were the new hotness and some like it hot.
 
-Carrie Dallone dared the bright Ruby Gills to dance a foxtrot around a pile of green caterpillars. Josie Pie dared Plain Jane to stomp around the house a few times on one leg without squenching a lurge. Obviously impossible, she cried in defeat. Around that time Anne knew these dares were reaching a new peak of lame in lamesville. It was time to get heavy. With the dares.
+Carrie Dallone dared the bright Ruby Gills to dance a foxtrot around a pile of green caterpillars. Josie Pie dared Plain Jane to stomp around the house a few times on one leg without squenching a lurge. Obviously impossible, she cried in defeat, purging it all over the lawn. Around that time Anne knew these dares were reaching a new peak of lame in lamesville. It was time to get heavy. With the dares.
 
 Anne narrowed her eyes. A few girls shuddered. "I dare you Josie Pie..." she pronounced very slowly, "to tight rope walk this fence." She pointed at the Barry family's pride and Joy, a dispenceful fence. Unfortunately for Anne Josie Pie was born on a fence and she slithered all over it. The girls laughed at Anne's dare because seriously this was not getting heavy with the dares.
 

@@ -1,3 +1,10 @@
+Ch5. Om works and takes up cruise. He argues with his dad on coming back. His job calls him in for lack of attention to detail. Om can't admit his heart is not in his work, but thinks about the fancy hipster barbers, the coffee shop lackeys and the freelance graphic designers, so he holds back on quitting.
+
+
+
+
+
+
 We hibernated in this city. I felt lazy and slow, floating from coffee shop to sushi shop day in and day out. Renee called me often whining she'd rather stay in than go out. I read a few novels quietly soaking in imaginary lives.
 
 So I welcomed the frequent concerts Selina and I tagged along too. Usually we'd head to Headless Burritos afterwards ordering tightly tin foiled pockets of cheese and beans. A weak white pillar to devour. Usually many people after a concert heavily patted each other on our backs and heads on our bands and where we're set to go. This was basically heavy petting.

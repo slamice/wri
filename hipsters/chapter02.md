@@ -1,3 +1,12 @@
+Ch2. We next see his personal life. He's at a dance party with his "friends". He hates the atmosphere but goes anyway. His "friends" ditch him but he stays, holding out. We learn about the hipster atmosphere. His other friend takes him to a party with a possible proposition to get out of the city. He's ambivalent in general but excited and decides to aim for it.
+
+
+
+
+
+
+
+
 Something in the air was broken. Cars swept by and cats snarled. The area was deep with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple its worth. There was a skylight though, so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
 
 "Guitar lessons? Dance space rental? Warm bodies? Call us."
@@ -161,7 +170,7 @@ He ignored me briefly, but then breathed out without looking at me "about half a
 
 "Yea I know what you mean." When I really didn't.
 
-"It's getting pretty late. This city never sleeps but everyone is always tired." He smiled at himself profoundly.
+"It's getting pretty late." He sulked, then altogether smiled at himself profoundly.
 
 "I've been tired before I even got to this city." I chuckle truthfully, but it was impossible to know if he's listening. He didn't look at me yet or ever again and left it at that. He walked away straight faced, taking his bloodshot eyes with him. I mulled that over in my head, and I only heard silence above the muttering people and the droning music.
 
