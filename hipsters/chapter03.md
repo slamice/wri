@@ -1,10 +1,22 @@
-Ch3. Time drags on. He shuffles his feet, wondering how he got here. He recalls his family, how his mother hated Lebanon and how his father loved it. Also how his brothers were there. Then they sent him happily overseas. The feeling he gets when he arrives at college is freedom, and he begins drinking. He meets Ryan in his dorm.
+Ch3. Time drags on. He shuffles his feet, wondering how he got here. He recalls his family, how his mother hated Lebanon and how his father loved it. Also how his brothers were there. Then moved him happily overseas. The feeling he gets when he arrives at college is freedom, and he begins drinking. He meets Ryan in his dorm.
 
 Om feels disengaged and tired. The point of the chapter is to show how Om has widdled down. Apart from band practice and work, he stays home. He goes to bed earlier but wakes up the same time everyday. He hates thinking about the past but does it anyway. He remembers his silent parents. He recalls how much he hated highschool. He feels lonely. Selina is in the area and he meets up with her once. Coffee cup scene.
 
+------------
 
 
 
+
+The weather sucked. On what exactly wasn't important. There's a whole hidden season people choose to ignore. Its' heavy with musk and wet and dreary. Routines become slogs and everyone feels it. My energy drained, my ambitions shot then. Often around times that I wondered if there was a tear in me. Usually the pain of it disappeared and I could feel like a normal person. around the is season though it howled, mostly in the mornings. It stung and I'd feel the gash all around me, bleeding into the world.
+
+
+
+
+We lived in Lebanon until my mom couldn't take it anymore. The traffic, the noise, the exhaust. Sometimes I thought my mother's eyebrow was permanently raised, disavowing all belief in pure chaos. The country didn't feel like it functioned, but moved like a wheel moves. Because it had to.
+
+until we moved to Hoboken. My brother, sister and I sighed relief into a vacant apartment. We
+
+My father's ear was glued to the phone. During an argument, during the seven day war, during a meal, in bed, even now. The phone was in his pocket twisted and insulted from all the shouting it endured.
 
 
 ------------
