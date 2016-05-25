@@ -1,4 +1,4 @@
-Chapterly 15, Drunk on Tea
+Chapterly 15, Imagine. Drunk on Tea.
 
 "What a splendid day!" said Anne, drawing a long heaving breath. "Isn't it good just to be alive on a day like this? I pity the unborn people for missing it. They may have good nonexistent days, of course, but this one, damn. I's all ours! It just gets splendider and splendider."
 
@@ -8,7 +8,7 @@ Since Canadians overfeed their geese, the school girls had to ration their food 
 
 Anne and her butty whiskered through Bum Lane, Violet's Quesy and Ottenbacher's Pale Bare Road. SO much more satisfying then going down main street, a mild street for the mains of wherever they lived exactly.
 
-Bum Lane parted into two different firm round roads, one that ended at the Cutthroat's doorstep. Anne called is Lover's lane because it had more bushes to hid behind to do nasty things. She named it months before she even got to the Gables.
+Bum Lane parted into two different firm round roads, one that ended at the Cutthroat's doorstep. Anne called it Lover's lane because it had more bushes to hid behind to do nasty things. She named it months before she even got to the Gables.
 
 "I like that lane. You can think out loud without people calling you crazy." It stopped no one.
 
@@ -22,56 +22,29 @@ Flowers and blossoms gleamed and beamed at each other. The area was so thick wit
 
 Marilla shuddered just thinking about Anne in school. Marilla kanew all the complaints. Anne talked too much. Anne was privy with disrespect. Anne kind of looked like Archie Andrews. Anne drank from the teapot spouts. Anne brandished an assault rifle. The list went on and on like a recipe for a King Henry dinner.
 
-"I think I'm going to like school here, there's so much drama." Anne announced, dancing around the room in an unruly foxtrot. "The headmaster is flirting with Prissy Girl. Tile Boulder told the ruby gills fish girl that Prissy is going to Queen's college soon. But headmaster Blurburson would no sooner die. He went in to the outhouse and afterwards we saw markings etched all over. 'I love you, you are the Prissiest girl I know.' and 'I'm gafawked by your extra curricular talents.'"
+"I think I'm going to like school here, there's so much drama." Anne announced, dancing around the room in an unruly foxtrot. "The headmaster is flirting with Prissy Girl. Tile Boulder told the ruby gills fish girl that Prissy is going to Queen's college soon. But headmaster Blurburson would no sooner die. He went in to the outhouse and afterwards we saw markings etched all over. 'I love you, you are the Prissiest.' and 'I'm gafawked by your extra curricular talents.'"
 
+Marilla's face smudged "Don't talk about the school principal that way Anne. Whether he's perverting or curmudgeoning it's none of your business."
 
+"Diana and I sit together strategically in the middle of al the students. To our left flank is the window bearing shining water lake. The school girls are interesting creatures Marilla. Their imaginations are daft and not up to imagination snuff. And Mr. Philips, Oh! He is the rudest prudest man. His imagination is disgustingly tame. Like a dog, whimpering like a pathetic thought bubble. Imagine that!" a pause, and then "IRONIC!" an eccentric Anne screamed.
 
+"It wasn't as hard as _you'd_ imagine! I'll school them there. At the school!"
 
+Three weeks went by and more of the same. On a crisp September morning Diana and Anne trogged down the aforementioned paths. "Gilbert godfried is coming back, I saw it on facebook." Diana smiled a guile of a smile. Maybe Godfriend was a charmer, and perhaps we'll see more of this Godly friend than we could ever imagine. "I heard he does multiplications using freckles."
+
+"Outdated!" Anne shouted. "I saw his name on the take notice wall at the school by the furniture ads. Take notice. Boy. A friendly god boy. I barely noticed it!" As Anne ripped through Cattails and violet stalks with a machette.
+
+"Those notices are nothing. Girls and boys like each other so they write them up on the board." Diana remembered her name written in cursive once, and she blushed on top of a blush. "You'll be written up as being smart soon enough, by Charlie Sloane. He told his mom about you, and you know what that means. His mom knows."
+
+Anne, Feminine to the very core, feminized. "He should print my name like a Warhol piece. He's got goggle eyes. What does that even look like!"
+
+"Gilbert's been away ever since his whole family got sick of New Brunswick. The lobsters done almost done them in. He's ill read now. Not much better than Gertie Pie or any of her other half baked brothers and sisters"
+
+Later, in class, while Latin was boring the children, Diana signaled to Anne where the God son sat. He was across from here, a no good nick at night, tying the girl in front of him's pony tail into a makeshift pulley system. He was tall, at least the length of an arm stretch and a half in Canadian meters, hair a brawny brown, and a twisted smile mouth like a decomposing jack o lantern's mouth.
+
+Later in the afternoon drama came like a steamroller, the slapstick spouts flowed heavily now.
 
 -------------------------------------------------
-
-
-"I think I'm going to like school here," she announced. "I don't think much of the master, through. He's all the time curling his mustache and making eyes at Prissy Andrews. Prissy is grown up, you know. She's sixteen and she's studying for the entrance examination into Queen's Academy at Charlottetown next year. Tillie Boulter says the master is dead gone on her. She's got a beautiful complexion and curly brown hair and she does it up so elegantly. She sits in the long seat at the back and he sits there, too, most of the time--to explain her lessons, he says. But Ruby Gillis says she saw him writing something on her slate and when Prissy read it she blushed as red as a beet and giggled; and Ruby Gillis says she doesn't believe it had anything to do with the lesson."
-
-"Anne Shirley, don't let me hear you talking about your teacher in that way again," said Marilla sharply. "You don't go to school to criticize the master. I guess he can teach you something, and it's your business to learn. And I want you to understand right off that you are not to come home telling tales about him. That is something I won't encourage. I hope you were a good girl."
-
-"Indeed I was," said Anne comfortably. "It wasn't so hard as you might imagine, either. I sit with Diana. Our seat is right by the window and we can look down to the Lake of Shining Waters. There are a lot of nice girls in school and we had scrumptious fun playing at dinnertime. It's so nice to have a lot of little girls to play with. But of course I like Diana best and always will. I adore Diana. I'm dreadfully far behind the others. They're all in the fifth book and I'm only in the fourth. I feel that it's kind of a disgrace. But there's not one of them has such an imagination as I have and I soon found that out. We had reading and geography and Canadian history and dictation today. Mr. Phillips said my spelling was disgraceful and he held up my slate so that everybody could see it, all marked over. I felt so mortified, Marilla; he might have been politer to a stranger, I think. Ruby Gillis gave me an apple and Sophia Sloane lent me a lovely pink card with `May I see you home?' on it. I'm to give it back to her tomorrow. And Tillie Boulter let me wear her bead ring all the afternoon. Can I have some of those pearl beads off the old pincushion in the garret to make myself a ring? And oh, Marilla, Jane Andrews told me that Minnie MacPherson told her that she heard Prissy Andrews tell Sara Gillis that I had a very pretty nose. Marilla, that is the first compliment I have ever had in my life and you can't imagine what a strange feeling it gave me. Marilla, have I really a pretty nose? I know you'll tell me the truth."
-
-"Your nose is well enough," said Marilla shortly. Secretly she thought Anne's nose was a remarkable pretty one; but she had no intention of telling her so.
-
-That was three weeks ago and all had gone smoothly so far. And now, this crisp September morning, Anne and Diana were tripping blithely down the Birch Path, two of the happiest little girls in Avonlea.
-
-"I guess Gilbert Blythe will be in school today," said Diana. "He's been visiting his cousins over in New Brunswick all summer and he only came home Saturday night. He's aw'fly handsome, Anne. And he teases the girls something terrible. He just torments our lives out."
-
-Diana's voice indicated that she rather liked having her life tormented out than not.
-
-"Gilbert Blythe?" said Anne. "Isn't his name that's written up on the porch wall with Julia Bell's and a big `Take Notice' over them?"
-
-"Yes," said Diana, tossing her head, "but I'm sure he doesn't like Julia Bell so very much. I've heard him say he studied the multiplication table by her freckles."
-
-"Oh, don't speak about freckles to me," implored Anne. "It isn't delicate when I've got so many. But I do think that writing take-notices up on the wall about the boys and girls is the silliest ever. I should just like to see anybody dare to write my name up with a boy's. Not, of course," she hastened to add, "that anybody would."
-
-Anne sighed. She didn't want her name written up. But it was a little humiliating to know that there was no danger of it.
-
-"Nonsense," said Diana, whose black eyes and glossy tresses had played such havoc with the hearts of Avonlea schoolboys that her name figured on the porch walls in half a dozen take-notices. "It's only meant as a joke. And don't you be too sure your name won't ever be written up. Charlie Sloane is dead gone on you. He told his mother--his mother, mind you--that you were the smartest girl in school. That's better than being good looking."
-
-"No, it isn't," said Anne, feminine to the core. "I'd rather be pretty than clever. And I hate Charlie Sloane, I can't bear a boy with goggle eyes. If anyone wrote my name up with his I'd never get over it, Diana Barry. But it is nice to keep head of your class."
-
-"You'll have Gilbert in your class after this," said Diana, "and he's used to being head of his class, I can tell you. He's only in the fourth book although he's nearly fourteen. Four years ago his father was sick and had to go out to Alberta for his health and Gilbert went with him. They were there three years and Gil didn't go to school hardly any until they came back. You won't find it so easy to keep head after this, Anne."
-
-"I'm glad," said Anne quickly. "I couldn't really feel proud of keeping head of little boys and girls of just nine or ten. I got up yesterday spelling `ebullition.' Josie Pye was head and, mind you, she peeped in her book. Mr. Phillips didn't see her--he was looking at Prissy Andrews--but I did. I just swept her a look of freezing scorn and she got as red as a beet and spelled it wrong after all."
-
-"Those Pye girls are cheats all round," said Diana indignantly, as they climbed the fence of the main road. "Gertie Pye actually went and put her milk bottle in my place in the brook yesterday. Did you ever? I don't speak to her now."
-
-When Mr. Phillips was in the back of the room hearing Prissy Andrews's Latin, Diana whispered to Anne,
-
-"That's Gilbert Blythe sitting right across the aisle from you, Anne. Just look at him and see if you don't think he's handsome."
-
-Anne looked accordingly. She had a good chance to do so, for the said Gilbert Blythe was absorbed in stealthily pinning the long yellow braid of Ruby Gillis, who sat in front of him, to the back of her seat. He was a tall boy, with curly brown hair, roguish hazel eyes, and a mouth twisted into a teasing smile. Presently Ruby Gillis started up to take a sum to the master; she fell back into her seat with a little shriek, believing that her hair was pulled out by the roots. Everybody looked at her and Mr. Phillips glared so sternly that Ruby began to cry. Gilbert had whisked the pin out of sight and was studying his history with the soberest face in the world; but when the commotion subsided he looked at Anne and winked with inexpressible drollery.
-
-"I think your Gilbert Blythe is handsome," confided Anne to Diana, "but I think he's very bold. It isn't good manners to wink at a strange girl."
-
-But it was not until the afternoon that things really began to happen.
 
 Mr. Phillips was back in the corner explaining a problem in algebra to Prissy Andrews and the rest of the scholars were doing pretty much as they pleased eating green apples, whispering, drawing pictures on their slates, and driving crickets harnessed to strings, up and down aisle. Gilbert Blythe was trying to make Anne Shirley look at him and failing utterly, because Anne was at that moment totally oblivious not only to the very existence of Gilbert Blythe, but of every other scholar in Avonlea school itself. With her chin propped on her hands and her eyes fixed on the blue glimpse of the Lake of Shining Waters that the west window afforded, she was far away in a gorgeous dreamland hearing and seeing nothing save her own wonderful visions.
 
