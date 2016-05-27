@@ -32,8 +32,6 @@ Samir sighed. He wondered what kind of bizarre twilight zone he was in. Maybe he
 
 The train threw time behind it as it continued in the only direction it knew. It shooped and whooped down its runway in a hurry. The train conductor's voice grew harder and harder to understand. Samir began to give up when it announced "Cowcaddens" and "Ibrox". The doors flew open and closed, and the singles and families grew paler and paler. The Spanish family remained on the train, shuffling. The African American lady sat in the corner, reading a paper that somehow materialized out of her bag just a moment ago.
 
-
-
 Eventually the tunnel lights grew lighter. Samir slumped as they flushed down deeper into the earth. They emerged out a tunnel, once again cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds suspiciously clear, and a low solemn voice pronounced "Valcarca" in a familiar accent. The spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
 
 A small black haired kid sat next to Samir as his mother stood in front of him. Samir glanced out the window as the train started moving, lost twice as hard. The kid held out a flat aluminum papered stick between his fingers. "¿Chicle?" he offered. Hismom glanced at both of them and smiled.
@@ -48,9 +46,43 @@ A small black haired kid sat next to Samir as his mother stood in front of him. 
 
 "English? You say English?" Samir said hopefully.
 
-"Ah, siento. No Inglés" Her face puckered a sad smile. Her son looked out the window and Samir did a thank you head bow.
+"Ah, siento. No Inglés" Her face puckered a sad smile. Her son looked out the window and Samir nodded out two thank yous. They sped down the bright fluorescent grey tunnel. Samir thought it half heartedly, and this far in the train was still in on its joke but not laughing as much.
 
-They sped down the bright fluorescent grey tunnel.
+
+
+
+As the people rolled on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
+
+He knocked on the door once, harder again, but there were no results. The dark glass on the door looked back at him, pitying. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice. He felt a bit like a ghost but without the haunting. He felt like a failed ghost.
+
+It must have been a good five hours since he got on. Since then he hopped through all the train cars, memorizing their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He was tired of ducking by children, squeezing by, but mostly of sighing. Samir went back to the original car he was on. He was heavily distracted with disappointment and confusion, but sleep took over him. He began to drift off to the rhythm of the car shaking as it ran on the tracks.
+
+In another hour the train quieted down a bit more. The crowds began thinned out finally.
+
+Was it four, five in the morning? When Samir opened his eyes it was just him and who he recognized earlier, the older African American lady with her big hat. They ended up all alone, speeding down yet another dark corridor. Samir walked toward her hopefully, wondering with a heavy heart if she knew where they were headed. She noticed him lazily and pushed up her lips and then dropped them. Then again with the lip judgement.
+
+"Excuse me?" Samir intended it shyly but it came out perverse. "Where is here?"
+
+"We on the train honey." She said bluntly. He was about to ask again but she charged "ON. THE. TRAIN."
+
+"Yes, ok. On train. But where?"
+
+"You asking me? Why you asking me?"
+
+"Where do we go?"
+
+"It's ok, we goan hawm." She was quickly losing interest, her eyelids grew heavier and glanced back at her papers.
+
+"It is not ok." Samir began to get angry at how cold she seemed to him, but then he couldn't tell if it was New York or him or her. The lady didn't budge but then looked straight at him.
+
+"Wha you mean?"
+
+"Why it is ok? We go far. It's not ok. Where do you go?"
+
+"No one forcing you to stay here. You can get off anytime."
+
+
+
 
 ----
 
@@ -79,40 +111,16 @@ Glass doors opened outside of the train doors and people quickly erupted in by t
 
 "لو سمحت نحن فين؟" Samir said smiling at the new man.
 
-"Ah sorry sorry, don't speak. Sorry." He put his hand on his chest and smiled.
+"Ah sorry sorry, don't speak Arabic. Sorry." He put his hand on his chest and smiled.
 
 "It is... Ok." Samir sighed inside.
 
 "You are from Dubai?" The first man asked.
 
+"No."
+
 ------
 
-It must have been a good five hours he worried. He got sick of the doors opening and closing. He got tired of all the people going in and out.
-
-They ended up all alone, speeding down yet another dark corridor. Samir walked toward her hopefully, wondering with a heavy heart if she knew where they were headed. She noticed him lazily and pushed up her lips and then dropped them bored.
-
-"Excuse me?" Samir intended it shyly but it came out perverse. "Where is here?"
-
-"We on the train honey." She said bluntly. He was about to ask again but she charged "ON. THE. TRAIN."
-
-"Yes, ok. On the train. But where?"
-
-"You asking me? Why you asking me?"
-
-"Where do we go?"
-
-"We going home." She was quickly losing interest, her eyelids grew heavier and glanced back at her papers.
-
-"It is not ok." Samir began to get angry at how cold she seemed to him, but then he couldn't tell if it was New York or him or her. The lady didn't budge but then looked straight at him.
-
-"Wha you mean?"
-
-"Why it is ok? We go far. It's not ok. Where do you go?"
-
-
-
-
-"No one forcing you to stay here. You can get off anytime"
 
 ------
 
