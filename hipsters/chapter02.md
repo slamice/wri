@@ -7,33 +7,33 @@ Ch2. We next see his personal life. He's at a dance party with his "friends". He
 
 
 
-Something in the air was broken. Cars swept by and cats snarled. The area was deep with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple its worth. There was a skylight though, so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
+The next night, I needed to go out. Something in the air was broken. Cars swept by and cats snarled. The area was deep with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple the apartment's worth. The door stuck often but there was a skylight so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
 
 "Guitar lessons? Dance space rental? Warm bodies? Call us."
 
-It was pretty obvious this venue, nicknamed 'The Woods', wasn't going to last much longer than eight or so months. Three thousands of dollars of rent per 30 days was high budgeted even for the 6 renters, especially when the only real job any of them held was barely. At the end of each month they worried, sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
+It was pretty obvious 'The Woods' wasn't going to last much longer than eight or so months. Three thousands of dollars of rent every 30 days was high budgeted even for the 6 renters, especially when the only real job any of them held was barely. At the end of each month they worried, sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
 
-Then there were parties. Then there was us. Stuffed up against the brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon.
+So then there were parties. And then there was us. Shoved up against the outside brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon.
 
-"You think Matt'll come?" I asked.
+"You think Matt'll come?" Jack asked.
 
 "Which Matt, what are you talking about?" Ryan said, half laughing.
 
 "The guy, Matt, in the band."
 
-"Band guy? Yea he's coming."
+"Band guy? Yea he's coming." I said.
 
 Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blankly at both of them.
 
 "Hey man can I have one?" Ryan asked.
 
-"You *just* had one."
+"You *just* had one." Jack muttered with a cigarette in his mouth.
 
 "So did you..."
 
 "But these are mine? Come on obviously you had a lot."
 
-"But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became pronounced.
+"But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became more pronounced.
 
 "Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan kept it and took the cigarette.
 

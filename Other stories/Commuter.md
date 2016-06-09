@@ -79,7 +79,7 @@ Was it four, five in the morning? When Samir opened his eyes it was just him and
 
 "Why it is ok? We go far. It's not ok. Where do you go?"
 
-"No one forcing you to stay here. You can get off anytime."
+"No one forcing you ta stay here. You can ge' off anytime."
 
 
 
