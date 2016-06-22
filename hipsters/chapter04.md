@@ -94,10 +94,10 @@ After about twenty minutes of this, I signaled to Renee I was leaving. She waved
 
 "He's a part of my life. You have to accept that. I've known him for so long."
 
-And she tried to bring me back, "Hey! Come on! Don't worry of course I still love you. I'm with _you_ now! Come on!" Renee laughed a whisper. I made a shut up smile. We walked back slowly in silence to the limo office, the only sound Renee's inner thighs rubbing against each other wearing down her jeans.
+And she tried to bring me back, "Hey! Come on! Don't worry of course I still love you. I'm with _you_ now! Come on!" I made a shut up smile. We walked back slowly in silence to the limo office, the only sound were Renee's inner thighs rubbing against each other wearing down her jeans.
 
 The receptionist was there. Behind the counter was a huge grin, a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She now hobbled busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone 3000km away. It stuck in her pride from then on, adding more weight. She gave me the mail in a heap. "Read 'em and weep!" She laughed hard. I picked through the letters. Renee took her phone bill and some sales flyers unabashed.
 
-It had been a week, no notices. The government shrugged and said nothing. They weren't thinking of me, they didn't miss me.
+Another week, no notices. The government shrugged and said nothing. They weren't thinking of me, they didn't miss me.
 
 We opened the apartment door and Renee's cat hurled puddles of hiss and screams in our faces.

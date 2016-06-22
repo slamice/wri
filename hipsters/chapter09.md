@@ -1,15 +1,12 @@
-Ch9. Warning at the job.
+Ch9.
 
+My body fought me and woke up. Ten, twenty or thirty minutes of sleep didn't seem to matter to it anymore. It humiliated me.
 
----------
+I whined back. I didn't want to go to work. I didn't want to work. Was I just bad at it or did I hate my job? I wasn't sure. The sun poked me. The day was bright and cheery and yet profoundly and beautifully mundane.
 
+Anything eaten too early in the morning I gagged on. Apples, oranges, toast. The only thing that stayed down were latte's.
 
-
-My body fought me and woke up. Ten, twenty or thirty minutes of sleep didn't seem to matter to it anymore. I was full with worry, neglect and humiliation.
-
-
-
-I didn't want to go to work, I whined back. I didn't want to work. Was I just bad at it or did I hate my job.
+It was a slow slog and schlog. I don't remember much that day,
 
 
 ---------

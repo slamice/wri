@@ -17,7 +17,7 @@ One night after a noise rock show Selina and I sat silently watching people revo
 
 A mop of curly hair and tattered clothes brought in her bike and ordered two smoked tofu burrits. Two people behind us smacked their food and conversation. One tried to explain how girls were attracted to tighter clothes, specifically sweaters. The other sputtered "fricking ay, man, fricking ay." between sentences.
 
-My food finally arrived humbly and I ate it mindlessly.
+My food finally arrived, humbly placed before me by a tattoo sleeve. It went down mindlessly.
 
 "What are we doing Selina?" I looked at her. She stared back at me like a smiling ghost, as pale as one. Her glasses were huge.
 
@@ -26,6 +26,17 @@ My food finally arrived humbly and I ate it mindlessly.
 "We need to go on that tour. It's no joke. We need that tour. Even if we only travelled a week... I'd take it."
 
 "It'd be longer than that anyway. They're going to P_______, have you ever been there? I haven't been anywhere really."
+
+
+
+
+
+
+
+
+
+
+
 
 
 
