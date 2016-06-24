@@ -20,3 +20,8 @@ We went there at 11am, and of course it was crowded because everyone woke up at 
 My phone hummed my Dad, and I sluggishly floundered to pick it up.
 
 "Yea Dad?"
+
+
+
+I didn't find it necessary
+to take responsibility

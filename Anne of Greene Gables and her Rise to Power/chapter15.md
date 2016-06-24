@@ -40,103 +40,45 @@ Anne, Feminine to the very core, feminized. "He should print my name like a Warh
 
 "Gilbert's been away ever since his whole family got sick of New Brunswick. The lobsters done almost done them in. He's ill read now. Not much better than Gertie Pie or any of her other half baked brothers and sisters"
 
-Later, in class, while Latin was boring the children, Diana signaled to Anne where the God son sat. He was across from here, a no good nick at night, tying the girl in front of him's pony tail into a makeshift pulley system. He was tall, at least the length of an arm stretch and a half in Canadian meters, hair a brawny brown, and a twisted smile mouth like a decomposing jack o lantern's mouth.
+Later, in class, while Latin was boring the children, Diana signaled to Anne where the God son sat. He was across from here, a no good nick at night, tying the girl in front of him's pony tail into a makeshift pulley system. He was tall, at least the length of two arm stretches and a half in Canadian meters, hair a brawny brown, and a twisted smile mouth like a decomposing jack o lantern's mouth.
 
-Later in the afternoon drama came like a steamroller, the slapstick spouts flowed heavily now.
+Suddenly, the slapstick spouts were turned on and flowed heavily.
+
+While Anne dreamt in a few dazes about conquering avoveloa or whatever, she was suddenly jolted awake with Gilbert Godfried whispering in a high pitched yelling voice trying to distract her "carrots! carrots!" He said with his annoying face.
+
+Anne looked at him with vengence! "I hate carrots!" she yelled at the top of her lungs. She slammed her slate down onto Gilbert's head and cracked both, the slate and the head, in two.
+
+Oh man, Mr. Philips was closing in on them both, Latin slurs authoratatively spewing every which way.
+
+"What the dickens is dicking around over here?" Mr. philips eyes darted every which way looking for an explanation. Godfried, his high pitched moaning overtly audible, a head where the top was now a crown of blood, moaned annoyingly.
+
+Typically Anne prefered physical punishment punches. But Mr. Philips had a mind didn't work that way, and since he had to save both his arms for flirting, marched Anne to the corner to suffer humiliation.
+
+"I shall never forgive Gilbert Blythe," said Anne gerfumpled, walking home with Diana. "And Mr. Phillips spelled my name without an e, too. The iron has entered into my soul, Diana."
+
+For further humiliation, Anne was sat next to the piercing shrill boy. "Sit next to him." Mr. philips shouted, "The finest buddy of the lord, Gilbert Godfriend".
+
+"Obey me at once." he yelled again.
+
+It was bad enough to be singled out for punishment the constant guilt of simply being a child; it was worse still to be sent to sit with a boy, but that that boy should be Gilbert Blythe was heaping insult on injury to a degree utterly unbearable.
+
+But Anne didn't even care. Her whole being was so soaked with anger and humiliation, she wring out her clothes out to death on the shrilly squaking staring Godfried.
+
+At the end of the day Anne packed up all her quills and sharpeners, parephenalia and mess of junk.
+
+"Where are you taking all of your stuff?" moaned Diana.
+
+"Diana, I'm never coming back here."
+
+"For good? leaving school forever? leaving me?" Diana's eyes trembled. A jet of tears was ready to be shot out and spray all over Anne's petticoat.
+
+"I am not coming back to school any more," said Anne. "I'd do almost anything in the world for you, Diana," said Anne sadly. "I'd let myself be torn limb from limb if it would do you any good. But I can't do this, so please don't ask it. You harrow up my very soul."
+
+"But we're going to play ball next week! You've never even seen a ball."
+
+"Nor do I care how to play it. Ball."
 
 -------------------------------------------------
-
-Mr. Phillips was back in the corner explaining a problem in algebra to Prissy Andrews and the rest of the scholars were doing pretty much as they pleased eating green apples, whispering, drawing pictures on their slates, and driving crickets harnessed to strings, up and down aisle. Gilbert Blythe was trying to make Anne Shirley look at him and failing utterly, because Anne was at that moment totally oblivious not only to the very existence of Gilbert Blythe, but of every other scholar in Avonlea school itself. With her chin propped on her hands and her eyes fixed on the blue glimpse of the Lake of Shining Waters that the west window afforded, she was far away in a gorgeous dreamland hearing and seeing nothing save her own wonderful visions.
-
-Gilbert Blythe wasn't used to putting himself out to make a girl look at him and meeting with failure. She should look at him, that red-haired Shirley girl with the little pointed chin and the big eyes that weren't like the eyes of any other girl in Avonlea school.
-
-Gilbert reached across the aisle, picked up the end of Anne's long red braid, held it out at arm's length and said in a piercing whisper:
-
-"Carrots! Carrots!"
-
-Then Anne looked at him with a vengeance!
-
-She did more than look. She sprang to her feet, her bright fancies fallen into cureless ruin. She flashed one indignant glance at Gilbert from eyes whose angry sparkle was swiftly quenched in equally angry tears.
-
-"You mean, hateful boy!" she exclaimed passionately. "How dare you!"
-
-And then--thwack! Anne had brought her slate down on Gilbert's head and cracked it--slate not head--clear across.
-
-Avonlea school always enjoyed a scene. This was an especially enjoyable one. Everybody said "Oh" in horrified delight. Diana gasped. Ruby Gillis, who was inclined to be hysterical, began to cry. Tommy Sloane let his team of crickets escape him altogether while he stared open-mouthed at the tableau.
-
-Mr. Phillips stalked down the aisle and laid his hand heavily on Anne's shoulder.
-
-"Anne Shirley, what does this mean?" he said angrily. Anne returned no answer. It was asking too much of flesh and blood to expect her to tell before the whole school that she had been called "carrots." Gilbert it was who spoke up stoutly.
-
-"It was my fault Mr. Phillips. I teased her."
-
-Mr. Phillips paid no heed to Gilbert.
-
-"I am sorry to see a pupil of mine displaying such a temper and such a vindictive spirit," he said in a solemn tone, as if the mere fact of being a pupil of his ought to root out all evil passions from the hearts of small imperfect mortals. "Anne, go and stand on the platform in front of the blackboard for the rest of the afternoon."
-
-Anne would have infinitely preferred a whipping to this punishment under which her sensitive spirit quivered as from a whiplash. With a white, set face she obeyed. Mr. Phillips took a chalk crayon and wrote on the blackboard above her head.
-
-"Ann Shirley has a very bad temper. Ann Shirley must learn to control her temper," and then read it out loud so that even the primer class, who couldn't read writing, should understand it.
-
-Anne stood there the rest of the afternoon with that legend above her. She did not cry or hang her head. Anger was still too hot in her heart for that and it sustained her amid all her agony of humiliation. With resentful eyes and passion-red cheeks she confronted alike Diana's sympathetic gaze and Charlie Sloane's indignant nods and Josie Pye's malicious smiles. As for Gilbert Blythe, she would not even look at him. She would never look at him again! She would never speak to him!!
-
-When school was dismissed Anne marched out with her red head held high. Gilbert Blythe tried to intercept her at the porch door.
-
-"I'm awfully sorry I made fun of your hair, Anne," he whispered contritely. "Honest I am. Don't be mad for keeps, now"
-
-Anne swept by disdainfully, without look or sign of hearing. "Oh how could you, Anne?" breathed Diana as they went down the road half reproachfully, half admiringly. Diana felt that she could never have resisted Gilbert's plea.
-
-"I shall never forgive Gilbert Blythe," said Anne firmly. "And Mr. Phillips spelled my name without an e, too. The iron has entered into my soul, Diana."
-
-Diana hadn't the least idea what Anne meant but she understood it was something terrible.
-
-"You mustn't mind Gilbert making fun of your hair," she said soothingly. "Why, he makes fun of all the girls. He laughs at mine because it's so black. He's called me a crow a dozen times; and I never heard him apologize for anything before, either."
-
-"There's a great deal of difference between being called a crow and being called carrots," said Anne with dignity. "Gilbert Blythe has hurt my feelings excruciatingly, Diana."
-
-It is possible the matter might have blown over without more excruciation if nothing else had happened. But when things begin to happen they are apt to keep on.
-
-Avonlea scholars often spent noon hour picking gum in Mr. Bell's spruce grove over the hill and across his big pasture field. From there they could keep an eye on Eben Wright's house, where the master boarded. When they saw Mr. Phillips emerging therefrom they ran for the schoolhouse; but the distance being about three times longer than Mr. Wright's lane they were very apt to arrive there, breathless and gasping, some three minutes too late.
-
-On the following day Mr. Phillips was seized with one of his spasmodic fits of reform and announced before going home to dinner, that he should expect to find all the scholars in their seats when he returned. Anyone who came in late would be punished.
-
-All the boys and some of the girls went to Mr. Bell's spruce grove as usual, fully intending to stay only long enough to "pick a chew." But spruce groves are seductive and yellow nuts of gum beguiling; they picked and loitered and strayed; and as usual the first thing that recalled them to a sense of the flight of time was Jimmy Glover shouting from the top of a patriarchal old spruce "Master's coming."
-
-The girls who were on the ground, started first and managed to reach the schoolhouse in time but without a second to spare. The boys, who had to wriggle hastily down from the trees, were later; and Anne, who had not been picking gum at all but was wandering happily in the far end of the grove, waist deep among the bracken, singing softly to herself, with a wreath of rice lilies on her hair as if she were some wild divinity of the shadowy places, was latest of all. Anne could run like a deer, however; run she did with the impish result that she overtook the boys at the door and was swept into the schoolhouse among them just as Mr. Phillips was in the act of hanging up his hat.
-
-Mr. Phillips's brief reforming energy was over; he didn't want the bother of punishing a dozen pupils; but it was necessary to do something to save his word, so he looked about for a scapegoat and found it in Anne, who had dropped into her seat, gasping for breath, with a forgotten lily wreath hanging askew over one ear and giving her a particularly rakish and disheveled appearance.
-
-"Anne Shirley, since you seem to be so fond of the boys' company we shall indulge your taste for it this afternoon," he said sarcastically. "Take those flowers out of your hair and sit with Gilbert Blythe."
-
-The other boys snickered. Diana, turning pale with pity, plucked the wreath from Anne's hair and squeezed her hand. Anne stared at the master as if turned to stone.
-
-"Did you hear what I said, Anne?" queried Mr. Phillips sternly.
-
-"Yes, sir," said Anne slowly "but I didn't suppose you really meant it."
-
-"I assure you I did"--still with the sarcastic inflection which all the children, and Anne especially, hated. It flicked on the raw. "Obey me at once."
-
-For a moment Anne looked as if she meant to disobey. Then, realizing that there was no help for it, she rose haughtily, stepped across the aisle, sat down beside Gilbert Blythe, and buried her face in her arms on the desk. Ruby Gillis, who got a glimpse of it as it went down, told the others going home from school that she'd "acksually never seen anything like it--it was so white, with awful little red spots in it."
-
-To Anne, this was as the end of all things. It was bad enough to be singled out for punishment from among a dozen equally guilty ones; it was worse still to be sent to sit with a boy, but that that boy should be Gilbert Blythe was heaping insult on injury to a degree utterly unbearable. Anne felt that she could not bear it and it would be of no use to try. Her whole being seethed with shame and anger and humiliation.
-
-At first the other scholars looked and whispered and giggled and nudged. But as Anne never lifted her head and as Gilbert worked fractions as if his whole soul was absorbed in them and them only, they soon returned to their own tasks and Anne was forgotten. When Mr. Phillips called the history class out Anne should have gone, but Anne did not move, and Mr. Phillips, who had been writing some verses "To Priscilla" before he called the class, was thinking about an obstinate rhyme still and never missed her. Once, when nobody was looking, Gilbert took from his desk a little pink candy heart with a gold motto on it, "You are sweet," and slipped it under the curve of Anne's arm. Whereupon Anne arose, took the pink heart gingerly between the tips of her fingers, dropped it on the floor, ground it to powder beneath her heel, and resumed her position without deigning to bestow a glance on Gilbert.
-
-When school went out Anne marched to her desk, ostentatiously took out everything therein, books and writing tablet, pen and ink, testament and arithmetic, and piled them neatly on her cracked slate.
-
-"What are you taking all those things home for, Anne?" Diana wanted to know, as soon as they were out on the road. She had not dared to ask the question before.
-
-"I am not coming back to school any more," said Anne. Diana gasped and stared at Anne to see if she meant it.
-
-"Will Marilla let you stay home?" she asked.
-
-"She'll have to," said Anne. "I'll never go to school to that man again."
-
-"Oh, Anne!" Diana looked as if she were ready to cry. "I do think you're mean. What shall I do? Mr. Phillips will make me sit with that horrid Gertie Pye--I know he will because she is sitting alone. Do come back, Anne."
-
-"I'd do almost anything in the world for you, Diana," said Anne sadly. "I'd let myself be torn limb from limb if it would do you any good. But I can't do this, so please don't ask it. You harrow up my very soul."
-
-"Just think of all the fun you will miss," mourned Diana. "We are going to build the loveliest new house down by the brook; and we'll be playing ball next week and you've never played ball, Anne. It's tremendously exciting. And we're going to learn a new song-- Jane Andrews is practicing it up now; and Alice Andrews is going to bring a new Pansy book next week and we're all going to read it out loud, chapter about, down by the brook. And you know you are so fond of reading out loud, Anne."
 
 Nothing moved Anne in the least. Her mind was made up. She would not go to school to Mr. Phillips again; she told Marilla so when she got home.
 

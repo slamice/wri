@@ -1,3 +1,10 @@
+I don't remember how many times I made a walk like that.
+
+
+---------
+
+
+
 
 I wondered if there were any lessons we could have learned from the schools we dropped out of, skipped, floated through... No one really paid any attention.
 -Life is a series of mistakes and you grade yourself at the end. Of course we were too immersed in the brutality.-
@@ -247,6 +254,10 @@ The point of the book is about utterly giving up. He hates his job, begins to ha
 It's about the descent from despair. About cornering yourself, and the consequences.
 
 
+---------------
+
+
+I tried to avoid thinking about what I needed to do. I was only good at not doing it.
 
 
 

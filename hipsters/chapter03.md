@@ -1,10 +1,10 @@
 Ch3. Time drags on. He shuffles his feet, wondering how he got here. He recalls his family, how his mother hated Lebanon and how his father loved it. Also how his brothers were there. Then moved him happily overseas. The feeling he gets when he arrives at college is freedom, and he begins drinking. He meets Ryan in his dorm.
 
-Om feels disengaged and tired. The point of the chapter is to show how Om has widdled down. Apart from band practice and work, he stays home. He goes to bed earlier but wakes up the same time everyday. He hates thinking about the past but does it anyway. He remembers his silent parents. He recalls how much he hated highschool. He feels lonely. Selina is in the area and he meets up with her once. Coffee cup scene.
+Om feels disengaged and tired. The point of the chapter is to show how Om has whittled down. Apart from band practice and work, he stays home. He goes to bed earlier but wakes up the same time everyday. He hates thinking about the past but does it anyway. He remembers his silent parents. He recalls how much he hated highschool. He feels lonely. Selina is in the area and he meets up with her once. Coffee cup scene.
 
 ------------
 
-
+Your questions are vague, but it was like any gentrified neighborhood I guess.
 
 
 The weather sucked. On what exactly wasn't important. There's a whole hidden season people choose to ignore. Its' heavy with musk and wet and dreary. Routines become slogs and everyone feels it. My energy drained, my ambitions shot then. Often around times that I wondered if there was a tear in me. Usually the pain of it disappeared and I could feel like a normal person. around the is season though it howled, mostly in the mornings. It stung and I'd feel the gash all around me, bleeding into the world.

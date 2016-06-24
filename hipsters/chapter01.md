@@ -3,11 +3,15 @@ Ch1. The book opens with a daily routine, a trudge everyone knows well to and fr
 
 
 
+My body fought me and woke up. Ten, twenty or thirty minutes of sleep didn't seem to matter to it anymore. It humiliated me. I whined back. I didn't want to go to work. I didn't want to work. Was I just bad at it or did I hate my job? I wasn't sure.
 
+The sun poked me.
 
 There were no curtains on my windows yet, but I somehow slept well into a late morning. I woke up still in a bizarre dream while Renee dozed next to me in a really thick sleep deep in a gutter. The bed springs squirmed, and as I got up slowly, they bit back audibly. I slipped off the bed, grabbing my jeans from the floor and a shirt from the rack. Renee's cat Chibi laid on a pile of our clothes looking up at me, tired and bloated. It watched me wander around the room. With its' eyes it asked me, "why are you awake, that's a pitiful thing to be."
 
-The morning met my gaze. It glared a mean hello. My button up was too big for me, like someone threw a blanket on a chair and it just sat there. I wore it anyway. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelted in a rage.
+Anything eaten too early in the morning I gagged on. Apples, oranges, toast. The only thing that stayed down were latte's.
+
+The morning met my gaze. It glared a mean hello. The day was bright and cheery and yet profoundly and beautifully mundane. My button up was too big for me, like someone threw a blanket on a chair and it just sat there. I wore it anyway. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelted in a rage.
 
 Everyday I shaved and tapped the razor handle against my hand so it would vomit out the hair. Before, Renee could hear the tapping against the sink in her dreams. It was far too loud and she hated waking up in the morning to it, tiny hair spraying against the sink so early. "No one does that, it's incessant and tiring." then she mimed an exaggerated throw down of a huge razor to the floor.
 

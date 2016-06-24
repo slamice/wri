@@ -172,8 +172,6 @@ He ignored me briefly, but then breathed out without looking at me "about half a
 
 "It's getting pretty late." He sulked, then altogether smiled at himself profoundly.
 
-"I've been tired before I even got here." I chuckle truthfully, but it was impossible to know if he was listening. He didn't look at me yet or ever again and left it at that. He walked away straight faced, taking his bloodshot eyes with him. I mulled that over in my head, and I only heard silence above the muttering people and the droning music.
+"I've been tired before I even got here." I chuckled truthfully, but it was impossible to know if he was listening. He didn't look at me yet or ever again and left it at that. He walked away straight faced, taking his bloodshot eyes with him. I mulled that over in my head, and I only heard silence above the muttering people and the droning music.
 
-So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked trucks. I don't remember how many times I made a walk like that. My hands were in my pockets, my right gripping my keys and flipping through them.
-
-I tried to avoid thinking about what I needed to do. I was only good at not doing it.
+So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked trucks. My hands were in my pockets, my right gripping my keys and flipping through them.

@@ -14,7 +14,7 @@ A very tan woman turned towards me who looked like someone I barely worked with.
 
 The ship ebbed toward the ocean, toward a few islands we were set out to discover superficially. People snapped photos and looked pretty, vacant. It wasn't awkward so much as it was limiting. Past the pineapple sandwiches and fruit rice, once the tiny paper umbrellas unfolded and the rum soaked brownies flowed, people opened up. The bartender popped his collar and gave me an endless flow of cranberry apple juice.
 
-The two girls from Tallahassee working as designers at an robot company. The heavily tattooed developer from Texas who shunned beef after growing up on a pig farm. The two African event coordinators who together came upon a nude beach by accident. Besides shallow descriptions, I didn't find out any other details about their jobs. Even the invitees were seldom found, checking in with people to make sure they were still on the boat. They didn't seem important anyway. The ship's aimless bobbing to no goal took all our attention and ground it to dust.
+The two girls from Tallahassee working as designers at an robot company. The heavily tattooed developer from Texas who shunned beef after growing up on a pig farm. The two African event coordinators who together came upon a nude beach by accident. Besides shallow descriptions, I didn't find out any other details about their jobs. Even the invitees were seldom found, checking in with people to make sure they were still on the boat. The ship's aimless bobbing to no goal was perfect for us. Our mild conversations took all our attention from the cityscape view and ground it to dust.
 
 An Italian and Jewish pair were huddled in one corner of the boat, discussing their ex boyfriends, their ex boyfriend's dogs and architecture.
 
@@ -26,13 +26,13 @@ An Italian and Jewish pair were huddled in one corner of the boat, discussing th
 
 The Italian girl chattered away a reply at full force, the other sipped through a straw, looking around aimlessly. It was impossible to tell how much drugs were involved in her demeanour. Perhaps none.
 
-"Are you Italian? I'm Italian." She stared. The sun went down and besides her eyes it got too dark to tell her expression.
+"Are you Italian? I'm Italian." She stared. The sun went down earlier and besides her eyes it got too dark to tell her expression, but you could feel her beaming violently.
 
-"No" I yelled over the growing shouting and waves. "Do you think I would fit in better if I did?" The Jewish girl flit her head up suddenly like a bird, and then away.
+"No" I yelled over the growing chats around us. "Do you think I would fit in better if I did?" The Jewish girl flit her head up suddenly to look at me, like a bird, and then away.
 
 "I don't know I don't exactly fit it, like I'm not married yet all my family is married I work at a big company and lots of people just bail on you... During work too, people don't even notice. My whole department, you know," pause, a comment towards the bird "I mean did you see Tony? I've been working past eight all week and he's said nothing. I don't really get how he even has his job. The other day, see... He's never filled out Jonas's accountant forms WE ALL did can you believe _that_?"
 
-Her friend shook her head without regard, "No, I can't." spilled out without looking at her.
+Her friend shook her head without regard, "No, I can't." she only looked at her drink.
 
 The ship shrugged and swung in slow motion back to the docks. Patrons became excited, lively, bored, full, happy, tipsy, celebrating, a tiny bit seasick. A few final pictures took in the city lights. The pier welcomed them comely, giving in to their now witless jokes and non-existent drunk charms.
 
@@ -70,7 +70,7 @@ My mother used to call me. Once a week I heard her thick Armenian accent telling
 
 I walked ten more blocks and past garbage after building after loiterer. The city lazily blinked as I got on the metro platform heading to my apartment.
 
-While waiting, I turned around and the Jewish bird smiled at him, head a bit crooked. I what the fuck jumped, startled.
+While on the platform, I turned around and the Jewish bird smiled at him, head a bit crooked. I what the fuck jumped, startled.
 
 "Ah you live a few up?" She stumbled a bit and lifted her hand up if she was still holding a drink.
 
@@ -82,14 +82,14 @@ While waiting, I turned around and the Jewish bird smiled at him, head a bit cro
 
 She took a pause, ignoring me, and stuttered, "Th-there were a few of those, yea."
 
-I thought for a bit, "I mean there were some that were just, I don't know, like, 'in general' people. But there are always a few gems." And I gestured to her, accidentally without thinking. Immediately embarrassed.
+I thought for a bit, "I mean there were some that were just, I don't know, like, 'in general' people. But there are always a few gems." And I gestured to her, htorwing a flirt. The atmosphere was suddenly an accident. Immediately embarrassed.
 
-We rode the train with a few other direly bored riders. Like everyone in the city they looked like they had an experience, like they were shaken or beaten up. All of them were doing laundry, wearing the shirt they wear on the day they do laundry. I threw a few glances at the crowd, threw a few words back at the bird.
+We rode the train with a few other direly bored riders. They wore their experiences as if like they were shaken or beaten up. All of them were doing laundry, wearing the shirt they wear on the day they do laundry. I threw a few glances at the crowd, then w few back at the bird.
 
 "I didn't talk too much. You werked a... Sha-me technologies? SHA-ke? La-ke?" She pronounced slowly, stuttering, wavering like a rag on a rustled laundry line (clothespin).
 
 "Lake, yea. But no, remember that. Shake technologies, it's better. Are you alright?"
 
-She smiled wearily, "Yea I'm going to my brother's this weekend. We always fight about the car, but I'm getting it this time," she lifted her index finger high up above her nose, "I made sure of that."
+She smiled wearily, "Yea I'm going to my brother's this weekend. We always fight over the car, but I'm getting it this time," she lifted her index finger high up above her nose, "I made sure of that."
 
-The train stopped and she got off chucking a goodbye at me just before the doors closed. I watched her wobble up the stairs as we pulled away.
+The train shook something off, it wavered and she almost fell into me. I held her balance and got the last scent of her fading perfume. I held her for a few seconds as she muttered a tiny appreciation and her weby red eyes smiled into mine. The train stopped and she got off chucking a goodbye at me just before the doors closed. I watched her wobble up the stairs, looking back once as we pulled away.
