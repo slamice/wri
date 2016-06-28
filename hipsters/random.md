@@ -1,3 +1,75 @@
+The city that never sleeps. But everyone is tired.
+
+
+
+Disasters:
+
+failing relationship
+Failing job
+Failing family
+Failing passion (band)
+
+
+
+
+Hipsters
+
+
+
+Rainbow sporring
+
+
+
+---------
+
+
+
+
+
+
+------
+
+
+
+
+
+
+
+----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+----------------
+
 I don't remember how many times I made a walk like that.
 
 
@@ -260,87 +332,22 @@ It's about the descent from despair. About cornering yourself, and the consequen
 I tried to avoid thinking about what I needed to do. I was only good at not doing it.
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+--------
 
 Things riddle down to the wire.
 
 --------
 
-
-
 "Here you can lose yourself like keys."
 
 
-
 --------
-
-"You're not going to drink the coffee?"
-
-"Coffee gives me a headache. I can only drink it with other stuff in it."
-
-"Why did you get it then?"
-
-I put the mug up to my cheek "I got it for warmth." I said with a shy sad smile.
-
-"It keeps you warm?" She said smiggling. (A Smile giggle)
-
-"Yea. It keeps me warm."
-
-"Why not tea then?"
-
-"Somehow, I thought coffee was thicker... So it would be warmer."
-
-
-
---------
-
-
 
 Humble bragging
 
-
-
 -------
 
-
-
 The quick jerk shrug and violent heavy moping nearly cut me.
-
-
 
 -----
 

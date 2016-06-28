@@ -46,3 +46,38 @@ I said "Yea, maybe I don't understand it."
 "No it's ok you have to realize this is great."
 
 And like that soon we faded awkwardly into a crowd of awkwards.
+
+
+
+
+--------------
+
+He went on for a while about how he opened perfectly functioning keyboards and hacked at them, destroying them from the inside, cutting wires and then painting them to make frankensteinian machines. Not a passion, but something that's done. The sounds that came out of one of them, the one that played that night, were clanging broken mutated trash can lids. So instead of a cacophony, he explained, it was ~cacophonous~.
+
+
+
+Circuit bending sucked. My disgusted stride to the door was obvious and of course no one thought much of it.
+
+
+
+Outside you could faintly hear techno dribbling with a tiny weary pitch tacked on. The swathes of people around each bar and club entrance were positioned like moles on a Miley face. They more or less spilled into the street. But among the pockets of high heelers and ragged jeans must have been something else, but maybe not.
+
+
+
+Frustrated, some of my thoughts repositioned themselves angrily, shuffling and fidgeting in their seats. How many of these people cared and worried about who cared about them, and how many didn't and actually did. How many parents and friends were behind them, supporting them. How many acknowledged themselves. How many cried in angst over it. Or felt shuttered for ridiculous amounts of time.
+
+
+
+One girl sat on the step of her walkup disgruntled with her friends.
+
+
+
+I took the train a few stops. I watched a kid try to find some flab on his mother's arms, slapping them as her bagged eyes watched on. I was caught in a car with a tap dancing trumpeter. I angrily stared him down as he shortly asked for his change.
+
+
+
+The door was open and surprisingly Renee was gone. The cat whined whinily as I walked in and was heavily ignored. There should have been music, a record playing, something industrial, but I was too lazy to choose.
+
+
+
+That night I laid dumb in my bed waiting. And waiting. Not for Renee.

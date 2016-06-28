@@ -4,7 +4,110 @@ Om feels disengaged and tired. The point of the chapter is to show how Om has wh
 
 ------------
 
-Your questions are vague, but it was like any gentrified neighborhood I guess.
+It was like any gentrified neighborhood I guess. Renee barely showed up to anything back then. There was some kind of mystery going on. Be it the drugs she took or the
+
+
+
+
+
+
+
+
+
+Selina called me up for a coffee headache that night.
+
+Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
+
+"Hello fellow human!" She cheerfully gleed at me.
+
+My pace was relentlessly slow because I knew I'd be late. The buildings around me didn't exist as I stared at the ground or nothing.
+
+I lifted a penny off the world and put the grimy thing in my pocket. This was money on the ground, pure value. Over the years I made quite a heap. Probably around sixty dollars. The change was all in a small jar. I never really felt I needed it though.
+
+It was late but the dark cafe was pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played risk in corners.
+
+Selina's eyes were at half mast with a very visible hazy red in a corner "I got high with Jeremy tonight." She gleamed.
+
+"How's that going?" I concerned as bitterly as my gingerbread coffee.
+
+"I don't know, what do you think of him?"
+
+"I don't know him."
+
+"He's a good guy, you'd like him." Every other word from Selina was lightly hurkled with a distant tired smile. "He's a university radio station coordinator. His friend works at Happy Blue Cat so we got to watch so many old documentaries. Rare ones about doctors in the sixties and bikes."
+
+"Like stunt bikes?"
+
+"All kinds of bikes. Hmm." And then, "Are you alright?"
+
+"I'm totally fine. Absolutely nothing happened."
+
+"How's Renee? She never comes out."
+
+"Yea she's not feeling too well tonight."
+
+"Oh what's wrong?"
+
+"Well we don't know exactly but her mono is acting up again." I shifted in my seat uncomfortably. Our conversation breaks were laggy but not substantial.
+
+I pushed the envelope and the coffee mug against my cheek.
+
+"What are you doing?"
+
+"It keeps me warm. Warm cheekies. I don't even like coffee."
+
+She giggled, "then why order coffee then?"
+
+"It's a latte so it's thicker, so it'll keep me warmer."
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+The weather was much hotter in L______ because, I don't know it felt humid. We lived in Lebanon until my mom couldn't take it anymore. The traffic, the noise, the exhaust. Sometimes I thought my mother's eyebrow was permanently raised, disavowing all belief in pure chaos. The country didn't feel like it functioned, but moved like a wheel moves. Because it had to.
+
+Until we moved to Canada. My brother, sister and I sighed relief into a vacant apartment.
+
+My father's ear was glued to the phone. During an argument, during the seven day war, during a meal, in bed, even now. The phone was in his pocket twisted and insulted from all the shouting it endured.
+
+
+
+
 
 
 The weather sucked. On what exactly wasn't important. There's a whole hidden season people choose to ignore. Its' heavy with musk and wet and dreary. Routines become slogs and everyone feels it. My energy drained, my ambitions shot then. Often around times that I wondered if there was a tear in me. Usually the pain of it disappeared and I could feel like a normal person. around the is season though it howled, mostly in the mornings. It stung and I'd feel the gash all around me, bleeding into the world.
@@ -12,11 +115,7 @@ The weather sucked. On what exactly wasn't important. There's a whole hidden sea
 
 
 
-We lived in Lebanon until my mom couldn't take it anymore. The traffic, the noise, the exhaust. Sometimes I thought my mother's eyebrow was permanently raised, disavowing all belief in pure chaos. The country didn't feel like it functioned, but moved like a wheel moves. Because it had to.
 
-until we moved to Hoboken. My brother, sister and I sighed relief into a vacant apartment. We
-
-My father's ear was glued to the phone. During an argument, during the seven day war, during a meal, in bed, even now. The phone was in his pocket twisted and insulted from all the shouting it endured.
 
 
 ------------
