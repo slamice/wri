@@ -4,7 +4,20 @@ Om feels disengaged and tired. The point of the chapter is to show how Om has wh
 
 ------------
 
-It was like any gentrified neighborhood I guess. Renee barely showed up to anything back then. There was some kind of mystery going on. Be it the drugs she took or the
+It was like any gentrified neighborhood I guess. Renee barely showed up to anything back then.
+
+She spent most of her time being absent. Be it the drugs she took or the demeanor she appeared to have by not appearing. There was some kind of mystery going on, an incredibly attractive one I was a tiny bit hopeless to find out about.
+
+-------------
+
+
+About then I had a reoccurring dream, one you've probably had. There was a cliff, and it didn't matter if the push from my parents or from ancient bullies, but it all happened
+
+---------
+
+I landed myself in a university far from my parents, or at least far enough to forget about hating them. My feelings about them fluctuated between pounding on things and thankfully being sent here alone as soon as they left after helping me move in.
+
+Parties on campus were brutally exhausting without something substantial to dull me. Weed was usually the norm but light drinking was another option I took up. I never overindulged, but inhaled just enough to feel like they was working.
 
 
 
@@ -14,11 +27,12 @@ It was like any gentrified neighborhood I guess. Renee barely showed up to anyth
 
 
 
-Selina called me up for a coffee headache that night.
+
+
+
+Selina called me up for a coffee headache that night. "Hello fellow human!" She cheerfully gleed at me through the phone.
 
 Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
-
-"Hello fellow human!" She cheerfully gleed at me.
 
 My pace was relentlessly slow because I knew I'd be late. The buildings around me didn't exist as I stared at the ground or nothing.
 
@@ -26,7 +40,7 @@ I lifted a penny off the world and put the grimy thing in my pocket. This was mo
 
 It was late but the dark cafe was pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played risk in corners.
 
-Selina's eyes were at half mast with a very visible hazy red in a corner "I got high with Jeremy tonight." She gleamed.
+Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
 
 "How's that going?" I concerned as bitterly as my gingerbread coffee.
 
@@ -56,9 +70,9 @@ I pushed the envelope and the coffee mug against my cheek.
 
 "It keeps me warm. Warm cheekies. I don't even like coffee."
 
-She giggled, "then why order coffee then?"
+An eyebrow raised on her face, "then why order coffee then?"
 
-"It's a latte so it's thicker, so it'll keep me warmer."
+"A latte is thicker so it'll keep me warmer."
 
 
 
