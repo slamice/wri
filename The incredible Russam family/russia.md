@@ -6,6 +6,8 @@ Mariam, the mother
 
 the four kids, 15 13 10 7, in that order,
 
+they had a potato farm and learned to 
+
 and Ruby the parrot.
 
 A letter arrives from a mysterious man.

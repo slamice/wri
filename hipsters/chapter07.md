@@ -1,6 +1,6 @@
 Ch7. Another show, Mexico City happens here. Om's infatuation with bands happens here. He gets a call from his family in the middle again. This chapter shows the nature of a live show, how slightly awkward and banal it is. Om has seen these bands dozens of times. He discusses circuit bending, how a famous musician stayed at someone's house. Boombastic plays.
 
-
+Meets up with Dock in this chapter.
 
 
 

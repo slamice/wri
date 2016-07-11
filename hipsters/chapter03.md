@@ -7,6 +7,37 @@ Om feels disengaged and tired. The point of the chapter is to show how Om has wh
 It was like any gentrified neighborhood I guess. Renee barely showed up to anything back then. There was some kind of mystery going on. Be it the drugs she took or the
 
 
+Bookstores were still open, they're still open. The inside of the comic vintage one next door was rickety and ironed out
+
+
+
+
+
+When my family used to go on trips they were long ones. Back overseas. They were rare enough because of the money, but they were a plunge into chaos, more chaos than New York was. I was surprised anything besides restaurants functioned. The humidity mugged us.
+
+My family was huge. It's impossible for me to recall any names further related to me than immediate cousins, aunts and uncles. Kisses were showered on me and the food was great.
+
+At one point I was sent to a seiance with my older sister. My aunt became possessed by an angel and touched my hand. She told me, cryptically and in cut up sentences that I would have four children and be divorced, this was my future.
+
+I left there sullen and disturbed. I could no better predict my future than an unsolved mystery, but I knew I'd never be married and never have kids. That's delluding yourself to think that is a good idea.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
