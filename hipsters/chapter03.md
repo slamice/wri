@@ -4,10 +4,28 @@ Om feels disengaged and tired. The point of the chapter is to show how Om has wh
 
 ------------
 
-It was like any gentrified neighborhood I guess. Renee barely showed up to anything back then. There was some kind of mystery going on. Be it the drugs she took or the
+It was like any gentrified neighborhood I guess. The lack of
 
 
-Bookstores were still open, they're still open. The inside of the comic vintage one next door was rickety and ironed out
+
+Renee barely showed up to anything back then. There was some kind of mystery going on. I didn't know if it was the drugs she took her job or incredible literate social circle who read books at home constantly or what could it have been. I knew Andrew showed up to everything and we talked, stoned, until we were down and out for the night.
+
+He worked at a coffeeshop we frequented on M___ street. It illuded to being a chain but was not really so.
+
+
+Bookstores were still open, they're still open. Shelves full of slightly off famous books. The inside of the comic vintage one next door was rickety yet ironed out. A clean mess of leafed through comics were wrapped in plastic. Inside were people ready to save us from disasters that never happened, or from each other.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -26,9 +44,9 @@ I left there sullen and disturbed. I could no better predict my future than an u
 
 
 
+The number was my Dad's, so I hesitated a bit. The unmistakable conversations we had with each other were not riveting and were very brief. The surprise came when they lasted longer than 10 minutes.
 
-
-
+"Hey son! Tall guy!" His voice thundered beyond sound through the phone.
 
 
 
@@ -50,6 +68,35 @@ Selina called me up for a coffee headache that night.
 Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
 
 "Hello fellow human!" She cheerfully gleed at me.
+
+"What's up?"
+
+"You should come out." she whispered, "You haven't been out in a while. A friend of mine's band is visiting from O_____.".
+
+"I just don't feel it right now, you know? But, I could use a coffeeshop though."
+
+"A cough-ee-shop?"
+
+
+
+
+
+
+I came back to Renee with the Romcom. I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told Renee, "I'm meeting up with Selina."
+
+"You never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
+
+"It'll only be out for a bit. There is no other girl."
+
+"Can you please get me an iced latte then?"
+
+"Sure I can get you that."
+
+I remember that night distinctly because it was like any other night. The cold tried to creep into my jacket, into my pants. The two sushi places on the way I passed were idly populated. A few girls walked by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. To me they sexed by and I was disgusted to think so, but hardly guilty. Also there was a native lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive if I talked her down to five.
+
+
+
+
 
 My pace was relentlessly slow because I knew I'd be late. The buildings around me didn't exist as I stared at the ground or nothing.
 
