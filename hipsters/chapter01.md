@@ -3,7 +3,7 @@ Ch1. The book opens with a daily routine, a trudge everyone knows well to and fr
 
 
 
-My body fought me and woke up. Ten, twenty or thirty minutes of sleep didn't seem to matter to it anymore. It humiliated me. I whined back. I didn't want to go to work. I didn't want to work. Was I just bad at it or did I hate my job? I wasn't sure.
+My body fought me and woke up. Ten, twenty or thirty minutes of sleep didn't seem to matter to it anymore. It humiliated me but I whined back. I didn't want to go to work. I didn't want to work. Was I just bad at it or did I hate my job? I wasn't sure.
 
 The sun poked me.
 

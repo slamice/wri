@@ -197,7 +197,6 @@ Renee drank all kinds of liqueurs, plant ointments, liver extracts, and anything
 
 
 The offenders sat around the room offending.
-=======
 --------
 
 Renee gave me a juicer from the 70's, incredibly powerful and just as hard to clean. Fruit flies laid back on lawn chairs on it, sunglasses and a bit of smoothie in their tiny glasses. Occassionally they flew up a bit and waggled around looking for another spot.
