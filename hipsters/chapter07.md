@@ -3,6 +3,24 @@ Ch7. Another show, Mexico City happens here. Om's infatuation with bands happens
 Meets up with Dock in this chapter.
 
 
+---
+
+It was tasteless, the thing i was drinking. It sat in a pool of itself, and didn't get any better the more I stirred it. How many shots of sugar and coffee muttered inside.
+
+- emotional breakdown -
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -13,6 +31,7 @@ Meets up with Dock in this chapter.
 
 
 ...
+
 
 Talk at concert about circuit bending, blabbing to friends about how big of an annoyance talking about it with someone was.
 

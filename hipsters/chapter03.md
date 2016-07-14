@@ -2,13 +2,164 @@ Ch3. Time drags on. He shuffles his feet, wondering how he got here. He recalls 
 
 Om feels disengaged and tired. The point of the chapter is to show how Om has whittled down. Apart from band practice and work, he stays home. He goes to bed earlier but wakes up the same time everyday. He hates thinking about the past but does it anyway. He remembers his silent parents. He recalls how much he hated highschool. He feels lonely. Selina is in the area and he meets up with her once. Coffee cup scene.
 
+------------------
+
+Mostly, those days, we kept to ourselves, Renee and I. The Romcoms poured from our tv like an open facet, spilling and straining the room, ruining the wallpaper. Misunderstood nerds loving curly haired attitude women. One dimensional machos winning over dysfunctional girls alive to mall and bawl. There were a few plots but they all ate together and incested incestually off each other.
+
+I knew this even when I met her. Renee barely showed up to anything back then. There was some kind of mystery going on. I didn't know if it was the drugs she took her job or incredible literate social circle who read books at home constantly or what could it have been.
+
+I knew her abuser and ex-lover though. He was so articulate I was almost jealous until I hated him later. He showed up to everything and we talked and we stoned until we were down and out for the night. A person of the world, he persona'ed hard. His persona was gifted in being interested in many things nature until they aggravated him and he restored through video games.
+
+I met her with him on the subway. We were on our way to a house party and her and Andrew's car were on the other track. I looked in as our cars passed each other, into a floating room of people. It felt evasive and vouyourish. The cars sped on until much later. I only remember her tiny mouth laughing in between sentences of pursed lips.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+A cow hummed and it was my phone. Crawling over it was my Dad's number, so I hesitated a bit. The mistakable
+conversations we had with each other were not riveting and were very brief. The surprise came when any of them lasted longer than 10 minutes. Our relationship could be taken lightly with a few exclamations, barely a kilo.
+
+"Hey son! Tall guy!" His voice thundered beyond sound through the phone.
+
+"Hi Dad."
+
+"How you doin?" Long time son!"
+
+"I has I guess, yea."
+
+"How's your life how's your job?"
+
+"They're ok, doing good."
+
+"Listen son, when do you think you can come back, just visit for a week?"
+
+"I don't know if that's possible Dad. You know I can't go back my visa status hans't gone through yet."
+
+"Oh really? Maybe it will go through by then?"
+
+"I don't know but I have to wait for it."
+
+"I see son. It's too bad your brother and sister will be here."
+
+"Yes I know. But if I leave I can't come back."
+
+"Ok I see. It's no problem son. Let me know, let me know if you can come."
+
+"I will Dad. Love you."
+
+"Love you son, bye. Good bye." and hung up.
+
+
+
+
+
+
+
+Next Selina messaged me up for a coffee headache that night. "Hello fellow human!" She cheerfully gleed at me through the phone.
+
+Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
+
+"What's up?"
+
+"You should come out." she whispered, "You haven't been out in a while. A friend of mine's band is visiting from O_____.".
+
+"I just don't feel it right now, you know? But, I could use a coffeeshop though."
+
+"A cough-ee-shop?"
+
+
+
+
+
+
+I came back to Renee with the Romcom. I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
+
+"You never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
+
+"It'll only be out for a bit. There is no other girl."
+
+"Can you please get me an iced latte then?"
+
+"Sure."
+
+I remember that night distinctly because it was like any other night. The cold tried to creep into my jacket, into my pants. The two sushi places on the way I passed were idly populated. A few girls walked by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. To me they sexed by and I was disgusted to think so, but hardly guilty. Also there was a native lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive if I talked her down to five.
+
+
+
+
+
+My pace was relentlessly slow because I knew I'd be late. The buildings around me didn't exist as I stared at the ground or nothing.
+
+I lifted a penny off the world and put the grimy thing in my pocket. This was money on the ground, pure value. Over the years I made quite a heap. Probably around sixty dollars. The change was all in a small jar. I never really felt I needed it though.
+
+It was late but the dark cafe was pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played risk in corners.
+
+Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
+
+"How's that going?" I concerned as bitterly as my gingerbread coffee.
+
+"I don't know, what do you think of him?"
+
+"I don't know him."
+
+"He's a good guy, you'd like him." Every other word from Selina was lightly hurkled with a distant tired smile. "He's a university radio station coordinator. His friend works at Happy Blue Cat so we got to watch so many old documentaries. Rare ones about doctors in the sixties and bikes."
+
+"Like stunt bikes?"
+
+"All kinds of bikes. Hmm." And then, "Are you alright?"
+
+"I'm totally fine. Absolutely nothing happened."
+
+"How's Renee? She never comes out."
+
+"Yea she's not feeling too well tonight."
+
+"Oh what's wrong?"
+
+"Well we don't know exactly but her mono is acting up again." I shifted in my seat uncomfortably. Our conversation breaks were laggy but not substantial.
+
+I pushed the envelope and the coffee mug against my cheek.
+
+"What are you doing?"
+
+"It keeps me warm. Warm cheekies. I don't even like coffee."
+
+An eyebrow raised on her face, "then why order coffee then?"
+
+"A latte is thicker so it'll keep me warmer."
+
+
+
+
+
+
+
+
+Before I went in her apartment I stopped. Slowly, I emptied her latte outside onto the pavement. It took a quick splash and then settled immediately in the cracks, lurching quickly away. The cup I put next to the mess, and went up to the apartment.
+
+I sneaked a look at her as she said "Hi!".
+
+(Completely forgot she ordered one.)
+
+
+
+
+
 ------------
 
 It was like any gentrified neighborhood I guess. The lack of
 
 
 
-Renee barely showed up to anything back then. There was some kind of mystery going on. I didn't know if it was the drugs she took her job or incredible literate social circle who read books at home constantly or what could it have been. I knew Andrew showed up to everything and we talked, stoned, until we were down and out for the night.
 
 He worked at a coffeeshop we frequented on M___ street. It illuded to being a chain but was not really so.
 
@@ -63,7 +214,6 @@ About then I had a reoccurring dream, one you've probably had. There was a cliff
 
 I landed myself in a university far from my parents, or at least far enough to forget about hating them. My feelings about them fluctuated between pounding on things and thankfully being sent here alone as soon as they left after helping me move in.
 
-Parties on campus were brutally exhausting without something substantial to dull me. Weed was usually the norm but light drinking was another option I took up. I never overindulged, but inhaled just enough to feel like they was working.
 
 
 
@@ -71,88 +221,7 @@ Parties on campus were brutally exhausting without something substantial to dull
 
 
 
-The number was my Dad's, so I hesitated a bit. The unmistakable conversations we had with each other were not riveting and were very brief. The surprise came when they lasted longer than 10 minutes.
 
-"Hey son! Tall guy!" His voice thundered beyond sound through the phone.
-
-
-
-
-
-
-
-Selina called me up for a coffee headache that night. "Hello fellow human!" She cheerfully gleed at me through the phone.
-
-Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
-
-"What's up?"
-
-"You should come out." she whispered, "You haven't been out in a while. A friend of mine's band is visiting from O_____.".
-
-"I just don't feel it right now, you know? But, I could use a coffeeshop though."
-
-"A cough-ee-shop?"
-
-
-
-
-
-
-I came back to Renee with the Romcom. I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told Renee, "I'm meeting up with Selina."
-
-"You never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
-
-"It'll only be out for a bit. There is no other girl."
-
-"Can you please get me an iced latte then?"
-
-"Sure I can get you that."
-
-I remember that night distinctly because it was like any other night. The cold tried to creep into my jacket, into my pants. The two sushi places on the way I passed were idly populated. A few girls walked by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. To me they sexed by and I was disgusted to think so, but hardly guilty. Also there was a native lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive if I talked her down to five.
-
-
-
-
-
-My pace was relentlessly slow because I knew I'd be late. The buildings around me didn't exist as I stared at the ground or nothing.
-
-I lifted a penny off the world and put the grimy thing in my pocket. This was money on the ground, pure value. Over the years I made quite a heap. Probably around sixty dollars. The change was all in a small jar. I never really felt I needed it though.
-
-It was late but the dark cafe was pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played risk in corners.
-
-Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
-
-"How's that going?" I concerned as bitterly as my gingerbread coffee.
-
-"I don't know, what do you think of him?"
-
-"I don't know him."
-
-"He's a good guy, you'd like him." Every other word from Selina was lightly hurkled with a distant tired smile. "He's a university radio station coordinator. His friend works at Happy Blue Cat so we got to watch so many old documentaries. Rare ones about doctors in the sixties and bikes."
-
-"Like stunt bikes?"
-
-"All kinds of bikes. Hmm." And then, "Are you alright?"
-
-"I'm totally fine. Absolutely nothing happened."
-
-"How's Renee? She never comes out."
-
-"Yea she's not feeling too well tonight."
-
-"Oh what's wrong?"
-
-"Well we don't know exactly but her mono is acting up again." I shifted in my seat uncomfortably. Our conversation breaks were laggy but not substantial.
-
-I pushed the envelope and the coffee mug against my cheek.
-
-"What are you doing?"
-
-"It keeps me warm. Warm cheekies. I don't even like coffee."
-
-An eyebrow raised on her face, "then why order coffee then?"
-
-"A latte is thicker so it'll keep me warmer."
 
 
 

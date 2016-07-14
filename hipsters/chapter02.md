@@ -158,7 +158,7 @@ I thought about any possible complications.
 
 "You'll get your visa by then! It's been years! Om! Om!" she stared me in the eyes, paused. Her hands started stuffing invisible scones and butter rolls in her mouth "Om Om Om." she laughed to infinity and I joined in for a bit. It was so stupid we never got tired of it.
 
-We drifted to other parts of the party. I leaned against the wall and watched the room unfold. It and the people in it felt shruggy and benevolent, smoking away to a low psychedelic hymn ignoring moderately each other.
+We drifted to other parts of the party. I leaned against the wall and watched the room unfold. It and the people in it felt shruggy and benevolent, smoking away to a low psychedelic hymn ignoring each other moderately.
 
 I sat around for a bit more. I peer at the girls, drinking up various brown liquids. Most in black and two in camo jackets. I think they're beautiful on the outside. I take a look at the boys, rolling weed and describing their lives.
 
@@ -170,8 +170,10 @@ He ignored me briefly, but then breathed out without looking at me "about half a
 
 "Yea I know what you mean." When I really didn't.
 
-"It's getting pretty late." He sulked, then altogether smiled at himself profoundly.
+"It's getting pretty late." He sulked, then smiled at himself profoundly.
 
 "I've been tired before I even got here." I chuckled truthfully, but it was impossible to know if he was listening. He didn't look at me yet or ever again and left it at that. He walked away straight faced, taking his bloodshot eyes with him. I mulled that over in my head, and I only heard silence above the muttering people and the droning music.
+
+Parties like these were brutally exhausting without something substantial to dull me. Weed was usually the norm but light drinking was another option I took up. I never overindulged, but inhaled just enough to feel like it was working. Two beers were enough for me that night.
 
 So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked trucks. My hands were in my pockets, my right gripping my keys and flipping through them.

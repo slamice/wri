@@ -50,7 +50,7 @@ On our way back my phone hummed. "Hello?"
 
 "It's going ok, you know it's going. How are you?"
 
-"I'm doing good, your Mom has the problems."
+"I'm doing good, your Mom has problems."
 
 "What happened to Mom?" I hastened a wave goodbye to Selina as my ear plucked up attentively.
 
