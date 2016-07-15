@@ -4,7 +4,7 @@
 - Flow was good
 
 Chapter 2:
-- Not sure why why cynacism or sarcasm ewas in there, reason is ambiguous
+- Not sure why why cynacism or sarcasm was in there, reason is ambiguous
 
 
 

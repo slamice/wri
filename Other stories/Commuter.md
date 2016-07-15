@@ -1,14 +1,19 @@
-The train drilled into the Bronx noisily, pretty rocky as it threw itself into high gear late in the night. Samir sunk into his rigid plastic seat, tired.  Samir took the train everyday for a year but recognized no one. The other commuters similarly drooped. Some of their faces, pock marked, stared blankly at nothing in particular. Others were lost in their headphones. A few molded themselves around the train poles.
+The train drilled into the Bronx noisily, pretty rocky as it threw itself into high gear late into the night. Samir sunk into his rigid plastic seat, tired. Everyday he rode the train for the past year but recognized no one. The other commuters similarly drooped like him. Some of their faces, pock marked, stared blankly at nothing in particular. Other faces rested, listening and  lost in their headphones. A few molded themselves around the train poles.
 
-Samir was so tired at 10 PM now. Earlier he ventured around the city disguising himself as a normal person. Within the throngs and gongs of Midtown, he walked eighty blocks for a reason. And he was tired enough to start the next day again. He was lucky to find a job in mid-town, hidden behind a salad bar sweating through lunch rushes. Particularly hairy, the sweat clung to his back until the end of the day. One long wet pet.
+Samir was so tired at 10 PM now. Earlier he ventured around the city disguising himself as a normal person. Within the throngs and gongs of Midtown, he walked eighty blocks for a reason. And he was tired enough to start the next day again. He was lucky to find a job in downtown. His days were spent hidden behind a salad bar sweating through lunch rushes. Afterwards he laboured in the back of a clothes store for further hours panting over pants. Particularly hairy, the sweat clung to his back until the end of the day. One long wet pet.
 
-The conductor began pronouncing the train stops delicately, with a joking coo. Every station name and _next stops_ were slowly getting a few chucklettes.
+The conductor began pronouncing the train stops delicately, with a joking coo. Every station name and _next stops_ were slowly getting a few chucklettes from the passengers.
 
-Nereid ave. was coming up. Samir didn't feel like moving. He moved a lot and didn't want to move anymore. He moved so much and didn't know where to move to anymore.
+N_____ ave. was coming up. Samir didn't feel like moving. He moved a lot and didn't want to move anymore. He moved so much and didn't know where to move to anymore.
 
-So the doors slid open, A few people dragged themselves off, and Samir just sat there. His flat butt cheeks kissed the seat through his jeans heavily and he was undeterred. He didn't want to pass the corner stores. He didn't want to drag his feet seven more blocks to his walk up. At least not yet.
+So the doors slid open, A few people dragged themselves off, and Samir just sat there. He was undeterred. He didn't want to pass the corner stores. He didn't want to drag his feet seven more blocks to his walk up. At least not yet.
 
-The moment fleeted. The doors closed and they moved on. Samir sat there and wondered when he'd feel like getting up. If he had to cut up some more meat, find some more white tube socks with grey heels, fold more pants along the creases, he could at least stay one more minute on the train.
+
+
+At his stop he stayed on the train. The moment fleeted. The doors closed and they moved on. Samir sat there and wondered when he'd feel like getting up. If he had to cut up some more meat, find some more white tube socks with grey heels, fold more pants along the creases, he could at least stay one more minute on the train.
+
+
+
 
 The announcer sang the last stop's "241st street" like a feminine bear and the doors yawned open. People slowly got up and began piling out. A few shifties, shifting, stayed on looking indifferent. An unusually happening Spanish family, speaking no language in particular, chatted each other to their seats. An older African lady simply shuffled like a card to a corner.
 
@@ -34,7 +39,7 @@ The train threw time behind it as it continued in the only direction it knew. It
 
 Eventually the tunnel lights grew lighter. Samir slumped as they flushed down deeper into the earth. They emerged out a tunnel, once again cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds suspiciously clear, and a low solemn voice pronounced "Valcarca" in a familiar accent. The spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
 
-A small black haired kid sat next to Samir as his mother stood in front of him. Samir glanced out the window as the train started moving, lost twice as hard. The kid held out a flat aluminum papered stick between his fingers. "¿Chicle?" he offered. Hismom glanced at both of them and smiled.
+A small jet black haired kid sat next to Samir as his mother stood in front of him. Samir glanced out the window as the train started moving, lost twice as hard. The kid held out a flat aluminum papered stick between his fingers. "¿Chicle?" he offered. His mom glanced at both of them and smiled.
 
 "No, thank you." Samir smiled back, but then he realized "Excuse me, excuse me. Where is?"
 
@@ -48,22 +53,19 @@ A small black haired kid sat next to Samir as his mother stood in front of him. 
 
 "Ah, siento. No Inglés" Her face puckered a sad smile. Her son looked out the window and Samir nodded out two thank yous. They sped down the bright fluorescent grey tunnel. Samir thought it half heartedly, and this far in the train was still in on its joke but not laughing as much.
 
+As the people moved on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. Eventually Samir tired of sitting. He began to feel stale and bland in addition to his nervous panic. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
 
+He knocked on the door once, harder again, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice. He felt a bit like a ghost but without the haunting. He felt like a failed ghost.
 
+It must have been a good five hours since he got on. Since then he hopped through all the train cars, memorizing their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to the original car he was on. He was heavily distracted with disappointment and confusion, but sleep took over him. He began to drift off to the rhythm of the car shaking as it ran on the tracks.
 
-As the people rolled on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
-
-He knocked on the door once, harder again, but there were no results. The dark glass on the door looked back at him, pitying. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice. He felt a bit like a ghost but without the haunting. He felt like a failed ghost.
-
-It must have been a good five hours since he got on. Since then he hopped through all the train cars, memorizing their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He was tired of ducking by children, squeezing by, but mostly of sighing. Samir went back to the original car he was on. He was heavily distracted with disappointment and confusion, but sleep took over him. He began to drift off to the rhythm of the car shaking as it ran on the tracks.
-
-In another hour the train quieted down a bit more. The crowds began thinned out finally.
+In another hour the train quieted down a bit more. The crowds began thinning out finally.
 
 Was it four, five in the morning? When Samir opened his eyes it was just him and who he recognized earlier, the older African American lady with her big hat. They ended up all alone, speeding down yet another dark corridor. Samir walked toward her hopefully, wondering with a heavy heart if she knew where they were headed. She noticed him lazily and pushed up her lips and then dropped them. Then again with the lip judgement.
 
 "Excuse me?" Samir intended it shyly but it came out perverse. "Where is here?"
 
-"We on the train honey." She said bluntly. He was about to ask again but she charged "ON. THE. TRAIN."
+"We on the train honey." She said bluntly. He was about to correct her but but she charged "ON. THE. TRAIN."
 
 "Yes, ok. On train. But where?"
 
@@ -73,13 +75,46 @@ Was it four, five in the morning? When Samir opened his eyes it was just him and
 
 "It's ok, we goan hawm." She was quickly losing interest, her eyelids grew heavier and glanced back at her papers.
 
-"It is not ok." Samir began to get angry at how cold she seemed to him, but then he couldn't tell if it was New York or him or her. The lady didn't budge but then looked straight at him.
+"It is not ok." Samir began to get angry at how cold she seemed to him, but then he couldn't tell if it was New York that hardened him or her or even the train car. The lady didn't budge but then looked straight at him.
 
 "Wha you mean?"
 
 "Why it is ok? We go far. It's not ok. Where do you go?"
 
 "No one forcing you ta stay here. You can ge' off anytime."
+
+The looked empty to Samir. He didn't feel there was anyone driving it either. It was only him and the train.
+
+The next stop was deserted, and the train intercom didn't crackle on this time. The train stopped in exhaustion and Samir looked outside. Two signs, one on top of the other read the same but the words were in different order, "도곡　Dogok　谷道".
+
+Samir sighed and looked up and down at the grey and white stripped lines. He didn't know how probable he'd see the grayish black hues of concrete and brick he was used to again. But at that point he didn't much care.
+
+The doors stood open, mocking him for several minutes.
+
+He stopped thinking. He looked out the train both ways. It felt eerily clean and completely silent. He took a step, and walked out. His shoes echoed squeaks in the tunnel. until he headed up the stairs.
+
+A few minutes later, the ringing closed the doors.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -127,15 +162,3 @@ Glass doors opened outside of the train doors and people quickly erupted in by t
 It must be all kinds of confusion.
 
 -------
-
-The looked empty to Samir. He didn't feel there was anyone driving it either. It was only him and the train.
-
-The next stop was deserted, and the train intercom didn't crackle on this time. The train stopped in exhaustion and Samir looked outside. Two signs, one on top of the other read the same but the words were in different order, "도곡　Dogok　谷道".
-
-Samir sighed and looked up and down at the grey and white stripped lines. He didn't know how probable he'd see the grayish black hues of concrete and brick he was used to again. But at that point he didn't much care.
-
-The doors stood open, mocking him for several minutes.
-
-He stopped thinking. He looked out the train both ways. It felt eerily clean and completely silent. He took a step, and walked out. His shoes echoed squeaks in the tunnel. until he headed up the stairs.
-
-A few minutes later, the ringing closed the doors.

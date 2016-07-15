@@ -406,3 +406,8 @@ I saw a taboo, so I said nothing and shrugged perfectly. I'd become a profession
 ---------
 
 Chinese lady "socks socks underwear tanktop!"
+
+---------
+
+The stars look insane
+The stars are insane
