@@ -1,25 +1,24 @@
-The train drilled into the Bronx noisily, pretty rocky as it threw itself into high gear late into the night. Samir sunk into his rigid plastic seat, tired. Everyday he rode the train for the past year but recognized no one. The other commuters similarly drooped like him. Some of their faces, pock marked, stared blankly at nothing in particular. Other faces rested, listening and  lost in their headphones. A few molded themselves around the train poles.
+The train drilled into the Bronx noisily, pretty rocky as it threw itself into high gear late into the night. Samir sunk into his rigid plastic seat, tired. Everyday he rode the train for the past year but recognized no one. The other commuters similarly drooped like him. Some of their faces, pock marked, stared blankly at nothing in particular. Other faces rested, listening and lost in their headphones. A few molded themselves around the train poles. All were tired.
 
-Samir was so tired at 10 PM now. Earlier he ventured around the city disguising himself as a normal person. Within the throngs and gongs of Midtown, he walked eighty blocks for a reason. And he was tired enough to start the next day again. He was lucky to find a job in downtown. His days were spent hidden behind a salad bar sweating through lunch rushes. Afterwards he laboured in the back of a clothes store for further hours panting over pants. Particularly hairy, the sweat clung to his back until the end of the day. One long wet pet.
+Samir was so tired at this time of night. Earlier he labored around the city disguised as a normal person. Within the throngs and gongs of Midtown, he walked eighty blocks for a reason. He was lucky to have a job and knew it. His days were spent hidden behind a salad bar sweating through lunch rushes. Later, he panted over pants in a laundromat. Particularly hairy, the sweat clung to his back until dark and let go. One long wet pet.
 
-The conductor began pronouncing the train stops delicately, with a joking coo. Every station name and _next stops_ were slowly getting a few chucklettes from the passengers.
+And he was tired enough to come back the next day. And the next.
+
+The conductor began pronouncing the train stops delicately, with a joking coo. Every station name and _next stops_ were slowly getting a few chucklettes from the passengers, however more minor.
 
 N_____ ave. was coming up. Samir didn't feel like moving. He moved a lot and didn't want to move anymore. He moved so much and didn't know where to move to anymore.
 
 So the doors slid open, A few people dragged themselves off, and Samir just sat there. He was undeterred. He didn't want to pass the corner stores. He didn't want to drag his feet seven more blocks to his walk up. At least not yet.
 
-
-
 At his stop he stayed on the train. The moment fleeted. The doors closed and they moved on. Samir sat there and wondered when he'd feel like getting up. If he had to cut up some more meat, find some more white tube socks with grey heels, fold more pants along the creases, he could at least stay one more minute on the train.
 
+The announcer sang the last stop's "241st street" like a feminine bear and the doors yawned open. People slowly got up and began piling out. A few shifties, shifting, stayed on looking indifferent. An unusually happening Spanish family, speaking no language in particular, chatted each other to their seats. An older African lady with a huge straw hat simply shuffled like a card to a corner.
 
+The doors clicked closed and continued on, down a tunnel for quite a bit. Samir's eyes swung past beam after beam of the dark corridor. He stayed dreamily in his seat, waiting for it to turn around.
 
+The black corridor soon began flooding with bright florescent light. Hundreds of feverent white tile from the walls, and Samir's body twinged a bit in puzzle. His mind hadn't caught up with it yet, it was a bit curious and livid. But it was catching up fast when they began slowing down.
 
-The announcer sang the last stop's "241st street" like a feminine bear and the doors yawned open. People slowly got up and began piling out. A few shifties, shifting, stayed on looking indifferent. An unusually happening Spanish family, speaking no language in particular, chatted each other to their seats. An older African lady simply shuffled like a card to a corner.
-
-The doors clicked closed and continued on, down a tunnel for quite a bit. Samir's eyes swung past beam after beam of the dark corridor. He stayed dreamily in his seat.
-
-The tunnel soon opened up and the conductor, in a very heavy and muffled voice announced "South Kensington". An older gentleman in the corner got up and walked out the door. A small crowd high heeled and loafered into the car, looking high and like loaves. They laughed half drunk coughs. They had quite pasty and floury skin. One had an unlit cigarette dangling from his mouth. They all spoke as if their mouths were full of bread and they were choking it down, laughing hard. The African lady simply snubbed her nose up and looked away.
+After five minutes the tunnel soon opened up and the conductor, in a very heavy and muffled voice announced "South Kensington". An older gentleman in the corner got up and walked out the door. A small crowd high heeled and loafered into the car, looking high and like loaves. They laughed half drunk coughs. They had quite pasty and floury skin. One had an unlit cigarette dangling from his mouth. They all spoke as if their mouths were full of bread and they were choking it down, laughing hard. The African lady simply snubbed her nose up and looked away.
 
 Samir's eyebrow twitched in confusion. He felt himself waking up a bit. He looked out the subway car window and saw speckled yellow tiles. They were so clean he almost panicked. He gulped and held himself slowly, wondering who to ask or gesture, because his English was cut up and sad.
 

@@ -1,14 +1,19 @@
-The Russam family sat snug around a very big fire in the heart of a Russian winter.
+Have you ever heard of the Russam family?
 
-Basel, the father,
+Daniel, the father,
 
 Mariam, the mother
 
-the four kids, 15 13 10 7, in that order,
+The four kids, Manuel 15, Poco 13, Iota 10 and Zain 7, in that order, dug the ground together.
 
-they had a potato farm and learned to 
+Oh, and Ruby the parrot.
 
-and Ruby the parrot.
+
+
+
+The Russam family sat snug around a very big fire in the heart of a Russian winter.
+
+They had a potato farm and learned to
 
 A letter arrives from a mysterious man.
 
