@@ -150,6 +150,7 @@ I came home with Renee smirking, half joshing.
 The monotony of days blended together at that point. Meeting at the coffee
 
 
+It must be all kinds of confusion.
 
 
 

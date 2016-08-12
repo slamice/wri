@@ -12,7 +12,9 @@ I knew her ex-lover though. He was so articulate I was almost jealous until I ha
 
 I met her with him on the subway. We were on our way to a house party and her and Andrew's car were on the other track. She finally showed up with him. I looked in as our cars passed each other, into a floating room of people. It felt evasive and vouyourish. The cars sped on until much later. I only remember her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night.
 
-The party was a ton of leaning. Against furniture, walls... That's it. The conversations were hefty doses of unreality. We philosophised about who worked where in the city.
+The party was a ton of leaning. Against furniture, walls... That's it. The conversations were hefty doses of unreality. We philosophized about who worked where in the city, really, and what that entailed.
+
+"Non profit Radio station Manager"
 
 "An animal shelter"
 
@@ -22,9 +24,18 @@ The party was a ton of leaning. Against furniture, walls... That's it. The conve
 
 "..."
 
-After the party we settled in a playground.
-
 ""
+
+The words were mostly recollections though. How long had it been since we heard that song, and omg it's in a zine now. After the party we settled in a playground. We took turns slumping in swings, climbing the jungle gym nonchalantly.
+
+At one point it was Andrew, Anaj, Remy, myself, Sarah and Ryan. After a show we wondered apathetically.
+
+Anaj opened, "Hey, do you ever wonder--"
+
+
+
+
+
 
 Later we lived with them, Anaj and Remy. They turned out to be intensely disturbed. They chain smoked incessantly. Their cat coughed on me.
 
