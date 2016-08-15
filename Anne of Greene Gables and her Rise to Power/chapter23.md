@@ -30,7 +30,7 @@ Anne popped both of her arms back in one at a time, but before Anne could mouth 
 
 Marilla McPlebbers was out in the apple orchard eating when she heard the heavy wheels of a mobile stretcher drag on the path. On it was Anne, with Mr. Barrymore in front and Annes harem behind her all in a row, their faces as pale than skinned almonds.
 
-At that moment Marilla had a revelation. She decided Anne was not a demon but some kind of wicked plotting person who only has bipolar, tripolar and possibly north polar problems. Seeing her limp and frowning made her realize she was a sucker for that sort of stuff. Dare she tell herself she loved Anne, and only wanted to hold her under her nape and fill her red red hair with tears.
+At that moment Marilla had a revelation. She decided Anne was not a demon but some kind of wicked plotting person who only has bipolar, tripolar and possibly north polar problems. Seeing her limp and frowning made her realize she was a sucker for that sort of stuff. Dare she tell herself she thought Anne as a person instead of a beastly creature of the night.
 
 "Drew what happened to Anne?"
 
@@ -38,7 +38,9 @@ But then Anne herself lifted her head, "Don't you see Marilla? My honor was on t
 
 "I thought you'd do something like that, festooning that party with your frat pranks-" But just then Anne fainted.
 
-They told Marilla's gorilla, who was hunkering in the fields, to grab a doctor. And they soon found out Anne's ankle was broken with some deep teeth marks in it. Mrs. Plebb didn't really want to think about how that happened, because Anne was one weird kid.
+They told Marilla's gorilla, who was hunkering in the fields, to grab a doctor. Mrs. Plebb didn't really want to think about how that happened, because Anne was one weird kid.
+
+Anne's body was so robust physically that she stood on impact and even pushed the earth into itself a bit. Unfortunately Anne's mental state was crap, and she broke her Id's ankle in two.
 
 Anne slipped into an ankle deep coma. Her dress was a see through white, a ghost dancing on rooftops that jovially smiled with their toothy thatches and panes. She hugged them tightly and laughed unapologetically. Everyone below her was presented as a peasant, brownly cloaked with dirt. A few ticks and lice fell out of them as she spoke. She denounced them all as peons. She peoned them hard, harder than any other peoning.
 

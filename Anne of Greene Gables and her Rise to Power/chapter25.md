@@ -90,4 +90,4 @@ That night, Mr. and Mrs. Plebb were exhausted. They hadn't been to a concert in 
 
 "Anne really did a number on us. She's only thirteen in March too, she really slaughtered that packed house." Matthew said earnestly, or as earnest as he could sound while wheezing.
 
-"She's got some kind of future alright..." Marilla trailed off, while MAtthew played at his sleeve, half dreaming.
+"She's got some kind of future alright..." Marilla trailed off, while Matthew played at his sleeve, half dreaming.
