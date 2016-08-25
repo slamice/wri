@@ -36,7 +36,7 @@ Renee:
 - Always acts the victim to her advantage with everyone
 
 Selina:
-- Quiet Canadian country girl
+- Canadian country girl
 - Feminist
 
 Adrian:

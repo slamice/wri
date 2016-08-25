@@ -82,9 +82,9 @@ While on the platform, I turned around and the Jewish bird smiled at him, head a
 
 She took a pause, ignoring me, and stuttered, "Th-there were a few of those, yea."
 
-I thought for a bit, "I mean there were some that were just, I don't know, like, 'in general' people. But there are always a few gems." And I gestured to her, htorwing a flirt. The atmosphere was suddenly an accident. Immediately embarrassed.
+I thought for a bit, "I mean there were some that were just, I don't know, like, 'in general' people. But there are always a few gems." And I gestured to her, throwing a flirt. But I forgot who I was, who Renee was for just that second. Suddenly the was an accident. Immediately my face embarrassed with my eyes looking away.
 
-We rode the train with a few other direly bored riders. They wore their experiences as if like they were shaken or beaten up. All of them were doing laundry, wearing the shirt they wear on the day they do laundry. I threw a few glances at the crowd, then w few back at the bird.
+We rode the train with a few other direly bored riders. They wore their experiences as if like they were shaken or beaten up. All of them were doing laundry, wearing the shirt they wear on the days they do laundry. I threw a few glances at the crowd, then snuch a few back at the bird.
 
 "I didn't talk too much. You werked a... Sha-me technologies? SHA-ke? La-ke?" She pronounced slowly, stuttering, wavering like a rag on a rustled laundry line (clothespin).
 
@@ -92,4 +92,4 @@ We rode the train with a few other direly bored riders. They wore their experien
 
 She smiled wearily, "Yea I'm going to my brother's this weekend. We always fight over the car, but I'm getting it this time," she lifted her index finger high up above her nose, "I made sure of that."
 
-The train shook something off, it wavered and she almost fell into me. I held her balance and got the last scent of her fading perfume. I held her for a few seconds as she muttered a tiny appreciation and her weby red eyes smiled into mine. The train stopped and she got off chucking a goodbye at me just before the doors closed. I watched her wobble up the stairs, looking back once as we pulled away.
+The train shook something off, and as it wavered the bird almost fell into me. I held her balance and got the last scent of her fading perfume. I held her there for a few seconds as she muttered a tiny appreciation and her weby red eyes smiled into mine. The train stopped and she got off chucking a goodbye at me just before the doors closed. I watched her wobble up the stairs, looking back once as we pulled away.

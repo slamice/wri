@@ -1,6 +1,6 @@
 Chapter 16. Diana Is Invited to Tea with Tragic Results
 
-Anne herself stared the summer sun down and now collected the rotting foliage, the trees fallen yellow tears shed from the weather's mirth to the earth. The Fall began, one Anne lest forget.
+Anne herself stared the summer sun down and now collected the rotting foliage, the trees fallen yellow tears shed from the weather's mirth to the earth. The Fall began, one Anne lest best forget.
 
 Anne raked what she thought could fashion some kind of color into her dreary dull brown room. And who knows? "You can never be too prepared, chomping down on a maple isn't so bad as being hungry." she heard herself saying. Compost or dinner roast, she carried some dry gold mulch in large black bags, kicking the other few back home.
 
@@ -132,7 +132,7 @@ Anne finally sobered herself up and shed her childlike tendencies and thought it
 
 "Give me a fricking break lady. What kind of lip service do you want from me? I gave her a corker... And? My other friends are pathetic compared to Diana. Their all in her shadow and stuff. In fact there are none. Geez, Louise."
 
-Mrs. Barrymore's rock face somehow conjugated into Titanium. "Geez Diana." She tried to correct her, "You can no longer see her. She's gone with her father carmodying somewhere. You aren't fit to associate with Diana anymore. She is no longer your associate. That is a FIRM. FIRM DISASSOCIATIONING!" Mrs. B grabbed the door and slammed it, a few splinters sprayed and dug into Anne's nose. She walked distraught and carefully back to the Gables, the greenery hueing in sadness.
+Mrs. Barrymore's rock face somehow conjugated into Titanium. "Geez... Diana?" She tried to correct her, "You can no longer see her. She's gone with her father carmodying somewhere. You aren't fit to associate with Diana anymore. She is no longer your associate. That is a FIRM. FIRM DISASSOCIATIONING!" Mrs. B grabbed the door and slammed it, a few splinters sprayed and dug into Anne's nose. She walked distraught and carefully back to the Gables, the greenery hueing in sadness.
 
 "What is this world" the thought in her mind, "What makes you fail, what makes you grow?" She stared at her hands as she walked up stairs, and told Mrs. Plebbers as she walked back in "I do not believe that God himself can untie that woman's tied, obstinate heart."
 

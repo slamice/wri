@@ -13,7 +13,7 @@ Anything eaten too early in the morning I gagged on. Apples, oranges, toast. The
 
 The morning met my gaze. It glared a mean hello. The day was bright and cheery and yet profoundly and beautifully mundane. My button up was too big for me, like someone threw a blanket on a chair and it just sat there. I wore it anyway. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelted in a rage.
 
-Everyday I shaved and tapped the razor handle against my hand so it would vomit out the hair. Before, Renee could hear the tapping against the sink in her dreams. It was far too loud and she hated waking up in the morning to it, tiny hair spraying against the sink so early. "No one does that, it's incessant and tiring." then she mimed an exaggerated throw down of a huge razor to the floor.
+Everyday I shaved and tapped my razor handle against my hand so it would vomit out the hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it, tiny hair spraying against the sink so early. "No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
 
 The room defined askew. The bag of my socks were under random bits of clothes and books. It was pretty late but the only way to find anything was to start cleaning. Around laid trash bags of clothes and boxes unopened, half opened, opened for business, closed, etc and etc. A thin coat of stuff covered the floor and I tip toed over it. Our apartment was above a shifty limousine dispatch, neighboring a recycling office.
 
