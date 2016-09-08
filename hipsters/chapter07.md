@@ -11,9 +11,23 @@ It was tasteless, the thing i was drinking. It sat in a pool of itself, and didn
 
 
 
+-- Talk about person based on damo -
+
+"He stayed over at my place." He said it with a huge smiling smug mug.
+
+"What's he like?"
+
+"He's unreal, honestly. I mean ow he's pretty old, like sixty or so, but he still has a thick German accent. He smoked up a lot when we were there. I don't have a car either so I had to pay for his taxis, since he was getting older he couldnt walk much anywhere."
 
 
 
+
+
+
+
+(White Lung - Atlanta)
+
+And you explode.
 
 
 
