@@ -19,7 +19,7 @@ Michael and I caught up at lunch. He enjoyed sports so much he only talked about
 
 Michel shrugged "The joke is on them honestly. We've already all been through years of signing up and just staying at home after a few weeks."
 
-Lunch as always almost over.
+Lunch is always almost over.
 
 
 

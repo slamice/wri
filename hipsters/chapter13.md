@@ -21,7 +21,11 @@ My phone hummed my Dad, and I sluggishly floundered to pick it up.
 
 "Yea Dad?"
 
+"Yea son? That's a new thing to say to your Dad."
 
+"Sorry," as I poorly hid my distracted voice. "What's going on?"
+
+"Well son I wanted to tell you when you were here but you couldn't make it. I have your Mom here with me and "
 
 I didn't find it necessary
 to take responsibility
@@ -31,4 +35,8 @@ to take responsibility
 
 ---------
 
-I'm so tired that I did nothing.
+"What? I'm a feminist. He's completely allowed to do that."
+
+I waved an exhaustive "Ok, later." Selina said nothing as I walked down the street. It had a slight hill to it and my feet stuttered down at a bit of a speed.
+
+I'm so tired after doing nothing.

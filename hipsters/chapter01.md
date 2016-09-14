@@ -87,8 +87,6 @@ Renee was awake. It was impossible to tell. Sitting in bed, topless, her posture
 
 "Om can you turn on the washing machine again? I forgot to put the clothes in the dryer. Wash them again so they don't get moldy."
 
-"You didn't go to the hospital?"
-
 "Did you happen to check the mail?" I perked my ears up a bit.
 
 "No, I had to hurry to work today and didn't have time. I didn't feel like waiting for them, seems busy now too." Her eyes were still glued to the screen, the cat yawned for attention.
