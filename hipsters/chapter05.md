@@ -37,6 +37,12 @@ A mop of curly hair and tattered clothes brought in her bike and ordered two smo
 
 My food finally arrived, humbly placed before me by a tattoo sleeve. It went down mindlessly.
 
+
+
+--------------- Try to make conversation a but more awkward and more silence to show the relationship between the father and Om better. -------------------
+
+
+
 "What are we doing Selina?" I looked at her. She stared back at me like a smiling ghost, as pale as one. Her glasses were huge.
 
 "We're having the burrits."
@@ -44,19 +50,6 @@ My food finally arrived, humbly placed before me by a tattoo sleeve. It went dow
 "We need to go on that tour. It's no joke. We need that tour. Even if we only travelled a week... I'd take it."
 
 "It'd be longer than that anyway. They're going to P_______, have you ever been there? I haven't been anywhere really."
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 On our way back my phone hummed. "Hello?"
 
@@ -70,15 +63,42 @@ On our way back my phone hummed. "Hello?"
 
 "I'm doing good, your Mom has problems."
 
-"What happened to Mom?" I hastened a wave goodbye to Selina as my ear plucked up attentively.
+"What happened to Mom?" I hastened a wave goodbye to Selina as a shock enveloped me.
 
-"Oh she's just depressed about some things, I don't know what to do with her. When are you coming back?"
+"Oh she just depressed about some things, I don't know what to do with her. Always try to make her happy. She's fine, don't worry though. When are you coming to visit son?"
 
+"I told you Dad I can't come back without the visa."
 
+"When do you think you'll have it?"
 
+"I'm not sure honestly, some time soon I hope. I check my mail everyday."
 
+"You said that last time, we just haven't seen you in forever."
 
+"I told you," I said sighing, "You can come here anytime."
 
+A shuffling then a pause, "Well son for everyone to come it's not possible. Anyway, your brothers will be here in May so if you can make it please come."
 
+I leaned on a wall commanding to "POST NO BILLS". "If anything changes I'll come as soon as possible."
+
+"Ok good."
+
+"Is Mom ok?"
+
+"Yes she's fine. No problem. I'm just talking son. Did you reach the next level at your job, son? When are you going to be the manager? Are you managing people?"
+
+"The next level? No not yet."
+
+"Ok well please do son. You know it's what's best for your future. I'm only giving advice and my opinion, but it's for your future."
+
+"I know Dad."
+
+"Ok well son I'm going to go. Say hi to what's her name? The french one?"
+
+"Renee. Yes I'll say hi to her."
+
+"Ok great. Have a good day son. Ok Bye."
+
+"Bye Dad."
 
 Fairly later, our company's gym sponsored a cruise once a year. Its' hopes were to spin some people around the rivers while pitching their guests to join a year long contract to sweat, hoping they just pay and don't actually show up.

@@ -5,14 +5,10 @@ The Russam family
 Have you ever heard of the Russam family?
 
 
-1sobigar
 
 Here they are together. From left to right:
 
-
-
-
-father Mariam  big brother  Rumi  big brother  Zain ...   and Ruby, their bird
+father Mariam  big brother Rumi  big brother  Zain ...   and Ruby, their bird
 
 
 
@@ -73,45 +69,21 @@ The room was absolutely silent. Zain held his breath and gulped down a thick gul
 
 What happened next every historian confuses. Some people say the czar suffered from a heart attack or indigestion,  while others say it was a stroke.
 
-
-
 But what really happened was nearly impossible. People can barely explain it. But sometimes truth is stranger than fiction, and the truth is this.
 
+Ruby tilted her head and looked at the pieces. The Russam family leaned in closer.
 
-
-Ruby tilted her head and looked at the pieces.
-
-
-
-The Russam family leaned in closer.
-
-
-
-Vlad The guard touched the blade of his axe.
-
-
-
-The Czar slowly smiled a twisted smile.
-
-
+Vlad The guard touched the blade of his axe. The Czar slowly smiled a twisted smile.
 
 Then, looking at the board, he frowned in disgust.
 
-
-
 Ruby walked over and grabbed one piece with her beak. She then put it back on the board.
 
-
-
-"Checkmate" Ruby said. With one move, She made it the best in chess history.
-
-
+"Checkmate" Ruby said. With one move, she defeated the czar and made the best move in chess history.
 
 "What?!" The czar screamed a huge scream, the whole palace heard it.
 
-
-
-His shame, honour and dignity were all shattered. His was angrier than all his previous angers. His blood boiled, so much so that he boiled himself from the inside. He took one last gasp at Ruby, then fell back in his chair dead.
+His shame, honour and dignity were all shattered. His was angrier than all his previous angers put together. His blood boiled, so much so that he boiled himself from the inside. He took one last gasp at Ruby, then fell back in his chair dead.
 
 
 

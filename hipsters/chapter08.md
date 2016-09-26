@@ -92,4 +92,21 @@ We rode the train with a few other direly bored riders. They wore their experien
 
 She smiled wearily, "Yea I'm going to my brother's this weekend. We always fight over the car, but I'm getting it this time," she lifted her index finger high up above her nose, "I made sure of that."
 
-The train shook something off, and as it wavered the bird almost fell into me. I held her balance and got the last scent of her fading perfume. I held her there for a few seconds as she muttered a tiny appreciation and her weby red eyes smiled into mine. The train stopped and she got off chucking a goodbye at me just before the doors closed. I watched her wobble up the stairs, looking back once as we pulled away.
+The train shook something off, and as it wavered the bird almost fell into me. I held her balance and got the last scent of her fading perfume. I held her there for a few seconds as she muttered a tiny appreciation and her webby red eyes smiled into mine. The train stopped and she got off chucking a goodbye.
+
+---------- Plot change, Om leaves with Bird --------
+
+But before the doors closed my chest tightened in a mess of guilt and nerves. I stepped out behind her and said "where are you going?"
+
+"I'm going to my apartment." She slurred and wobbled on her legs. She looked at my face and squinted like she was trying to find an object in a painting.
+
+"How about we go for a coffee or something?"
+
+
+
+
+
+
+I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling.
+
+"No fun" she said.
