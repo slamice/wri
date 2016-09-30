@@ -1,0 +1,75 @@
+Based on Phone Booth in Japan for episode 597 of this American life
+
+
+The tsunami that hit was on a lesser known coast in Japan. Many people died, over 400 were missing and being missed.
+
+
+
+
+
+
+
+
+One man, who lost his father in the tsunami, erected up a phone booth in his backyard. The booth was designed to call those missing loved ones.
+
+Many people ended up simply showing up in his backyard by the hundreds. Some travelled from hours away. Most were family and friends of the missing, some were drawn to the unearthly appeal of the phone, while still more lost their family in accidents unrelated to the tsunami and came to give their respects to their family who died of more natural causes.
+
+=-=-=-=-=
+
+1.
+
+2. Father was absent
+
+
+5. Father and kids driving back from mother's place die.
+...
+
+10. Mother is dead, calls the phone
+
+
+
+
+
+
+
+=-=-=-=-=-=-=-=
+
+3. Riding here on the public bus, most of the city was still under reconstruction. Some people stayed but most couldn't come since they lost everything. So they came back to nothing. There was plenty of nothing in other places so they stayed where they were for quite a time. I can see the makeshift centers the government put up for them. All tiny tented houses in rows after rows.
+
+Even though I knew the address I was keenly trying to forget it. My heart was thoroughly confused on all the different emotions that come with this situation. Sadness, excitement, depression... But the one that kept wanting to turn me back was nervousness.
+
+"Hey." It said in a high pitched, quiet voice.
+
+"You're bugging me."
+
+"You don't have to do this. There's a reason your Dad is lost, flung into the ocean or pulled apart or pushed into the ground."
+
+"Shut up." my legs fidgeted, and I rubbed them, "You're cruel and horrible."
+
+"I'm just saying, there's nothing to worry about but... You should worry. What if he says nothing?" the nervousness danced in my gut, slapping itself against its walls and forever pacing up and down my throat.
+
+
+
+
+
+
+
+The phonebooth was on the hill
+
+My father was never much of a talker.
+
+
+
+
+
+------- For other stories of people talking on the phone ignores the scenery coming in --------
+
+
+
+
+
+- Last person in phone booth actually gets a call from the dead
+
+
+
+The voice was without any static and it appeared so clear, as if it was almost in his thoughts were it not coming from a telephone hook. He found it a relief that the afterlife's connection was better than the networks he was used to.
