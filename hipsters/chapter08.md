@@ -102,11 +102,33 @@ But before the doors closed my chest tightened in a mess of guilt and nerves. I 
 
 "How about we go for a coffee or something?"
 
+She looked at me with smiling red eyes and crossed her arms, leaning against a pillar and crossing her legs. "You think that's a good idea? You think your girlfriend would be up for that?" She wavered like a leaf about to fall off.
+
+"I just figure you should sober up before going back to your boyfriend's place." My heart beat in my dry throat.
+
+"Ok, yea that's a good idea why not."
+
+"Why naut why naut..." she teased, as I helped her up the steps.
+
+We chatted about nothing.
 
 
 
 
+I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling.
 
-I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling.
+"No fun" she puckered her lips and fell back a bit. "Where's your girlfriend?"
 
-"No fun" she said.
+With too little hesitation (((make this less obvious))), "I don't have one."
+
+"You're a liar."
+
+"You're a cute liar. Where's your boyfriend?" Wherever is convenient.
+
+"... What do you do again?"
+
+"I don't know didn't I told you twice already."
+
+
+
+I wiped at my face and brow with a napkin to get the perfume out.

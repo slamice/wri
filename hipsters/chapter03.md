@@ -4,15 +4,15 @@ Om feels disengaged and tired. The point of the chapter is to show how Om has wh
 
 ------------------
 
-Mostly, those days, we kept to ourselves, Renee and I. The reality Romcoms poured from our tv like an open facet, spilling and straining the room, ruining the wallpaper. Misunderstood nerds loving curly haired attitude women. One dimensional machos winning over dysfunctional girls only alive to mall and bawl. One obsessed with mancaves, others makeup ran down their angry sad faces. There were a few plots where they all ate together and incested incestually off each other.
+Mostly, those days, we kept to ourselves, Renee and I. The reality Romcoms poured from our computer like an open facet, spilling and straining the room, ruining the wallpaper. Misunderstood nerds loving curly haired attitude women. One dimensional machos winning over dysfunctional girls only alive to mall and bawl. One man obsessed with mancaves, other girls caked with makeup running down their angry sad faces. There were a few plots where they all ate together and incested incestually off each other.
 
 Before the onslaught, Renee barely showed up to anything. There was some kind of mystery going on. The drugs? Or her job? Or an incredible literate social circle who read books at home constantly?
 
-I knew her ex-lover though. I knew Andrew almost too well. He was so articulate I was almost jealous until I hated him after I found out he sucked. Every show featured him in the audience, and we talked and we stoned until we were down and out all those nights. A person of the world, he persona'ed hard. His persona was gifted in being interested in many things nature until they aggravated him and he restored through video games.
+I knew her ex-lover though. I knew Andrew almost too well. He was so articulate I was almost jealous until I hated him after I found out he sucked. Every live music venue featured him in the audience, and eventually we talked and we stoned until we were down and out all those nights. A person of the world, he persona'ed hard. His persona was gifted in being interested in many things nature until they aggravated him. Nature itself abused the world. Finally he restored through video games.
 
-I met Renee with him on the subway. We were on our way to a house party and her and Andrew's car were on the other track. She finally showed up with him. I looked in as our cars passed each other, into a floating room of people. It felt evasive and vouyourish. The cars sped on until much later. I only remember her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night.
+I met Renee with him when they were together on the subway. We were on our way to a house party and her and Andrew's car were on the other track. She finally showed up with him. I looked in as our cars passed each other, into a floating room of people. It felt evasive and vouyourish. The cars sped on until much later. I only remember her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night.
 
-The party was a ton of leaning. Against furniture, walls... That's it. The conversations were hefty doses of unreality. We philosophized about who worked where in the city, really, and what that entailed.
+The party was a ton of leaning. ((Against furniture, walls... That's it.)) The conversations were hefty doses of unreality. We philosophized about who worked where in the city, really, and what that entailed.
 
 "Non profit Radio station Manager"
 

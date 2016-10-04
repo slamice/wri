@@ -38,9 +38,16 @@ Samir's eyebrow twitched and he felt himself waking up a bit. He looked out a wi
 
 * Stop after bloody stop. The oval brightness turned to dark round greyness. It passed quicker and quicker, only the pipes remained in constant view. While the train slowly accumulated rowdy racketeers, Samir pondered the people who still rode with him. The quiet straw hatted African American lady in the corner stared beyond nothing. The Spanish family continued to chat in brief spurts to each other. Samir studied all their faces. They were completely without any doubt. No one was surprised in the least that the world kept changing.
 
-~ The announcer was barely audible above the static that suddenly crashed into the car, but Samir then heard a recorded voice but barely understood the accent, "The next station is Marble Arch".
+~ The announcer was barely audible above the static that suddenly crashed into the car, now equipped with an accent, "The next station is Marble Arch".
 
-Samir sat there, still, as the talkative bunch got off the train, bumbling. An older balding man stepped on, brutally tired out of his mind as he sank into his seat. And then the train doors closed, and continued on.
+A few talkative bunches got off the train, bumbling. An older balding man stepped on and sat opposite to Samir. And they continued on.
+
+
+
+
+
+
+
 
 He wondered about his sanity. Maybe he was getting taken back, back to the end of the world, back to the nothing.  He prayed while the whooshing sound of the train nestled into his heart and punched it slowly from the inside, beating harder and harder. Samir sat there in silence, wishing he'd studied more english and biology.
 
@@ -50,7 +57,7 @@ Eventually the tunnel lights grew lighter. Samir slumped as they flushed down de
 
 A small jet black haired kid sat next to Samir as his mother stood in front of him. The kid held out a flat aluminum papered stick between his fingers. "¿Chicle?" he offered. His mom glanced at both of them and smiled.
 
-"No, thank you." Samir smiled back, but then he realized "Excuse me, excuse me. Where is here?"
+"No, thank you is ok." Samir smiled back, but then he realized "Excuse me, excuse me. Where is here?"
 
 "Qué?" she asked him.
 
@@ -65,7 +72,7 @@ A small jet black haired kid sat next to Samir as his mother stood in front of h
 As the people moved on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. Eventually Samir tired of sitting. He began to feel stale and bland on top of panicked. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
 
 ===========
-He tried pulling teh emergency break and some people looked at him, the break did nothing.
+He tried pulling the emergency break and some people looked at him, the break did nothing.
 -==========
 
 He knocked on the door once, harder again, pulled at the handle, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice. He felt a bit like a spirit but without the haunting. Like a failed ghost.

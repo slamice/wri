@@ -8,17 +8,17 @@ Ch11. Wedding + dock fight
 
 The autumn weather ruffled us as I walked there with her. The serenity of the situation was dying down but still trying to grope me in all the wrong places.
 
-The lady bug skirt Renee wore bunched at her knees.
+The lady bug skirt Renee wore bunched at her knees. ((make her sound gross here))
 
-The modern couple bore exact resemblance to each other holistically. They met on a boat to the island eight years ago. Their dreams together were spent in cafes, camping, back in her French hometown. She accentuated every mutilated word and he drank them all in, a bit dripping down his beard. I knew everyone, not by name and barely by face.
+The modern couple bore exact resemblance to each other holistically. They met on a boat to Govener's island eight years ago. Their dreams together were spent in cafes, camping, back in her French hometown. She accentuated every mutilated word and he drank them all in, a bit dripping down his beard. I knew everyone, not by name and barely by face.
 
-We arrived almost too late at the park and positioned ourselves behind the Parisian mother. Her brooch slowly ate at her shirt black jacket, but she didn't notice because her nose was pulled up to the sky by a fish hook. She shook, smiling and distraught at her daughter. A single bead of sweat dared not come down her wrinkled forehead.
+We arrived almost too late at the park and positioned ourselves behind the Parisian mother. Her brooch slowly ate at her shirt black jacket, but she didn't notice because her nose was pulled so high up to the sky by a fish hook. She shook, smiling and distraught at her daughter. A single bead of sweat dared not come down her wrinkled forehead.
 
 The ceremony lasted roughly ten minutes. The priest put down his beer and settled on the podium, leaning against a stand for bocce players to keep their score. It was far enough to ignore their game.
 
 The sermon raged socio-political arguments at the church. A few 'likes' and 'hmm's were thrown in for good measure, all the while the couple smiled into each other's faces. Beaming a few beams at their immigrant parents. Some of their friends hung their heads low and their backs were turned out on invisible hooks.
 
-Rice was tossed along with a few slinkies. The headed towards a picnic table full of strawberries, cake and salmon.
+Rice was tossed along with a few slinkies. They headed towards a picnic table full of strawberries, cake and salmon.
 
 Suddenly a traveling quartet arrived. No one claimed them for the wedding, but they trailed up to us slowly. Someone laughed earnestly that this was the bride's French gypsy roots bringing some home with solemn symbols crashing and dancing. The oompa loompa band danced forward and stopped in front of the couple. The finale was a ten second free jazz sax solo, and they held it out with their hands on their knees with wide eyes, almost in tears. No one was speechless and we talked over their looks.
 
@@ -28,7 +28,7 @@ Suddenly a traveling quartet arrived. No one claimed them for the wedding, but t
 
 The oompa-loomps band jawed and jeered thick horn drawls and hard drum beats at us. We watched wide eyed, smiling and puzzled.
 
-Thin man Dan walked out in front of us. He was a tall pencil head who played a tenor sax like a gift teasing us. The band quieted their harmonies until it was only him playing. He did a jig soloing to the air, and all at once stopped suddenly. We all clapped profusely at his talent and beret.
+Their ring leader, Thin man Dan walked out in front of us. He was a tall pencil head who played a tenor sax like a gift teasing us. The band quieted their harmonies until it was only him playing. He did a jig soloing to the air, and all at once stopped suddenly. We all clapped profusely at his talent and beret.
 
 "Friends!" He raised his arms. "We don't know you but applaud this hefty wager you're playing with life. We're all with you, but we're gambling just by throwing in our hats," he tipped his dusty top hat off. It landed with a tiny crunch on the grass. Dan paused. A few people glanced at the hat then back at him. "Shakespeare once said in a mixed review play" he bellowed "'All the world is a stage! You get hitched and life's a bitch!' So please let us be your audience and see through it that you have a happy ending."
 
@@ -93,17 +93,17 @@ He thought for a moment, "No, I don't th--"
 
 "THIS IS FUCKING IMPORTANT ASSHOLE, You fucking took that letter from ME, from MY ROOM. YOU INVADED MY PRIVACY, YOU FUCK."
 
-"Dock calm down!" Renee yelled, now concerned, queerly intent on what looked like teh beginning of a fight. A vein or two appeared on Dock's neck and/or forehead. Whatever.
+"Dock calm down!" Renee yelled, now concerned, queerly intent on what looked like the beginning of a fight. A vein or two appeared on Dock's neck and/or forehead. Whatever.
 
 "Wait, what was this for? What is this letter?"
 
 "It was her visa so she could stay in the country." Dock hissed.
 
-He tried really hard to remember what he did, and suddenly manifested in his mind an image of him grabbing something from the top of a pile of papers. He remembered the request now from Gaby. He remembered he found it odd because she never asked anything of him. The only thing that bound them together was their flakey friends.
+He tried really hard to remember what he did, and suddenly manifested in his mind an image of him grabbing something from the top of a pile of papers. He remembered the request now from Gaby. He remembered he found it odd because she never asked anything of him. The only thing that bound them together was their flakey friends at the time.
 
 "Dock, oh my God I'm sorry, I didn't even think about it, I'm so sorry. But she needed that to stay in the country, no? Were you even dating her th-"
 
-"You violated my privacy," Dock steamed, very pale. "You dented my blood. I was going to use that letter to confront her. BUt you fucked that up. You fucking asshole, I will NEVER forgive you. You CROSSED ME." And Dock charged at him, throwing a punch in his stomach. It wasn't hard, but the shock was. He felt violated somehow. Dock walked right through him and didn't look back.
+"You violated my privacy," Dock steamed, very pale. "You dented my blood. I was going to use that letter to confront her. But you fucked that up. You fucking asshole, I will NEVER forgive you. You CROSSED ME." And Dock charged at him, throwing a punch in his stomach. It wasn't hard, but the shock was. He felt violated somehow. Dock walked right through him and didn't look back.
 
 "What the hell Dock?!" Renee shrieked, but Dock kept going. He took a step back and tried to understand if he was hurt. At that moment his temper shot up like Renee's ex, and he bellow a scream. "You idiot?! You think you got some kind of revenge? Over some kind of stupid plan you- FOUR YEARS AGO?! You moron! I apologized and you still hit me!"
 
@@ -113,7 +113,7 @@ But dock marched on, standing up taller now, shoulders straight. Dock slowly fad
 
 A second shock overcame me, "What?!" I shot her a hard look, but it couldn't penetrate anything.
 
-"You know why. He's right, he's bad but a better person than you. You're wrong about so many things but you just don't see it. You're not a nice guy, you need to know that." Her words stood in the air, dancing and stomping hard on my head, then crashed a car into it, sending it hurtling off a cliff. In angry awe I mulled these words over in my mouth like a baby's challenge and finally started to care enough to hate her.
+"You know why. He's right, he's a better person than you. You're wrong about so many things but you just don't see it. You're not a nice guy, you need to know that." Her words stood in the air, dancing and stomping hard on my head, then crashed a car into it, sending it hurtling off a cliff. In angry awe I mulled these words over in my mouth like a baby's challenge and finally started to care enough to hate her.
 
 "Are you for real?! Is this real life? Do you understand what just fucking happened here?! Do you _understand_?"
 

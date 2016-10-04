@@ -111,6 +111,12 @@ I took the train a few stops. I watched a kid try to find some flab on his mothe
 
 The door was open and surprisingly Renee was gone. The cat whined whinily as I walked in and was heavily ignored. There should have been music, a record playing, something industrial, but I was too lazy to choose.
 
+---------
 
 
-That night I laid dumb in my bed waiting. And waiting. Not for Renee.
+
+
+
+Renee slept next to me with the cat lazily on top of her.
+
+That night I laid dumb in my bed waiting. And waiting. ((Not for Renee.))
