@@ -20,9 +20,46 @@ Walking back to my desk, I smiled back and my heaved a sigh. All the jeans and l
 
 My anxieties played and the words and symbols danced the rest of the day around my screen in front of a picture of a mountain top I only just noticed. (((couldn't see the desktop picture)))
 
+I went to the bathroom. Post lunch, the mirrror wasn't clear, bits of dust and floss aftermath speckled it. A headache was stirring up from the back of my mind. It began reeling, slowly, until it nestled snug right behind my immediate thoughts.
+
+I waved at the faucet to spray out a tiny cold shower of water. It hit my hand but felt at first numb, then very cold. Each drop threw itself dying on my hand, rolling dead down the drain. I wiped my face and kept my hands there. What was wrong with me?
+
 ---------
 
 It was a slow slog and schlog. I don't remember much that day,
 
 
 ---------
+
+
+
+-pyshcological headaches-
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

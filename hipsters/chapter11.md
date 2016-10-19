@@ -40,8 +40,6 @@ It turned out Renee knew many people here. Marty was an ex-boyfriend and former 
 
 "Evangeline!" Renee exclaimed.
 
-A Polka dotted apron skirt with a grey shirt white collar hung off her. Two ear piercings per ear. White socks black shoes. Short short hair. Long eye lashes.
-
 
 
 
@@ -93,7 +91,7 @@ He thought for a moment, "No, I don't th--"
 
 "THIS IS FUCKING IMPORTANT ASSHOLE, You fucking took that letter from ME, from MY ROOM. YOU INVADED MY PRIVACY, YOU FUCK."
 
-"Dock calm down!" Renee yelled, now concerned, queerly intent on what looked like the beginning of a fight. A vein or two appeared on Dock's neck and/or forehead. Whatever.
+"Dock calm down!" Renee yelled, now half concerned half laighing, queerly intent on what looked like the beginning of a fight. A vein or two appeared on Dock's neck and/or forehead. Whatever.
 
 "Wait, what was this for? What is this letter?"
 

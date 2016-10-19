@@ -93,8 +93,15 @@ Renee was awake. It was impossible to tell. Sitting in bed, topless, her posture
 
 "I'm trying to be patient I swear..." I flipped through my vinyl and wondered which record would numb effectively. Most were hygenicized, trapped in clear plastic. The 70's, 80's, 90's underground flip by. Nothing was jarring enough to procrastinate to. I shed so many tears over those new wave, no wave, ho wave genres and perhaps they dulled me. Good or bad goosebumps with every listen. Finally I settled on something with a really light voice  to some ambient piano, and started up dinner.
 
-The kitchen was only a tiny mess compared to the living room. Dishes weren't piled high enough to call it a disaster. I don't remember what I cooked that night, but I do remember it was bland. I was following a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Om. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. I took her challenge as an excuse to make something creative. My mouth took it as a challenge to taste any flavor.
+The kitchen was only a tiny mess compared to the living room. Dishes weren't piled high enough to call it a disaster.
+Renee gave me a juicer from the 70's, incredibly powerful and just as hard to clean. Fruit flies laid back on lawn chairs on it, sunglasses and a bit of smoothie in their tiny glasses. Occassionally they flew up a bit and waggled around looking for another spot. 
+
+I don't remember what I cooked that night, but I do remember it was bland. I didn't let her cook anyway. She burnt curry once and that was her introduction and goodbye to the kitchen.
+
+Most of the things I made were courtesy of a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Om. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. I took her challenge as an excuse to make something creative. My mouth took it as a challenge to taste any flavor.
 
 Outside stood the vacant parking lots and warehouses, limos occasionally drive to and fro. The window made a frame to the distant city and the reddening horizon. The New York sun wasn't at all like in Lebanon. Somehow it felt bigger there, pulsing with blood and vigor as it slid down the sky.
+
+A heard the lady selling clothes, yelling in the distance "socks socks underwear tanktop!" 
 
 After dinner and before I slept I sighed downstairs, but they said nothing came that day. There was no mail.

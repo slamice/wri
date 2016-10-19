@@ -21,11 +21,9 @@ Michel shrugged "The joke is on them honestly. We've already all been through ye
 
 Lunch is always almost over.
 
-
-
 We hibernated in this city. I felt lazy and slow, floating from coffee shop to sushi shop day in and day out. Renee called me often whining she'd rather stay in than go out. I read a few novels quietly soaking in imaginary lives.
 
-So I welcomed the frequent concerts Selina and I tagged along to. Usually we'd head to Headless Burritos afterwards ordering tightly tin foiled pockets of cheese and beans. A weak white pillar to devour. After a concert there was a lot of heavy petting on backs and heads. Good jobs and great sound, regardless of the noise and genre.
+So I welcomed the frequent concerts Selina and I tagged along to and played. Usually we'd head to Headless Burritos afterwards ordering tightly tin foiled pockets of cheese and beans. A weak white pillar to devour. After a concert there was a lot of heavy petting on backs and heads. Good jobs and great sound, regardless of the noise and genre.
 
 One night after a noise rock show Selina and I sat silently in our common burrito shop, watching people revolve in and out. For each customer a vegan bean wrap in one hand and a coconut water in the other.
 

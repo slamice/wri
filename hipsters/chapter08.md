@@ -6,7 +6,7 @@ Ch8. Om takes the cruise. His loneliness plays out here and explains a corporate
 
 Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl at the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
-Alone, I threw away the other ticket and went to the dock on a Wednesday after work. A plastic Leigh was draped over my head, as if it were knighting me before stepping aboard. I walked slowly onto the yacht, a bit cautious, perhaps overly so, but one can never be too sure can they? I couldn't help but be excited though. I could see the city now from so many angles.
+Alone, I threw away the other ticket and went to the dock ((Some refernece to dock?)) on a Wednesday after work. A plastic Leigh was draped over my head, as if it were knighting me before stepping aboard. I walked slowly onto the yacht, a bit cautious, perhaps overly so, but one can never be too sure can they? I couldn't help but be excited though. I could see the city now from so many angles.
 
 The older men and women had tattoos covering their biceps and thighs, tired of the idle chatter strategy. Their expressions and the color in their faces both ran, drained from conversing a life of tans and cocktails. The tiny younger crowd was vivid, each member giggling but unsure. They wrestled with basic facts, looking out over at the city and neighborhood waters. The buildings sip the sky and their plastic alcohol cups sip them. There was a bit more to it but I wasn't paying attention.
 
@@ -110,12 +110,13 @@ She looked at me with smiling red eyes and crossed her arms, leaning against a p
 
 "Why naut why naut..." she teased, as I helped her up the steps.
 
-We chatted about nothing.
+We went to a diner and we barely chatted about nothing. he head rolled around as she sobered up, all over the table and against the booth. She started bored and forced a few laughs, then eventually real ones.
 
+An hour later she was much better, but while we were still tired, we walked down small twisted streets. We found a stoop and rested there before it became awkward.
 
+She told me more about her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she she aimed for New York. She flailed and writhed until she perched on a branch at a hedgefund as a junior accountant. She's been friends with New York all her life.
 
-
-I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling.
+At that point I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling.
 
 "No fun" she puckered her lips and fell back a bit. "Where's your girlfriend?"
 
@@ -123,12 +124,14 @@ With too little hesitation (((make this less obvious))), "I don't have one."
 
 "You're a liar."
 
-"You're a cute liar. Where's your boyfriend?" Wherever is convenient.
+"_You're_ a cute liar. Where's _your_ boyfriend?" Wherever is convenient.
 
 "... What do you do again?"
 
 "I don't know didn't I told you twice already."
 
+Stomach pangs of guilt rapped against its walls, with a crowbar or something. They were thick, heavy and empty. They piled up in there and stuck, but I tried to use them to my advantage and had them try to fuel my intentions.
 
+We were half asleep though, and after we kissed I gave her a fake number which she lazily swore she'd remember and didn't look back.
 
-I wiped at my face and brow with a napkin to get the perfume out.
+Home, I wiped at my face and brow with a napkin to get the perfume out. When I came home I went directly to the shower. Renee was on the bed, topless eating pretzels. She asked me how it was and I said great, and she barely did the laundry so she never knew.

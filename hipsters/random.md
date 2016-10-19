@@ -29,10 +29,7 @@ No, it wasn't very appetizing.
 
 ------
 
-
-
-
-
+Surround ourselves with stuff and ourselves, our own egos, until we can't see nature or anything else beautiful.
 
 
 ----
@@ -158,25 +155,6 @@ It must be all kinds of confusion.
 
 I invited them, at least I initiated a passive invite. When two worlds cross; the drunks with the skids, the attention whores with genuine whores. I stir these pots but there's no cook in sight, and I'll be damned if I have to taste a soup that needs fenugreek.
 
----
-
-The boxes toppled down on me like lead bricks, paralyzingly my legs and torso.
-
-If you have seen one greasy spoon then you get the general idea. But really, you haven't seen them all. There are varying degrees of greasiness following each other.
-
-Bons off broadway, for example, is legendary with high school students and high school student imitators. It is amazing what people will eat. Breakfast is all day, so realistically people are in there around 11 or noon.
-
-While waiting for food you may:
-1. Talk about drunken things that have happened the night before
-2. Stack creamers in a pyramid shape
-3. Shake a creamer until it turns into butter, which takes the entire breakfast.
-4. Writher in disgust as the waiter give you a jug of water, and at the bottom is one of his punk bracelet spikes.
-
-The food is two eggs swimming in oil, with fried frozen hash browns. That experience is $2.99... So about $3.15 with tax.
-
-Of course the real deal is the greasy spoon that is closest when you wake up. The place must be owned by Canadians to make it authentically awful, and as white as the toast you eat there as possible.
-
-We went there, and of course it was crowded because everyone woke up at 11am.
 
 ----
 
@@ -198,9 +176,7 @@ Renee drank all kinds of liqueurs, plant ointments, liver extracts, and anything
 
 
 The offenders sat around the room offending.
---------
 
-Renee gave me a juicer from the 70's, incredibly powerful and just as hard to clean. Fruit flies laid back on lawn chairs on it, sunglasses and a bit of smoothie in their tiny glasses. Occassionally they flew up a bit and waggled around looking for another spot.
 
 --------
 
@@ -299,6 +275,8 @@ The letter fell to the ground, and I kind of lost it.
 Bored as fuck. I've seen these bands. One twice, one thrice, one I haven't seen but I'll probably be disappointed.
 
 
+==================
+
  Venues were getting sparse and landlords were losing their temper for art. Everyone was slowly trying to humiliate them out of town. They sipped their beers and couldn't quite take their tone. Inside the music sped up to a dance rhythm.
 
 The letter in my back pocket was slowly devolving into a sweaty pulp swimming in my pocket. It still read that it was private, and still declared it was from the government.
@@ -379,7 +357,7 @@ The train lurched forward. It trudged against the tracks, stuttering between sta
 
 I am the shit.
 
-(He sucks or is he great?)
+((He sucks or is he great?))
 
 ----------
 
@@ -406,9 +384,8 @@ I saw a taboo, so I said nothing and shrugged perfectly. I'd become a profession
 
 ---------
 
-Chinese lady "socks socks underwear tanktop!"
+The stars look insane
+The stars are insane
 
 ---------
 
-The stars look insane
-The stars are insane
