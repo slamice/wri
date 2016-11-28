@@ -107,7 +107,7 @@ He tried really hard to remember what he did, and suddenly manifested in his min
 
 But dock marched on, standing up taller now, shoulders straight. Dock slowly faded, saying nothing.
 
-"Do you feel good now?! You feel you won something? You coward! Come back and fight this stupid fight like a real man you idiot! ANGUS!" Renee told him to shut up. Dock turned a corner and escaped from hmm. Renee whispered, "You know, you deserve that."
+"Do you feel good now?! You feel you won something? You coward! Come back and fight this stupid fight like a real man you idiot! ANGUS!" Renee told him to shut up. Dock turned a corner and escaped from him. Renee whispered, "You know, you deserve that."
 
 A second shock overcame me, "What?!" I shot her a hard look, but it couldn't penetrate anything.
 

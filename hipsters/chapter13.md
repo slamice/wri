@@ -1,7 +1,11 @@
-The apartment was ridiculously empty. There was only a strewn mess of sheets, my clothes piled in a corner, and a few bottles of spices.
+The apartment was ridiculously empty. There was only a strewn mess of sheets, my clothes piled in a corner, and a few spice bottles ((put something besides "bottles")).
+
+The winter cold came in and my hands felt chapped and whithered. I itched them constantly because of how dry they were, and the skin crept into corners and bled open small cuts. They began to grow red and chapped. No amount of lotion that I barely put on them could solve that problem. They required maintenance I wasn't ready to give them and I decided I didn't care as much and I thought they'd probably heal in summer anyway.
 
 
-If you have seen one greasy spoon then you get the general idea. But really, you haven't seen them all. There are varying degrees of greasiness following each other.
+
+
+Selina invited me for breakfast at Bons on Broadway. If you have seen one greasy spoon then you get the general idea. But really, you haven't seen them all. There are varying degrees of greasiness following each other.
 
 Bons on Broadway, for example, was a legendary diner with high school students and high school student imitators. It was amazing what people will eat. Breakfast is all day, so realistically people are in there around 11 or noon.
 

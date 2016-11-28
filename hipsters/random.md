@@ -22,19 +22,18 @@ Rainbow sporring
 
 ---------
 
+The amount of sushi I ate with cottage cheese was a quesy distaste.
+
 No, it wasn't very appetizing.
 
 
 
 
-------
-
-Surround ourselves with stuff and ourselves, our own egos, until we can't see nature or anything else beautiful.
 
 
 ----
 
-
+If you look down you only see the ground, but if you look higher you see the sky and the clouds.
 
 
 

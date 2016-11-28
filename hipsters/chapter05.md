@@ -1,7 +1,7 @@
 Ch5. Om works and takes up cruise. He argues with his dad on coming back. His job calls him in for lack of attention to detail. Om can't admit his heart is not in his work, but thinks about the fancy hipster barbers, the coffee shop lackeys and the freelance graphic designers, so he holds back on quitting.
 
 
-The office shrunk over the next few weeks. The company lost a major deal in the millions they were counting on. They fired a few extra developers, but not me because my pay was so low. I had no investment in the company, and it only smiled at me everyday like a manager smiles at you when they say hi in the bathroom, or in the hall, or on your awkward quiet way down the elevator.
+My company, to my surprises, was bought out. I had no equity in it though, so I watched people slowly smiled like a manager smiles at you when they say hi in the bathroom, or in the hall, or on your awkward quiet way down the elevator.
 
 Michael and I caught up at lunch. He enjoyed sports so much he only talked about them through all our lunches, even though I knew none of the people nor the rules of any game he enjoyed. He was such an exhuberent talker and I was such an exhuberent nodder we entertained each other every time.
 
@@ -15,7 +15,7 @@ Michael and I caught up at lunch. He enjoyed sports so much he only talked about
 
 "I might. But I don't know how many people I'm ready to fight off to get drunk on their boat."
 
-"I don't know free anything sounds alright to me. But you're right it could be a joke."
+"I don't know... free anything sounds alright to me. But you're right it could be a joke."
 
 Michel shrugged "The joke is on them honestly. We've already all been through years of signing up and just staying at home after a few weeks."
 

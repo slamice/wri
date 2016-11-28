@@ -8,7 +8,7 @@ Michael bailed hard on me. He finally brought up some believable excuse by ignor
 
 Alone, I threw away the other ticket and went to the dock ((Some refernece to dock?)) on a Wednesday after work. A plastic Leigh was draped over my head, as if it were knighting me before stepping aboard. I walked slowly onto the yacht, a bit cautious, perhaps overly so, but one can never be too sure can they? I couldn't help but be excited though. I could see the city now from so many angles.
 
-The older men and women had tattoos covering their biceps and thighs, tired of the idle chatter strategy. Their expressions and the color in their faces both ran, drained from conversing a life of tans and cocktails. The tiny younger crowd was vivid, each member giggling but unsure. They wrestled with basic facts, looking out over at the city and neighborhood waters. The buildings sip the sky and their plastic alcohol cups sip them. There was a bit more to it but I wasn't paying attention.
+The older men and women had tattoos covering their biceps and thighs, tired of the idle chatter strategy. Their expressions and the color in their faces both ran, drained from conversing a life of tans and cocktails. The tiny younger crowd was vivid, each member giggling but unsure. They wrestled with basic facts, looking out over at the city and neighborhood waters. The buildings sipped the sky and the customer's plastic alcohol cups sipped them. There was a bit more to it but I wasn't paying attention.
 
 A very tan woman turned towards me who looked like someone I barely worked with. She wore a flower dress, the only one prepared to feign for the occasion. She talked about her life, her trip to Puerto Rico, her fame as an athletics event organizer at a local gym years back. She cut our conversation short when a bulky French arm tattooed with a Mohican and a few snakes approached her. Out of the scene now, thoroughly blurred, I went past them unobserved.
 
@@ -34,7 +34,7 @@ The Italian girl chattered away a reply at full force, the other sipped through 
 
 Her friend shook her head without regard, "No, I can't." she only looked at her drink.
 
-The ship shrugged and swung in slow motion back to the docks. Patrons became excited, lively, bored, full, happy, tipsy, celebrating, a tiny bit seasick. A few final pictures took in the city lights. The pier welcomed them comely, giving in to their now witless jokes and non-existent drunk charms.
+The ship shrugged and swung in slow motion back to the docks. The riders became excited, lively, bored, full, happy, tipsy, celebrating, a tiny bit seasick. A few final pictures took in the city lights and shadows. The pier welcomed them comely, giving in to their now witless jokes and non-existent drunk charms.
 
 Docked, everyone escaped in a different direction for blocks on end. No one knew anyone anymore except those they came with. I walked home alone, pondering nothing. Cleary though, almost as if it were yesterday. My phone rang, and I remember every detail about my phone conversation with my father on that walk. My thoughts lined up to play back set replies. After coughing a few times I answered.
 
@@ -64,7 +64,7 @@ I thought for a second, wondering if carefully placing my words was necessary. "
 
 "Yes Dad, love you." and I hung up.
 
-There was a relaxed tension in our conversation. My family hadn't been fully together in years since I left. Knowing they were waiting pushed me to stay...
+There was a relaxed tension in our conversation. My family hadn't been fully together in years since I left. ((Knowing they were waiting pushed me to stay...))
 
 My mother used to call me. Once a week I heard her thick Armenian accent telling me she misses me. She must miss us all, I said. My sister married, my brother out of the house. Our conversations became shallow slowly over the years, and soon enough they sounded like short words inscribed in code.
 
@@ -106,13 +106,25 @@ She looked at me with smiling red eyes and crossed her arms, leaning against a p
 
 "I just figure you should sober up before going back to your boyfriend's place." My heart beat in my dry throat.
 
-"Ok, yea that's a good idea why not."
+She stood, silent and confused, leaning against a thick subway beam. "Ok, yea that's a good idea why not."
 
-"Why naut why naut..." she teased, as I helped her up the steps.
+"Why not." I smiled.
+
+"Why naut why naut..." she teased, as I half helped her up the steps.
 
 We went to a diner and we barely chatted about nothing. he head rolled around as she sobered up, all over the table and against the booth. She started bored and forced a few laughs, then eventually real ones.
 
-An hour later she was much better, but while we were still tired, we walked down small twisted streets. We found a stoop and rested there before it became awkward.
+We bought two coffees in a random greek diner and looked at eachother. Her long nose and her straight dark hair betrayed her bloodshot eyes. Her skin looked cold, but I wasn't about to touch it yet.
+
+"You work for a hedgefund."
+
+"I work for a hedgefund" she replied.
+
+"How do you like it?"
+
+She looked down at her coffee and then up, smiling at me. Her smile reached through my mouth deep into my throat, and clutched my chest further.
+
+So an hour later she was much better, but while we were still tired, we walked down small twisted streets. We found a stoop and rested there before it became awkward.
 
 She told me more about her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she she aimed for New York. She flailed and writhed until she perched on a branch at a hedgefund as a junior accountant. She's been friends with New York all her life.
 
@@ -128,10 +140,10 @@ With too little hesitation (((make this less obvious))), "I don't have one."
 
 "... What do you do again?"
 
-"I don't know didn't I told you twice already."
+"I don't know didn't I te-, told you twice already."
 
-Stomach pangs of guilt rapped against its walls, with a crowbar or something. They were thick, heavy and empty. They piled up in there and stuck, but I tried to use them to my advantage and had them try to fuel my intentions.
+Pangs of guilt rapped with a crowbar or something against stomach walls, and I felt them ringing. They were thick, heavy and hollow. Full of worry but empty. They piled up in there and stuck, but I tried to use them to my advantage and had them try to fuel my intentions.
 
 We were half asleep though, and after we kissed I gave her a fake number which she lazily swore she'd remember and didn't look back.
 
-Home, I wiped at my face and brow with a napkin to get the perfume out. When I came home I went directly to the shower. Renee was on the bed, topless eating pretzels. She asked me how it was and I said great, and she barely did the laundry so she never knew.
+Home, I wiped at my face and brow with a napkin to get any scent out. When I came home I went directly to the shower. Renee was on the bed, topless eating small hard pretzels. She asked me how it was and I said great, and she barely did the laundry so she never knew.
