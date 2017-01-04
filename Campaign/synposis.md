@@ -32,6 +32,20 @@ People don't want to care.
 
 
 
+
+
+
+
+
+
+((People being fake)) "What kind of ((fucking?)) costume party is this?"
+
+
+
+
+
+
+
 Actors:
 
 - A true liberal with character flaws and a scandal trying to correct their past
@@ -39,3 +53,21 @@ Actors:
 - A Right wing fanatic with character flaws, commits "Ethical crimes" by lobbying until getting what she wants
 
 Need to draw map for this
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

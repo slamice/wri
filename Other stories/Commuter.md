@@ -2,6 +2,8 @@ Noisily borrowing into the Bronx, the train shook like a heavy set man as it thr
 
 Samir sank into his orange plastic seat, tired. Other commuters drooped like him. The air was so thick with droops you heard them dripping off the seats puddling on the floor. Some of their faces, pock marked, stared blankly at nothing in particular. Others rested, lost in their headphones. A few bodies molded themselves around the train poles, others' asses seeped into the creases between the seats.
 
+Much before thenhe fled alone on a boat, but could never quite grasp the country he finally landed on. He never thought much of the America he was told of. But after escaping form the war, he laid on it exhausted, numb and indifferent. He was an electrician but his English and circumstances presented him as useless. It was just as well, he was too tired to move.
+
 Samir's body exhausted. Today like everyday he labored around the city disguised as a normal person. Within Midtown, he travelled hundreds of blocks for a reason. He was lucky to enough to get work and knew it. His days were spent hidden behind salad bars breaking sweats through lunch rushes. And later, he panted over pants in a laundromat. His body was particularly hairy, so everyday the sweat clung to his back until dark and then finally let go. One long wet pet.
 
 And everyday he rode the train but recognized no one. And no one recognized him back.
@@ -54,7 +56,13 @@ A small jet black haired kid sat next to Samir as his mother stood in front of h
 
 As the people moved on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. Eventually Samir tired of sitting. He began to feel stale and bland on top as the panic settled along with the others. he got up, navigating through the cars. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
 
-He knocked on the door once, harder again, pulled at the handle, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice. A fit of bravery hit him, and he tried pulling the emergency break, but it did nothing. He felt a bit like a spirit but without the haunting. Like a failed ghost.
+He knocked on the door once, harder again, pulled at the handle, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice. Lonely, He felt a bit like a spirit but without the haunting. A failed ghost.
+
+He sighed in frustration, but then a second wind hit him, and bravery pulled him up to the emergency break against the wall. He looked around but no one made eye contact with him. The plastic white handle just sat there on it's dirty and disgusting cord, shivering as the car rattled. Samir braced himself as he put his hand around it, looked back at the distracted faces, and then gave a sharp tug.
+
+The emergency brake must have been broken, or never worked, because it did nothing. He tugged down hard, putting his weight on it, but it was a toy. Samir somehow knew he couldn't stop the train. He wiped his hand on his pants, cursed, and .
+
+
 
 It must have been a good five hours since he got on. Since then he had hopped through all the train cars, memorized their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to the original car he was on. And while heavily distracted with disappointment and confusion, sleep overtook him.
 
@@ -84,7 +92,7 @@ When his eyes opened it was just him with hunger pangs and the only person who h
 
 "No one forcing you ta stay here. You can ge' off anytime."
 
-The conductor breathed out something unpronounceable as the train slowed to a stop. The lady got up pushing past Samir without another word. A rush of cold air gushed in Samir's face. Between huge white pillars a sign read "Алекса́ндровский сад". He saw her hobble off as the doors closed, bobbling bravely away on the bright cold concrete.
+The conductor breathed out something unpronounceable as the train slowed to a stop. The lady got up pushing past Samir without another word. A rush of cold air gushed in Samir's face. Between huge white pillars a sign read "Алекса́ндровский сад". He saw her hobble off as the doors closed, bobbling bravely away on the bright cold concrete. Her dark contrasted the sea of white so much so you could see her slowly walking, alone, down the platform.
 
 Samir didn't feel there was anyone driving the train.
 

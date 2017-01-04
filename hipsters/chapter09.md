@@ -48,11 +48,11 @@ It was a slow slog and schlog. I don't remember much that day,
 
 I thought I'd dillute my shock with Michael, but that's not what happened.
 
-A coffee excuse could work, but when I approached his desk he was hunched over it, in such a deep forboding mood. His fingers heavily smashed on the keys to a black and white screen. Frustrated with the speed fo his computer, he stripped down his workplace completely to barely anything.
+A coffee excuse could work, but when I approached his desk he was hunched over it, in such a deep forboding mood. His fingers heavily smashed down on each key to a black and white screen messed with text. It was a clear sign of frustration to remove all the syntactical sugar, the rainbow of colors that highlighted special parts of the code to aid in development. He stripped down his workplace completely to barely anything to make it run faster. I then noticed, besides his jacket, he threw all his notes out in desperation.
 
-I was seconds away from him before, in a rage, he erected himself furiously to the ceiling and tore the laptop from its cords. He slammed it on the desk again and again, spitting out fuckword after fuckword. A few peices of it flew out, and neighboring cubicles stared at him in confusion. He walked out miserable right by me to the exit. His laptop lay in a mildly unpleasant electronic heap, a box with a broken frame.
+I was seconds away before tapping him on either shoulder but, in a rage, he erected himself furiously to the ceiling and tore the laptop from its cords. He slammed it on the desk again and again, spitting out fuckword after fuckword. A few peices of the machine and his curses flew out to the floor, and neighboring cubicle-ers stared at him in confusion. He walked out miserable right by me to the exit. His laptop lay in a mildly unpleasant electronic heap, a box with a broken frame.
 
-I thought briefly about following him but no one did. We looked at eachother, mulled over the scene again. Slowly the sounds of typing started up again, and they forgot it.
+I thought briefly about following him but no one else did. The entire office looked at eachother, mulling over the scene again. Slowly the sounds of typing started up again, and they forgot it.
 
 
 
@@ -66,7 +66,7 @@ I thought briefly about following him but no one did. We looked at eachother, mu
 
 Surround ourselves with stuff and ourselves, our own egos, until we can't see nature or anything else beautiful.
 
-For business part, we try to build sky scrapers up to the sky to see nature again, but we only see the grey and brown buildings we built, and al the other people trying to get higher too.
+For business part, we try to build sky scrapers up to the sky to see nature again, but we only see the grey and brown buildings we built, and all the other people trying to get higher too.
 
 Michael is a by product of this atmosphere. He's striving but hates it, and hides his hate behind sarcasm.
 

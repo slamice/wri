@@ -14,7 +14,7 @@ Ch4 . Renee is still connected with his old friends. Eventually they go to jack'
 
 
 
-Renee and I walked back to our makeshift apartment when we saw a light was on a block back. Since we moved in we haven't said hi to Jack and his friends. We hadn't seen them in while. It was fairly uninteresting.
+Renee and I walked back to our makeshift apartment when we saw a light was on a block back. Since we moved in we haven't said hi to Jack and his friends. We hadn't seen them in a while. It was fairly uninteresting.
 
 "We should at least stop by to visit them. It's been four months?"
 
@@ -28,11 +28,11 @@ Renee and I walked back to our makeshift apartment when we saw a light was on a 
 
 We walked underneath the window and Renee yelled for Andrew. Renee yelled up, and from the second floor Jack's sleepy voice yelled "Yeah he's here. Come up!". Squirrelly Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
 
-Her ex's apartment was a desolate. It was a single huge room he lived in with Jack and Doc. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low but anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight.
+Her ex's apartment was a desolate. It was a single huge room he lived in with Jack and Doc. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low. Anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight.
 
-It was a bit hard to imagine the place designed for anything but a mess. Littered on the floor were Doc's coffee mugs and cappuccino cups, paints, beer bottles, cigarette trays complete with ash, nails and chipped wood.  The lighting, as with all of the lighting within the industrial area, was a depressing florescent.
+It was a bit hard to imagine the place designed for anything but a mess. Littered on the floor were Doc's coffee mugs and cappuccino cups. Jack's paints were next to them with beer bottles, cigarette trays complete with ash, nails and chipped wood. Signs of Andrew were everywhere but his main manifest was a pile of books. The lighting, as with all of the lighting within the industrial area, was a depressing florescent.
 
-There was barely a kitchen thrown off to the side. Someone tossed a lopsided fridge in a corner. A cutting board sat on the counter with a cleaver sticking straight up out of it. "For cutting cheese," Sarah whispered when she caught me staring at it. They loafed around like loaves unapologetically, eyes a tad hazy.
+There was barely a kitchen thrown off to the side. Someone tossed a lopsided fridge in a corner. A cutting board sat on the counter with a cleaver sticking straight up out of it. "For cutting cheese," Sarah whispered when she caught me staring at it. They loafed around like sitting loaves unapologetically, eyes a tad hazy.
 
 There was art. Jack's portraits lined the walls. A dessert with a naked woman standing by a cactus, a mesh of naked women spewing out of a drain. A pair of boobs floating in the sky. Different chairs were painted various hues, one had a tv glued to its seat with a portrait of a seagull. These things came to Jack casually, painted with pastels and cigarette smoke. "Which one do you like?" Jack rubbed his nose.
 
@@ -42,7 +42,7 @@ There was art. Jack's portraits lined the walls. A dessert with a naked woman st
 
 "I like this one", his girlfriend Sarah yawned out a whine. She pointed to a painting with a woman wearing no pants, in fact nothing but a t-shirt that said "NO cooking". She rode a horse into space.
 
-Jack also covered the walls in masses of text and melting heads. Quotes from Burroughs and Ginsberg were scribbled and yet smeared and softened. Some of the text was attached to torsos and huge brains that looked suspended in midair. It's as if someone sipped some ink and spat on the walls repeatedly. Pollack chewing drooling tobacco in disgust. "Irregular atmosphere, timid and reluctant" was written in one corner. "Art space for drunks" was written in another.
+Jack also covered the walls in masses of text and melting heads. Quotes from Burroughs and Ginsberg were scribbled, smeared and softened. Some of the text was attached to torsos and huge brains that looked suspended in midair. It's as if someone sipped some ink and spat on the walls repeatedly. Pollack chewing drooling tobacco in disgust. "Irregular atmosphere, timid and reluctant" was written in one corner. "Art space for drunks" was written in another.
 
 Behind us Doc's shadow danced loudly against one of the curtains as he rummaged through a box of tools.
 

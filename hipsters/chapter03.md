@@ -2,11 +2,48 @@ Ch3. Time drags on. He shuffles his feet, wondering how he got here. He recalls 
 
 Om feels disengaged and tired. The point of the chapter is to show how Om has whittled down. Apart from band practice and work, he stays home. He goes to bed earlier but wakes up the same time everyday. He hates thinking about the past but does it anyway. He remembers his silent parents. He recalls how much he hated highschool. He feels lonely. Selina is in the area and he meets up with her once. Coffee cup scene.
 
+-------------------------------
+
+That guy had to call me. Selina's Adrian's Steve's guy. I found myself pacing in my apartment and on subway platforms, like a child waiting for breakfast((analogy?)). I knew how to feel when they accepted. Even just an American tour would be great. I'd never been to the west coast. White villa Mexican houses. I'd never been to the midwest. Miles of driving in hot air.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ------------------
 
-Mostly, those days, we kept to ourselves, Renee and I. The reality Romcoms poured from our computer like an open facet, spilling and straining the room, ruining the wallpaper. Misunderstood nerds loving curly haired attitude women. One dimensional machos winning over dysfunctional girls only alive to mall and bawl. One man obsessed with mancaves, other girls caked with makeup running down their angry sad faces. There were a few plots where they all ate together and incested incestually off each other.
+I'd drink but both halfs of my family were drunks. Some people say it's just that they were weak. But I can't take it. More than two beers and I'd probably be out. 
 
-Before the onslaught, Renee barely showed up to anything. There was some kind of mystery going on. The drugs? Or her job? Or an incredible literate social circle who read books at home constantly?
+---------------------------
+
+Mostly, those days, we kept to ourselves, Renee and I. 
+
+Before all of this, Renee barely showed up to anything. There was some kind of mystery going on. was it drugs? Or her job? Or an incredible literate social circle who read books at home constantly?
 
 I knew her ex-lover though. I knew Andrew almost too well. He was so articulate I was almost jealous until I hated him after I found out he sucked. Every live music venue featured him in the audience, and eventually we talked and we stoned until we were down and out all those nights. A person of the world, he persona'ed hard. His persona was gifted in being interested in many things nature until they aggravated him. Nature itself abused the world. Finally he restored through video games.
 
@@ -26,7 +63,7 @@ The party was a ton of leaning. ((Against furniture, walls... That's it.)) The c
 
 ""
 
-The words were mostly recollections though. How long had it been since we heard that song, and omg it's in a zine now. After the party we settled in a playground. We took turns slumping in swings, climbing the jungle gym nonchalantly.
+The words were mostly recollections though. How long had it been since we heard that song, and omg that band is featured in a zine now. After the party we settled in a playground. We took turns slumping in swings, climbing the jungle gym nonchalantly.
 
 At one point it was Andrew, Anaj, Remy, myself, Sarah and Ryan. After a show we wondered apathetically.
 

@@ -4,9 +4,9 @@ Tilly
 
 "Untilly when?"
 
-I'm very sure, very positive, extremely positive, I have noo idea what to do with my life.
+I'm very sure, very positive, extremely positive, I have no idea what to do with my life.
 
-When there's a chance, I try to explain my situation. I talk abotu myself not because I'm full of it, but because I want input and advice on how I can improve.
+When there's a chance, I try to explain my situation. I talk about myself not because I'm full of it, but because I want input and advice on how I can improve.
 
 
 
@@ -16,7 +16,7 @@ When there's a chance, I try to explain my situation. I talk abotu myself not be
 racism, classism
 
 
-"It's impossible I'm racist, it's not possible. I even had a crush on a half Chinese guy, geez! I don't even know how you could say that!"
+"It's impossible I'm racist, it's not possible. I even had a crush on a half Chinese guy, geez! I don't even know how you could say that! What about you maybe you're racist."
 
 
 

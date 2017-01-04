@@ -78,7 +78,7 @@ As I was walking away I heard him say something.
 
 "You know she's a whore" Andy's voice said clearly, and I looked back at him and he had a straight face. I could feel him wanting to smile but he was good at hiding it.
 
-((The narrator knows what he said ^ but doesn't aknowledge it.))
+((The narrator knows what he said ^ but doesn't aknowledge it until a bit.))
 
 "What?"
 
@@ -86,10 +86,20 @@ As I was walking away I heard him say something.
 
 "What did you say?"
 
-"I didn't say anything, damn..." and his eyes started to calm and was preparing for a holistic ramble, but I took the pause to physically trail off...
+"I didn't say anything, damn..." and his eyes started to calm and was preparing for a holistic ramble, but I took the pause to mentally trail off in anger. 
+
+((The room muted in my ears, and I hated myself for saying nothing, so I forced out a very clear "Fuck you Andrew." Perhaps a little too much so, because a bit of spit trickled out of my mouth.)) <- Does he shy away and cower or fight?
 
 
 
+----------------
+
+
+
+
+My greasy hair smudged the glass as I leaned against the train car window. I could hear them, everyone in the room. Quick glances at me were telling, imaginary or not. They told me to grow up. I was pathetic. No, they never said those things to me. They talked about them amongst themselves though. Sharing it as a matter of fact secret they just happened to have remembered, even though they'd pocketed it for a bored moment.
+
+My jacket was too heavy. My jeans too uncomfortable. My neck hurt.
 
 
 

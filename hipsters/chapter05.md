@@ -1,6 +1,5 @@
 Ch5. Om works and takes up cruise. He argues with his dad on coming back. His job calls him in for lack of attention to detail. Om can't admit his heart is not in his work, but thinks about the fancy hipster barbers, the coffee shop lackeys and the freelance graphic designers, so he holds back on quitting.
 
-
 My company, to my surprises, was bought out. I had no equity in it though, so I watched people slowly smiled like a manager smiles at you when they say hi in the bathroom, or in the hall, or on your awkward quiet way down the elevator.
 
 Michael and I caught up at lunch. He enjoyed sports so much he only talked about them through all our lunches, even though I knew none of the people nor the rules of any game he enjoyed. He was such an exhuberent talker and I was such an exhuberent nodder we entertained each other every time.
