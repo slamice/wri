@@ -25,6 +25,7 @@ Presidents' job is to convince ppl of something and do it, get the money behind 
 
 
 People don't want to care.
+People don't wait to not care.
 
 
 
@@ -58,8 +59,8 @@ Need to draw map for this
 
 
 
-
-
+idea for a character maybe?
+http://www.theatlantic.com/magazine/archive/2016/06/the-mind-of-donald-trump/480771/
 
 
 

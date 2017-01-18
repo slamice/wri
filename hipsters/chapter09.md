@@ -64,7 +64,7 @@ I thought briefly about following him but no one else did. The entire office loo
 
 
 
-Surround ourselves with stuff and ourselves, our own egos, until we can't see nature or anything else beautiful.
+Surround ourselves with stuff and ourselves, our own egos, until we can't see nature or anything else beautiful. We build our stuff higher.
 
 For business part, we try to build sky scrapers up to the sky to see nature again, but we only see the grey and brown buildings we built, and all the other people trying to get higher too.
 
@@ -72,8 +72,10 @@ Michael is a by product of this atmosphere. He's striving but hates it, and hide
 
 (( Make mIchael talk more about his ambitions but frustrations with corporate life throughout the story. ))
 
+Poorer people ride the trains, travelling underground, underfoot from teh capitalists. Real rich people don't get on the subway. They stay high up watching. They encounter the poor and common man on the streets, ignoring them and barely acknowledging them beyond an obstruction, thinking they are an inconvenience.
 
 
+Does Om want to be one of these people, to raise his kids and have them grow up and hope they don't snub their noses.
 
 
 

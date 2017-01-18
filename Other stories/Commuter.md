@@ -1,3 +1,8 @@
+tags: Train
+---------------------
+
+A Commuter
+
 Noisily borrowing into the Bronx, the train shook like a heavy set man as it threw itself into high gear late into the night.
 
 Samir sank into his orange plastic seat, tired. Other commuters drooped like him. The air was so thick with droops you heard them dripping off the seats puddling on the floor. Some of their faces, pock marked, stared blankly at nothing in particular. Others rested, lost in their headphones. A few bodies molded themselves around the train poles, others' asses seeped into the creases between the seats.
