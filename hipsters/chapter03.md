@@ -366,11 +366,25 @@ Notable that Om picks up pennies wherever he goes.
 
 
 
+A show was playing that night. I customarily sat in the corner, yawning and watching people. I chatted briefly with a few I knew, who I met a few times but never socialized with. Hello. Yea I don't know where she is. She usually works these nights. I shifted and shrugged aimlessly, but slowly.
+
+The room swam in ill lit grafitti. A wood stage with peeling and chipped paint. Everyone there, all of us, we died and died and died. As we waited we died and it was so depressing I wanted to choke the atmosphere. Grab it's throat and kill this mandess and kick the devil out of it. But the devil never surfaces and hides under teh venues slats, our fingernails. So exhausted.
+
+The devil was killing us laughing at us and rolling in our flith but slowly. A lice ((singular for lice?)) sucking our thoughts bathing in dandruff.
+
+Suddenly we stared for a moment at the players as they detuned everything. The loudness quieted for loudness and they broke the air with swears and with the power of absolutely horrible guitar playing. The performers came on and definitely performed somehow. No amount of minimalism saved them, every note individually was scrunched together and thrown away, then smothered with a deaf singer's coughs.
+
+They all loved it.
 
 
 
 
+------------
 
+"Take some of the money that you have, and buy yourself some class. Did you give me advance notice when you fired me?"
+
+
+-------------
 
 
 
