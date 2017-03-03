@@ -9,14 +9,64 @@ Her ex-boyfriend then was a popular topic. Another time She found two tickets to
 "This movie was so horrible, maybe they didn't watch it and they did something else." We laughed, her nervously. We were so innocent we couldn't even bring ourselves to contemplate the words behind that possibility. We talked about his broken Korean, how caring and humble his mother was. A devout christian widow, set up a separate room for her to sleep in when she visited. She told me about their cat sat on her face often at night, and they made her allergic een though she swore she wasn't before.
 
 
-
-
-
-
-
-
-
 Around exams she invited me over to study, but her room was so warm I fell asleep without reluctance on her bed while she studied at her desk. She never found it amusing and kicked me out when she needed to sleep. It was just routine to her.
+
+
+----------------
+
+She dictated me the whole day play by play until I stood in front of her hotel room. It was weird remembering who she was, A walking memory, or in her case a stationary memory, sitting diseased with melancholy sprinkled with ironic giggles. I knew she thought it too, we both did, how the city shadowed anywhere either of us went. We were together awkwardly closing in on eachother, in no hurry.
+
+"Haitham!" She screamed out in joy when I knocked, and she screamed it again when we hugged and turned in circle after circle, carrying her light body in an embrace. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+What did we mean to eachother, really? We never found out ((point of the story))
 
 
 
@@ -93,4 +143,21 @@ Do you think I changed? Am I different?
 
 I hugged her in the bed, and then once when we got up. I knew I'd miss her, and she closed the door.
 
-I got on the train, heading back to 
+I got on the train, heading back over the bridge, over the river. 
+
+-------------------
+
+Every day I walked by the skating rink, and one day I finaly rented skates. Overpriced coming with an additional fee for a locker, a steal.
+
+Gliding, sometimes wobbly, over the ice. Holding on to nothing. But then my legs began to piston and I went faster and faster, propelling me around the rink. Past the children out too late and past the couples skating between extremes. They silently glided along as if passively aggrivessively fighting or laughing at how bad they were clinging to each other. They all started to blur in my mind.
+
+And then I remembered her bundled up, then in her pajamas going to sleep, and then her hand proping up her shaky head at dinner as she stared back at me. And then I began to cry.
+
+
+
+
+
+
+
+
+

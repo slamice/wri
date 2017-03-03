@@ -4,7 +4,7 @@ Ch8. Om takes the cruise. His loneliness plays out here and explains a corporate
 
 
 
-Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl at the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
+Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl from the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
 Alone, I threw away the other ticket and went to the dock ((Some refernece to dock?)) on a Wednesday after work. A plastic Leigh was draped over my head, as if it were knighting me before stepping aboard. I walked slowly onto the yacht, a bit cautious, perhaps overly so, but one can never be too sure can they? I couldn't help but be excited though. I could see the city now from so many angles.
 
@@ -16,7 +16,7 @@ The ship ebbed toward the ocean, toward a few islands we were set out to discove
 
 The two girls from Tallahassee working as designers at an robot company. The heavily tattooed developer from Texas who shunned beef after growing up on a pig farm. The two African event coordinators who together came upon a nude beach by accident. Besides shallow descriptions, I didn't find out any other details about their jobs. Even the invitees were seldom found, checking in with people to make sure they were still on the boat. The ship's aimless bobbing to no goal was perfect for us. Our mild conversations took all our attention from the cityscape view and ground it to dust.
 
-An Italian and Jewish pair were huddled in one corner of the boat, discussing their ex boyfriends, their ex boyfriend's dogs and architecture.
+An Italian and Jewish pair of girls were huddled in one corner of the boat, discussing their ex boyfriends, their ex boyfriend's dogs and architecture.
 
 "This building is really tall but has those empty floors in the middle. It's earthquake proof right now. That's actually earthquakePROOF"
 
@@ -24,11 +24,11 @@ An Italian and Jewish pair were huddled in one corner of the boat, discussing th
 
 "A Russian architect" she whimpered, "Don't ask me how I know."
 
-The Italian girl chattered away a reply at full force, the other sipped through a straw, looking around aimlessly. It was impossible to tell how much drugs were involved in her demeanour. Perhaps none.
+The Italian girl chattered away an unrelated reply at full force, the other sipped strong alcohol through a straw, looking around aimlessly. It was impossible to tell how many drugs were involved in her demeanour. Perhaps none, even scarier.
 
-"Are you Italian? I'm Italian." She stared. The sun went down earlier and besides her eyes it got too dark to tell her expression, but you could feel her beaming violently.
+I approached. "Are you Italian? I'm Italian." She stared. The sun went down earlier and besides her eyes it got too dark to tell her expression, but you could feel her beaming violently.
 
-"No" I yelled over the growing chats around us. "Do you think I would fit in better if I did?" The Jewish girl flit her head up suddenly to look at me, like a bird, and then away.
+"No." I yelled over the growing chats around us. "Do you think I would fit in better if I did?" The Jewish girl flit her head up suddenly to look at me, like a bird, and then away.
 
 "I don't know I don't exactly fit it, like I'm not married yet all my family is married I work at a big company and lots of people just bail on you... During work too, people don't even notice. My whole department, you know," pause, a comment towards the bird "I mean did you see Tony? I've been working past eight all week and he's said nothing. I don't really get how he even has his job. The other day, see... He's never filled out Jonas's accountant forms WE ALL did can you believe _that_?"
 
@@ -142,8 +142,8 @@ With too little hesitation (((make this less obvious))), "I don't have one."
 
 "I don't know didn't I te-, told you twice already."
 
-Pangs of guilt rapped with a crowbar or something against stomach walls, and I felt them ringing. They were thick, heavy and hollow. Full of worry but empty. They piled up in there and stuck, but I tried to use them to my advantage and had them try to fuel my intentions.
+Pangs of guilt rapped with a crowbar or something against my stomach walls, and I felt them ringing. They were thick, heavy and hollow. Full of airy worry. They plumed inside, but I tried to use them to my advantage to fuel my intentions.
 
-We were half asleep though, and after we kissed I gave her a fake number which she lazily swore she'd remember and didn't look back.
+We were half asleep though, and after we kissed a few times I gave her a fake number which she lazily swore she'd remember and didn't look back.
 
-Home, I wiped at my face and brow with a napkin to get any scent out. When I came home I went directly to the shower. Renee was on the bed, topless eating small hard pretzels. She asked me how it was and I said great, and she barely did the laundry so she never knew.
+Home, I wiped at my face and brow with a napkin to get any scent out. When I came home I went directly to the shower. Renee was on the bed, topless eating small hard pretzels. She asked me how it was and I said great, and she barely did the laundry so she never knew and never found out.

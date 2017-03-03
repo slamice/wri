@@ -2,6 +2,14 @@ The Russam family
 
 ------------------
 
+map to print
+
+http://www.freeusandworldmaps.com/images/World_Regions_Print/CISwcountryPrint.jpg
+
+
+
+------------------
+
 fairy tale map:
 
 https://vk.com/album-23606660_127057291

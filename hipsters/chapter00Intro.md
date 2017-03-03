@@ -1,8 +1,25 @@
+Loneliness
+Self dobut
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Main themes of the story:
 - Loneliness
 - Doubt
 - Life decisions
-- Dissing hipster life
+- hipster life
 
 chapter 1: Work setting. Set up day in day out shift. Introduce narrator, Renee and Michael. Hint at visa issue.
 

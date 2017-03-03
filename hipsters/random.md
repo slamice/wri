@@ -1,3 +1,85 @@
+The ultimate conclusion wasn't to create something beautiful. The ultimate goal was to fit in.
+
+
+
+
+
+
+
+
+
+(Dance) Party1 ch1 
+(get ready for work) Home1 ch2
+(Work sucks) Work1 ch2
+
+(coffee with selina) Party2 ch3
+(Talk with Michael) Work2 ch3
+
+(Boat + party with girl) Party3 ch4
+
+() Party4 ch5
+Home4 ch7
+
+
+
+Point is to show the misguided life of hipsters
+-- Dance Party
+-- Drug house
+-- Renee's friends' house
+-- Concert
+-- Dock's anger
+
+Om is a hipster but doesn't want to be
+-- Hangs out with hipsters
+-- is very indifferent about his life
+-- cares about small minute things
+-- Very into no responsibility, avoiding it
+-- coffee conversation with Selina
+
+Doesn't know how to break free when the alternaive he hates
+-- Office job
+-- Michael's reaction to work he agrees with but doesn't feel compelled to do it
+-- "Hates" money but actually like it to waste it
+
+So he aimlessly floats between them, experiments mildly with cheating and ignoring work
+-- Kisses girl from Boat Party
+-- Calling in sick when he isn't, wanders aimlessly
+
+He starts to put things into perspective
+-- Itchy hands, they feel "idle"
+-- All the people he knows are living off in "shelter"s or "dumps"
+
+His dream is crushed but he thinks maybe he has a shot at something
+-- Band member rejects him
+-- His laziness and indifference risks his job, puts him behind
+-- Renee turns out to be not a great fit for his lifestyle (she's a hipster)
+
+Until he feels compelled to throw it all away because of his family issues.
+-- Dad leaves Mom
+-- Letter from immigration never arrives
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+----------------------------
+
 The city that never sleeps. But everyone is tired.
 
 
@@ -389,4 +471,88 @@ The stars look insane
 The stars are insane
 
 ---------
+
+
+
+I met them at the bar. The duo from Agnostic Tattoo were playing that night, along with Almost Dead Flamingos and No Razors. I sat with them, distraught but far away. A heavy feeling lay in my stomach. I wasn't sure if I was relieved or exhausted. This feeling inhibited me, wanting to throw things until I was tired, and then afterwards throw more things.
+
+
+Most of the night wasn't a blur, surprisingly. Lying on the floor, crying was an issue.
+
+------------------
+
+
+I know a pleasant lady who mowes her lawn, tries to care for it. While the inmates from the hospital just down the street insults her and she insults them. 
+
+
+
+--------------------
+
+Whatever Tattoo
+
+
+--------------------
+
+
+I walked so much my shoes ate into my socks and tehn my feet, and gave me blisters. And then wheI lied down, I'd get bed sores. What was my body telling me. ((study?))
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----------------
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 

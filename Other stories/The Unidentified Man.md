@@ -38,3 +38,9 @@ A body was found of someone. The evidence showed the body was heading home but w
 Being dead, the body made quite an impression now. I myself even came forward to try and identify it, but it was impossible. What remained was very disguting. The figure was unrelatable.
 
 A charity took pity and volunteered to bury him. They marked the grave with their churches' symbol, and on his gravestone were the two letters D and D, standing for deary departed.
+
+
+------------------
+
+Quispin Crent
+

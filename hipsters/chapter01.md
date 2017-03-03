@@ -88,7 +88,7 @@ About 20 minutes later Adrian formed out of thin air and pulled Selina by the ar
 
 "Whatever, government. THE GOVERNMENT!" She yelled. Selina was against everything government. She gauffed at capitalism and stood honestly in disbelief at the many injustices of the world mentioned to her. Her eyes would literally grow bigger if anyone mentioned grim crimes involving theft, extortion, brutalizing women or death. "Oh my god" she would usually exclaim between sips from her latte.
 
-Adrian took a toke next to her with her boyfriend Hayden. I never really did know what to say to her friend. She worked in a coffee shop day in day out, surrounded by people who looked familiar but I didn't know. She gave Selina free coffee every time she visited with soy milk of course thanks. She coughed it up a bit, her face red. She talked to Selina.
+Adrian took a toke next to her with her boyfriend Hayden. I never really did know what to say to her friend. She worked in a coffee shop day in day out, surrounded by people who looked familiar but I didn't know. She gave Selina free coffee every time she visited with soy milk of course thanks. She coughed it up a bit, her face red. To Selina,
 
 "How long do you wanna stay? I saw Steve inside, we could go to his house afterwards. Kind of an after party thing."
 

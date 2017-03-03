@@ -16,7 +16,7 @@ He started advising me suddenly, and quickly all his jokes vanished, scurrying s
 
 I looked back at him and again he smiled, "a month, right?"
 
-Walking back to my desk, I smiled back and my heaved a sigh. All the jeans and lattes the world chugged out were thrown to the floor. I saw pathetic coffee cups and free snacks wading down a stream. They were tasteless and garbage. I hope no one noticed and I shuffled embarrassed to my seat, slightly nasious.
+Walking back to my desk, I smiled back and my chest heaved a sigh. All the jeans and lattes the world chugged out were thrown to the floor. I saw pathetic coffee cups and free snacks wading down a stream. They were tasteless and garbage. I hope no one noticed and I shuffled embarrassed to my seat, slightly nasious.
 
 My anxieties played and the words and symbols danced the rest of the day around my screen in front of a picture of a mountain top I only just noticed. (((couldn't see the desktop picture)))
 
@@ -52,7 +52,7 @@ A coffee excuse could work, but when I approached his desk he was hunched over i
 
 I was seconds away before tapping him on either shoulder but, in a rage, he erected himself furiously to the ceiling and tore the laptop from its cords. He slammed it on the desk again and again, spitting out fuckword after fuckword. A few peices of the machine and his curses flew out to the floor, and neighboring cubicle-ers stared at him in confusion. He walked out miserable right by me to the exit. His laptop lay in a mildly unpleasant electronic heap, a box with a broken frame.
 
-I thought briefly about following him but no one else did. The entire office looked at eachother, mulling over the scene again. Slowly the sounds of typing started up again, and they forgot it.
+I thought briefly about following him but no one else did. The entire office looked at eachother, mulling over the scene again. Slowly the sounds of typing started up, and they forgot.
 
 
 
@@ -81,7 +81,11 @@ Does Om want to be one of these people, to raise his kids and have them grow up 
 
 
 
+-------------------
 
+Another concert.
+
+The show was buried in an art collective. 
 
 
 
