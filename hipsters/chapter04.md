@@ -28,7 +28,7 @@ I couldn't and still can't count the number of times I walked up and down these 
 
 I remember that night distinctly because it was like any other night. The cold tried to creep into my jacket, into my pants. The down and out bars hid in the shadows of construction. Cool as they were, they served mac and cheese types of things but little else. There were no windows so I couldn't see the people potentially dying from such a fire hazard inside. The two sushi places on the way I passed were idly populated. A bit further along, the projects were trying to project on to me, non discreet and brooding. The people who lived there almost all had projects. Brutal two day jobs, brutal childcare for their oh so many children and brutal laziness. Distanced, there were convenient stores far too expensive to be convenient. The arrangement was all a maze of zoning left over from a previous era.
 
-A few girls sexed by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. I was disgusted to think so, but hardly guilty. Also there was a native lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive that someone tried to talk her down to five.
+A few girls sexed by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. I was disgusted to think so, but hardly guilty. Also there was a native homeless lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive that someone tried to talk her down to five.
 
 A cow hummed in my pocket and it was my father. Crawling over my phone was his number, so I hesitated a bit. The mistakable conversations we had with each other were not riveting and were very brief. The surprise came when any of them lasted longer than 10 minutes. Our relationship could be taken lightly with a few exclaimations, barely a few grams.
 
@@ -114,24 +114,19 @@ An eyebrow raised a chuckle, "then why order coffee?"
 
 I drank it as my head slowly began to hurt. The milk was heavy and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness woulc be there to weigh down the rest of my day.
 
-"Andrea's not working tonight I'm guessing."
+"Adrian's not working tonight looks like."
 
 "She's playing tonight. At the Claybourne Whatever. It's the new place near main and Clinton." slowly coming down from her high.
 
 "Yea I heard about it. She plays a lot."
 
-"You don't want to go?"
+"You don't want to go? I'd totally be up for it."
 
 Selina shrugged, "kind of, but wanted to take it easy tonight. Take it easy."
 
+On my way out I ordered Renee's latte. Selina's haze started to brighten up, 
 
-
-
-
-On my way out I ordered Renee's latte.
-
-The detour I took on my way back was long and winding. 
-
+The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments hadn't yet gone on sale. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs.
 
 
 
@@ -141,25 +136,11 @@ The detour I took on my way back was long and winding.
 
 
 
+As I passed by Jack and Andy's apartment on my way back, I noticed the light was on. A fever of rage suddenly overtook me on my walk back. Who was he. Such a bastard. And suddenly I was in my apartment, sneaking a look at Renee saying Hi, but she didn't look up. She was completely embossed on the bed, engrossed.
+
+I immediately went back out, making sure the cat didn't escape. Just around teh corner, under our bedroom window, I tiled over Renee's forgotten latte and dumped it in slow motion. The the sugary milk stream made a quick splash and settled in the cracks of the broken concrete. The paper cup I put next to the mess, and lurched back up the stairs to the apartment.
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-As I passed by Jack and Andy's apartment on my way back, I noticed the light was on. A fever of rage suddenly overtook me on my walk back. Who was he. Such a bastard. So before I went up my stairs I stopped. The stream made a quick splash and then settled immediately in the cracks. And slowly I emptied Renee's latte onto the pavement, watching the sugary milk slip into the solid concrete. The cup I put next to the mess, and lurched up to the apartment.
-
-I sneaked a look at her and said Hi, but she didn't look up. She was completely embossed on the bed, engrossed.
 
 (Completely forgot she ordered one.)
 

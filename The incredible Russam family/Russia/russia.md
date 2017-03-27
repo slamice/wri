@@ -37,20 +37,33 @@ Baba Yaga keeps showing up
 
 
 
+----------------
 
------
 
-Baba yaga got in, what looked like, A giant omrtar. She picked up a ridiculously heavy pestel qnd started pushing against the ground, in agony, trying to move.
+They had a potato farm and learned to
 
-"Nnnnnghhhh... I'll take you there." She said between breathes, going no where.
+A letter arrives from a mysterious man.
 
-"Why are you riding this?" little Zain said. "Mm..." Ruby cooed softly, i very confused bird puzzlement, tipping her head.
+It invites the family to the Russian Tzar's palace.
 
-"Well," yagggy sighed, "it usedto be more useful, it used to fly. But I didn't maintain it over the years. You know, things get old."
+They met some magic people, around then many people believed in magic and it was fairly common to magicize things.
 
-"You always rode in this?"
 
-"I did have some horses, but they were made out of fire. Very difficult to ride... Nnnnnnggghh." The mortar moved an inch, miraculously. "In hindsight it probably wasnt a good idea to buy them."
+
+
+Bad guy challenges Ruby the parrot in the end for a game of chess. Ruby wins with one move.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 ------------

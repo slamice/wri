@@ -126,7 +126,7 @@ And we hung up.
 
 ---------
 
-"What? I'm a feminist. He's completely allowed to do that."
+"What? I'm a feminist. He's completely not allowed to do that."
 
 I waved an exhaustive "Ok, later." Selina said nothing as I walked down the street. It had a slight hill to it and my feet stuttered down at a bit of a speed.
 
@@ -134,23 +134,7 @@ I waved an exhaustive "Ok, later." Selina said nothing as I walked down the stre
 
 I'm so tired after doing nothing.
 
-=================
 
-As I was walking away I heard him say something.
-
-"You know she's a whore" Andy's voice said clearly, and I looked back at him and he had a straight face. I could feel him wanting to smile but he was good at hiding it.
-
-((The narrator knows what he said ^ but doesn't aknowledge it.))
-
-"What?"
-
-"Nothing." he said.
-
-"What did you say?"
-
-"I didn't say anything, damn..." and his eyes started to calm and was preparing for a holistic ramble, but I took the pause to physically trail off...
-
-I wondered what just happened.
 
 ---------------
 

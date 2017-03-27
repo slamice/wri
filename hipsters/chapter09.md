@@ -54,6 +54,21 @@ I was seconds away before tapping him on either shoulder but, in a rage, he erec
 
 I thought briefly about following him but no one else did. The entire office looked at eachother, mulling over the scene again. Slowly the sounds of typing started up, and they forgot.
 
+...
+
+
+"I'm resigning obviously." Michael said, his hand trembling made it difficult to hold his cigarette.
+
+
+
+
+
+
+
+
+
+
+
 
 
 

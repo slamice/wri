@@ -1,3 +1,53 @@
+The train 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Her dormitory bed was somehow more minimalist than others. A towel covered the entire thing and then a thin sheet on top of that. I remember it better than her room, which was mostly empty. It's where we lie thinking, holding hands. Her hand was warm and was the softest thing in mine. Fully clothed, mulling life, the future and our relationships to the world.
 
 Her ex-boyfriend then was a popular topic. Another time She found two tickets to a movie, a bad one, in his wallet when he went back to Korea.

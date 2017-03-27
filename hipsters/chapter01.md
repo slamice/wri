@@ -7,15 +7,15 @@ Ch1. We next see his personal life. He's at a dance party with his "friends". He
 
 
 
-Something in the air was broken. It felt banal and burnt to an odorless cinder. I felt it and watch it with my eyes, deadpan.
+Something in the air was broken. It felt banal and burnt to an odorless cinder. I smelt it, felt it and watched it with my eyes, deadpan. I looked out across the dead street, I thought I saw something move.
 
-Cars swept by snarling cats. The area was thick with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple the apartment's worth. The door stuck often but there was a skylight so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
+Cars swept by snarling cats. The area was thick with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple the apartment's worth a month. The door got stuck often but there was a skylight so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
 
 "Guitar lessons? Dance space rental? Warm bodies? Call us."
 
 It was pretty obvious 'The Woods' wasn't going to last much longer than eight or so months. Three thousands of dollars of rent every 30 days was high budgeted even for the 6 renters, especially when the only real job any of them held was barely. At the end of each month they worried, sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
 
-So then there were parties. And then there was us. Shoved up against the outside brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon.
+So then there were parties. And then there was us. Shoved up against the outside brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon. I tried to keep eye contact with every person who walked in, until they noticed me and I looked away.
 
 "You think Matt'll come?" Jack asked.
 
@@ -55,10 +55,9 @@ How a show usually played out is posters went up in skate shops, coffee shops, r
 
 This isn't that kind of show though, we don't technically really have to wait for anyone. It's 90's Dance night and that's a guaranteed win. Everyone here was an angry teenager then wanting to dye some highlights into their memories. Now we're back. But instead we have 60's pop remakes we forgot about on the radio, and they're in vogue again. One night only until the next 90's dance party five months from now.
 
-
 By now people stupided towards the door, a few already drinking, a few more warming up with headbands. Some beards were abound, a few lit up.
 
-I flew in profusely inside like an uncaged canary. Past suit vests. Shirts with "savior" and "moron" emboldened in front of crowds. Some bumped into me accidentally and intentionally. A few jeered at nothing then laughed.
+I flew in profusely like an uncaged canary. Past suit vests. Shirts with "savior" and "moron" emboldened in front of crowds. Some bumped into me accidentally and intentionally. A few jeered at nothing then laughed.
 
 The party was a pagan dance. 90's theme be damned. Someone threw up the 60's, 70's, 90's (but mostly the eighties) onto some far and not finely aged wasted teenage bodies. Everyone was clad with chababyness. The dance floor was surrounded with quotation marks. Fashion was ripe with faux-paus chic and undeniable clashing that somehow made the word "tacky" look tame. Two were dancing the robot like humans. Straight out of Wonderland were Alices in all colors of the rainbow. A ghostbuster did a violent shuffle near a spinster, backpack jigging and all.
 
@@ -66,7 +65,7 @@ Many weirds and beards shot each other, the digital polaroids barely drying betw
 
 I scanned through the crowds casually. The lights were dim and confused, spraying in every other direction. I recognized a few passing faces in passing.  A few more prominent and active members ignored me. I made a hard nod at one girl made tapestries. Finally Selina waded into the crowd. I caught fleeting glimpses of Selina's roommate Adrian and her periodic boyfriend. They were lost in a few ways, most prominently in dancing.
 
-"What up yo?" Selina and I pounded hands and laughed. She donned light flannel and a grey cap.
+"What's up and yo?" Selina and I pounded hands and laughed. She donned light flannel and a grey cap.
 
 "Yo yo yo. You're looking really grungy."
 
@@ -74,11 +73,11 @@ I scanned through the crowds casually. The lights were dim and confused, sprayin
 
 "Not that long, like half an hour. Thought I would check it out."
 
-"Ch-check-ch-check-ch-cheking it out!" She tried to yell over the bad dance style. Most of the moves around us were just people walking badly.
+"Ch-check-ch-check-ch-checking it out!" She tried to yell over the bad dance style. I heard it because most of the moves around us were just people walking badly.
 
-What was popular possibly eons ago started to play again. We danced a few jigs and tried to steal a few dance moves from our surroundings, but it only looked like everyone was badly walking. We just shuffled left and right and looked around us.
+What was popular possibly eons ago started to play again. We danced a few jigs and tried to steal a few dance moves from our surroundings. We shuffled left and right and looked around us.
 
-About 20 minutes later Adrian formed out of thin air and pulled Selina by the arm miming a smoker. I followed them outside, and the cold air hit us once again.
+About 20 minutes later Selina's friend Adrian formed out of thin air and pulled Selina by the arm miming a smoker. I followed them outside, and the cold air hit us once again.
 
 "Hey we've got to jam twice this week so we're ready for Saturday." Selina looked up at me as she lit up, and I fanned away wafts of marijuana.
 

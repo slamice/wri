@@ -104,7 +104,23 @@ My jacket was too heavy. My jeans too uncomfortable. My neck hurt.
 
 
 
+=================
 
+As I was walking away I heard him say something.
+
+"You know she's a whore" Andy's voice said clearly, and I looked back at him and he had a straight face. I could feel him wanting to smile but he was good at hiding it.
+
+((The narrator knows what he said ^ but doesn't aknowledge it.))
+
+"What?"
+
+"Nothing." he said.
+
+"What did you say?"
+
+"I didn't say anything, damn..." and his eyes started to calm and was preparing for a holistic ramble, but I took the pause to physically trail off...
+
+I wondered what just happened.
 
 
 

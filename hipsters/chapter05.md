@@ -62,9 +62,9 @@ On our way back my phone hummed. "Hello?"
 
 "What happened to Mom?" I hastened a wave goodbye to Selina as a shock enveloped me.
 
-"Oh she just depressed about some things, I don't know what to do with her. Always try to make her happy. She's fine, don't worry though. When are you coming to visit son?"
+"Oh she just depressed about some things, You should call her more. I always try to make her happy. She's fine, don't worry though. When are you coming to visit son?"
 
-"I told you Dad I can't come back without the visa."
+"I told you Dad I can't come back without the visa. Are you sure about Mom?"
 
 "When do you think you'll have it?"
 
@@ -76,7 +76,7 @@ On our way back my phone hummed. "Hello?"
 
 A shuffling then a pause, "Well son for everyone to come it's not possible. Anyway, your brothers will be here in May so if you can make it please come."
 
-I leaned on a wall commanding to "POST NO BILLS". "If anything changes I'll come as soon as possible."
+I leaned on a wall with a sign commanding to "POST NO BILLS". "If anything changes I'll come as soon as possible."
 
 "Ok good."
 

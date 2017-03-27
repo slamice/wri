@@ -39,7 +39,7 @@ The announcer was barely audible above the static that suddenly crashed into the
 
 A few talkative bunches got off the train, bumbling in a stupor. An older balding man stepped on and sat opposite to Samir. And they continued on.
 
-Samir questioned his sanity. Maybe he was getting taken back, back to the end of the world, back to having nothing useful.  He prayed while the sounds of the train nestled into his heart and punched it slowly from the inside, beating it harder and harder. Samir sat there in silence, wishing his English and biology would improve dramatically.
+Samir questioned his sanity. Maybe he was getting taken back, back to the end of the world, back to having nothing useful. He prayed while the sounds of the train nestled into his heart and punched it slowly from the inside, beating it harder and harder. Samir sat there in silence, wishing his English and biology would improve dramatically.
 
 They sped down the only direction they knew for hours. The train car leapt down its runway in a hurry. The train conductor's voice grew harder and harder to understand, not from teh static but from teh pronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox". A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. The Spanish family remained on the train, shuffling. The African American lady remained in the corner, reading a newspaper that materialized out of her bag just a moment ago.
 
@@ -61,17 +61,15 @@ A small jet black haired kid sat next to Samir as his mother stood in front of h
 
 As the people moved on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. Eventually Samir tired of sitting. He began to feel stale and bland on top as the panic settled along with the others. he got up, navigating through the cars. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
 
-He knocked on the door once, harder again, pulled at the handle, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice. Lonely, He felt a bit like a spirit but without the haunting. A failed ghost.
+He knocked on the door once, harder again, pulled at the handle, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice.Lonely, He felt a bit like a spirit but without the haunting. A failed ghost.
 
-He sighed in frustration, but then a second wind hit him, and bravery pulled him up to the emergency break against the wall. He looked around but no one made eye contact with him. The plastic white handle just sat there on it's dirty and disgusting cord, shivering as the car rattled. Samir braced himself as he put his hand around it, looked back at the distracted faces, and then gave a sharp tug.
+He sighed in frustration, but then a second wind hit him, and bravery pulled him up to the emergency break against the wall. He looked around but no one made eye contact with him. The plastic white handle just sat there on it's dirty and frayed cord, shivering as the car rattled. Samir braced himself as he put his hand around it, looked back at the distracted faces, and then gave a sharp tug.
 
 The emergency brake must have been broken, or never worked, because it did nothing. He tugged down hard, putting his weight on it, but it felt like a toy. Samir somehow knew he couldn't stop the train. He wiped his hand on his pants and cursed.
 
-It must have been a good five hours since he got on. Since then he had hopped through all the train cars, memorized their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to his original car. And while heavily distracted with disappointment and confusion, sleep overtook him.
+It must have been a good five hours since he got on. Since then he had hopped through all the train cars, memorized their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He tried talking to anyone, but most like the mother spoke little English, if any. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to his original car. And while heavily distracted with disappointment and confusion, sleep overtook him.
 
-Again slumped in a chair, he began to drift off to the rhythm of the car shaking as it ran on the tracks.
-
-In another hour the train quieted down a bit more. The crowds began thinning out.
+Again slumped in a chair, he began to drift off to the rhythm of the car shaking as it ran on the tracks. In another hour the train quieted down a bit more. The crowds began thinning out.
 
 When his eyes opened it was just him with hunger pangs and the only person who he recognized earlier, the older African American lady with her big hat. They sped down yet another dark corridor. Samir walked toward her hopefully, wondering with a heavy heart if she knew where they were headed. She noticed him lazily, pursed her lips and then dropped them. Then again her lips judged him.
 
@@ -87,15 +85,15 @@ When his eyes opened it was just him with hunger pangs and the only person who h
 
 "It's ok, we goan hawm." She was quickly losing interest, her eyelids grew heavier and glanced back at her paper.
 
-"It is not ok." Samir began to get angry at how cold she seemed to him, but he couldn't tell if it was New York that hardened him or her or even the train car. She suddenly looked straight at him.
+"It is not ok." Samir began to get angry at how cold she seemed to him, but he couldn't tell if it was there in New York that hardened him or her or even the train car. She suddenly looked straight at him.
 
 "Wha you mean?"
 
-"Why it is ok? We go far. It is not ok. Where do you go?"
+"Why it is ok? We go far. It is not ok. Where you go?"
 
 "No one forcing you ta stay here. You can ge' off anytime."
 
-The conductor breathed out something unpronounceable as the train slowed to a stop. The lady got up pushing past Samir without another word. A rush of cold air gushed in Samir's face. Between huge white pillars a sign read "Алекса́ндровский сад". He saw her hobble off as the doors closed, bobbling bravely away on the bright cold concrete. Her dark contrasted the sea of white so much so you could see her slowly walking, alone, down the platform.
+The conductor breathed out something unpronounceable as the train slowed to a stop. The lady got up pushing past Samir without another word. A rush of cold air gushed in Samir's face. Between huge white pillars a sign read "Алекса́ндровский сад". He saw her hobble off as the doors closed, bobbling bravely away on the bright cold concrete. Her dark contrasted the sea of white so much so you could see her slowly walking, alone, down the platform. A single period on a white page.
 
 Samir didn't feel there was anyone driving the train.
 
@@ -107,6 +105,6 @@ He stuck his head out the doors looking down the striped platform. He didn't kno
 
 The doors stood open, mocking him for several minutes.
 
-It felt eerily clean and completely silent. Without a thought he took a step, and walked out. His shoes echoed squeaks in the tunnel until he headed upstairs.
+It felt eerily clean and completely silent. Without anotehr thought he took a step, and walked out. His shoes echoed squeaks in the tunnel until he headed upstairs.
 
 A few minutes later, a ringing closed the doors, and in moments they were gone.

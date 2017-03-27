@@ -24,7 +24,14 @@ The first thing I did when I went back into the house was throw away the juicer 
 
 
 
-I sat on the floor and thought of my prospects. Maybe I wouldn't renew the lease. I fantasized the tour in my head and we went city to city wavering. Long road trips with new music and very stipd jokes. The van would break down towards the end and we'd sit by the side of the road discussing our problems and depressions. 
+
+I sat on the floor and thought of my prospects. Maybe I wouldn't renew the lease. I fantasized the tour in my head and we went city to city wavering. Long road trips with new music and very stupid jokes. The van would break down towards the end and we'd sit by the side of the road discussing our problems and depressions. And after that under the dark sky with Selina asleep in shotgun under the desert stars etcetera and all that. I'd stop the car, for a few moments, and I'd cry.
+
+You know what's in that letter? After the patience and the sustained life around it. The pressure has been building up in it and I imagine if I open it it would just explode, into a mess I'd bathe in lazily and cleanup with the sweet sounds of music ejecting itself off the walls, off the clouds. 
+
+
+
+
 
 
 

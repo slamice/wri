@@ -1,3 +1,31 @@
+Om is looking for something beautiful. He knows its beyond the city, beyond his job, beyond the scene.
+
+
+
+Protagonist:
+Om
+
+Antagonists:
+
+Band - Self indulgent
+Father - Selfish 
+Adrian - Doesn't like him intruding on scene, wants to be master of her domain, a frenemy. Fine to be friends with her.
+Renee - Selfish with her own demands
+Dock and Andrew - Jealous and takes it out on him phsycologically
+Co-workers - Think lowly of him because he's not one of them.
+Society - Pressures from society to do work
+
+
+
+Challenge him by saying what he wants doesnt exist.
+
+Eventually he gets sick of all of them. He'll go on tour by themselves if he has to, just to live it, live the life he wants for serenity.
+
+Until he gets pulled back by his father.
+
+
+
+
 The ultimate conclusion wasn't to create something beautiful. The ultimate goal was to fit in.
 
 
