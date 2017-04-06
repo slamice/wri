@@ -1,4 +1,43 @@
-The train 
+- girl and guy meet in NYC
+- girl has fiance coming the next day
+- find out girl and guy have history of flirting
+- guy has a son and wife
+- guy is in love with the thought of her
+- realizes his friend was just someone he made up in his head or was, instead of real life
+
+
+
+
+
+
+
+"Rockerfeler center is open."
+
+"I can't ice skate there. I had a very, ~bad~ experience." her accent pronounced every C like an S, and every S was mutilated, ground to dust while her tongue pushed against the back of her teeth.
+
+"What happened?"
+
+Sullenly, she replied "I used to be engaged to someone named David. He owned a massage business. We dated for three years, and finally he took me ice skating there, and proposed to me. I didn't know exactly what to do. It must have cost so much, and everyone was staring at me, and I said yes, but my Dad, he said no."
+
+"So what did you do?"
+
+"What could I do~~~? We broke up. No poi~nt! I still can't skate there. It's really bad memory."
+
+She recited the story naturally, upset but accepting.
+
+"What if, we made a new memory there? A happier memory?"
+
+"I'm sorry Poco, but I can't do it. It's there and it's been there for a long time. I didn't date anyone for years after that. That's life, you kno~w?"
+
+
+
+
+
+She loved the bed, more than I remembered. She snuggled in the covers and 
+
+
+
+"You didn't marry him because of your father?"
 
 
 
@@ -8,14 +47,9 @@ The train
 
 
 
+Her eyes stared at me and smiled, and her mouth smiled, and I found it hard to not to look away.
 
-
-
-
-
-
-
-
+"You love me!" she yelled, and slapped my arm. "Poco loves me. Oh Poco, the best Romance ~ever~" and as she laughed her hair fell in her face.
 
 
 
