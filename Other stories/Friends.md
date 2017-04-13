@@ -11,34 +11,53 @@
 
 
 
-"Rockerfeler center is open."
 
-"I can't ice skate there. I had a very, ~bad~ experience." her accent pronounced every C like an S, and every S was mutilated, ground to dust while her tongue pushed against the back of her teeth.
 
-"What happened?"
+The hotel by Grand Central threw people in and out so fast its revolving doors they had to catch their breathe. Straight from work, just after eight thirty, I went in and up the elevator. My heart beat faster like a tribal drum. because after ten years you don't know what to expect. I hoped I grew up after all of that, but I couldn't be sure. I knew though that I'd be seeing the same face, the same girl.
 
-Sullenly, she replied "I used to be engaged to someone named David. He owned a massage business. We dated for three years, and finally he took me ice skating there, and proposed to me. I didn't know exactly what to do. It must have cost so much, and everyone was staring at me, and I said yes, but my Dad, he said no."
+Her smile could be felt just behind her door. I heard her coworker in there, shuffling to pack her things as they talked.
 
-"So what did you do?"
+After a knowck, "Come i~n" she sang.
 
-"What could I do~~~? We broke up. No poi~nt! I still can't skate there. It's really bad memory."
+The heavy room hotel door opened, the last barrier. It slid swiftly open, enough for me to see Minsun on sprawled on the bed, her roommate packing up. 
 
-She recited the story naturally, upset but accepting.
+There was no pause. Jumping up and into my arms in one movement, she screamed "Poco~!" And I swung her around in circles in my arms as she held onto me, light as a lunch, with every long lost friend finally rediscovery scene watching. Cliche watched too, and didn't shrug this time I know. It was so over the top it was a first.
 
-"What if, we made a new memory there? A happier memory?"
-
-"I'm sorry Poco, but I can't do it. It's there and it's been there for a long time. I didn't date anyone for years after that. That's life, you kno~w?"
+We stopped and we looked into eachother's her eyes.
 
 
 
+Her coworker's dark tan skin made me think she could have been from any number of countries.
 
 
-She loved the bed, more than I remembered. She snuggled in the covers and 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+"Less just rest for now." And she plopped on the bed, arms out.
+
+
+She loved beds somehow even more than I remembered. She snuggled in the covers and her eyes closed, hair infinite whisps on her white pillow. Her eyes stared at me and smiled, and her mouth smiled, beaming radiantly. It was so hard to not look away from fear of being burned.
+
+Our first memory resurfaced. In it only she talks, and I'm mute. Walking down a gloomy college dorm hall, suddenly framing the most beautiful thing on earth after turning a corner. The shock shook me a few steps back. She said "Haee" (("Hi")) in a sing song voice.
 
 
 
 "You didn't marry him because of your father?"
 
+"David owned deli~'s. You know deli~'s? Like with sandwiches? My father didn't think it was such a good job. He was also not assertive. I could walk over him and my father didn't like that."
 
 
 
@@ -47,7 +66,128 @@ She loved the bed, more than I remembered. She snuggled in the covers and
 
 
 
-Her eyes stared at me and smiled, and her mouth smiled, and I found it hard to not to look away.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+For two weeks my wife and daughter were out of town, and every day I walked by the skating rink, and one day I finaly rented skates. Overpriced coming with an additional fee for a locker, a steal.
+
+On the ice, going slowly, holding on to nothing. But then my legs began to piston and I went faster and faster, propelling me around the rink. Past the children out too late. Also past couples skating between extremes. They glided along passively aggrivessively fighting or laughing at how desperately they were clinging to each other. They all started to blur in front of me and in my mind as I went faster and faster in the circle.
+
+And then I remembered her nesting in her bed covers, in her pajamas drifting off to sleep, then her hand proping up her shaky head at dinner as she stared back at me. And then I began to cry because I'm an idiot.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+"Rockerfeler center is open."
+
+"I can't ice skate there. I had a very, ~bad~ experience." her accent pronounced every C like an S, and every S was mutilated, ground to dust while her tongue pushed against the back of her teeth. Before she said a sentence she prepared it, revving it up. She said the first few words, stopped, then charged on with the rest.
+
+"What happened?"
+
+Sullenly, she replied "I'll tell you." and her voice quieted dramatically as if on some que. She recited the story naturally, upset but accepting. "I used to be engaged to someone named David. He owned a massage business. We dated for three years, and finally he took me ice skating there, and proposed to me. I didn't know exactly what to do. So many people were there. It must have cost so much, and everyone was staring at me, and I said yes, but my Dad, he said no."
+
+"Did you love him?"
+
+"Yea I guess so. We were together for a long time. We did everything."
+
+"So what did you do?"
+
+"What could I do~~~? We broke up. No poi~nt! I still can't skate there. It's really bad memory."
+
+It snowed heavily the day before, but all of th fluff turned into hard ice by the end of that night. It was so crunchy under our feet, just piles of it pushed up against random trees, gates and corners. We walked silently for a while  at the top of Bryant park. No one was there, and no one skated there. I jumped on a table and looked into the rink over the gates. It was closed, even when I read earlier that it would be open. New York failed me. And she looked around, her face blank.
+
+
+
+
+
+"What if, we made a new memory at Rockerfeller? A happier memory?"
+
+A pause. "I'm sorry Poco, it's ok but I can't do it. It's there and it's been there for a long time, my feeling. I didn't date anyone for years after that. That's life, you kno~w?"
+
+
+
+
+
+
+
+
+
+
+
+
+
+-------------------
+
+
+
+
+
+
 
 "You love me!" she yelled, and slapped my arm. "Poco loves me. Oh Poco, the best Romance ~ever~" and as she laughed her hair fell in her face.
 
@@ -150,14 +290,12 @@ She dictated me the whole day play by play until I stood in front of her hotel r
 
 
 
-What did we mean to eachother, really? We never found out ((point of the story))
+What did we mean to eachother, really?
 
 
 
 
 We made up excuses on what our long hugs meant, and how no one cheated.
-
-((I passed, and got a great few jobs, married, with a daughter))
 
 
 
@@ -168,10 +306,6 @@ We made a promise to eachotehr that, if we weren't married by thirty, we'd marry
 Promise of not marrying anyone else until 30. Very juvinile.
 
 ....
-
-When she said that, I was wondering if she was making my daughter an accessory to the crime ((against my promise)).
-
-...
 
 Looking back, 30 is a bit young right? Shouldn't we have said 40?
 
@@ -231,17 +365,13 @@ I got on the train, heading back over the bridge, over the river.
 
 -------------------
 
-Every day I walked by the skating rink, and one day I finaly rented skates. Overpriced coming with an additional fee for a locker, a steal.
 
-Gliding, sometimes wobbly, over the ice. Holding on to nothing. But then my legs began to piston and I went faster and faster, propelling me around the rink. Past the children out too late and past the couples skating between extremes. They silently glided along as if passively aggrivessively fighting or laughing at how bad they were clinging to each other. They all started to blur in my mind.
-
-And then I remembered her bundled up, then in her pajamas going to sleep, and then her hand proping up her shaky head at dinner as she stared back at me. And then I began to cry.
+her fiance's joke, loving her for her body.
 
 
 
 
 
 
-
-
+:::: It's about discovering the person you made to be so beautiful be so different from what your imagination construed.
 

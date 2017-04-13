@@ -120,3 +120,15 @@ A reckless ganaching gnashing. She took the door apart with her bare everything.
 "COME TO MOMMA" she wailed, and a whale of clothes englufed her. She felt like Gepedo (from pinnocio) only more hopeless.
 
 You have to understand how banal and plain this woman was. The joke was on her, everyday wearing a different shade of grey. Silent movies screamed at her wardrobe it was so hideous. But she was turning over a new leaf, burning down the forest and saving the amazon(s?) while hugging all the trees. Ripping, tearing and ruining her clothes, she sought style where there was none.
+
+
+~~~~~~~~~~~~~~~~
+
+
+Leads to a political revolution?
+
+"There's a time that comes when you have to decide, do you want to be the problem, or do you want to be the solution?"
+
+...
+
+"You must choose. You must choose."

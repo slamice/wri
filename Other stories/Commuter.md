@@ -19,7 +19,7 @@ The steel doors slid open, and a few people dragged themselves off while Samir s
 
 The doors pried themselves open again then moved on. Samir sat there and wondered when he'd feel like getting up. If he had to cut up any more lettuce, fetch any more white tube socks with gray heels then he could at least stay one more moment on the train.
 
-The announcer sang the last stop's "Wakefield-241 street" and the doors yawned open. People slowly got up and began piling out. A few shifties only shifted, staying on looking indifferent. An unusually happening Spanish family, fashionable and popular among their peers, chatted each other to their seats. An older African lady with a huge straw hat simply shuffled like cards to a corner.
+The announcer sang the last stop's "Wakefield-241 street" and the doors yawned open. People slowly got up and began piling out. A few shifties only shifted, staying on looking indifferent. An unusually happening Spanish family, fashionable and popular among their peers, chatted each other to their seats. An older African American lady with a huge straw hat simply shuffled like cards to a corner.
 
 Samir's eyes swung past beam after beam in the dark corridor the train borrowed itself in. He stayed dreamily in his seat, waiting for the train's turn to back track.
 
@@ -33,7 +33,7 @@ Samir was sure he was on the same train many moments ago, and yet he had no idea
 
 He thought the situation might correct itself in a few and held out a bit more, separate from the unpleasantries of the drunks. He almost got up to approach the group in front of him, but his nerves sat him down again.
 
-The oval brightness morphed into a dark round gray. It passed quicker and quicker, only the pipes remained in constant view. While the train slowly accumulated rowdy racketeers, Samir pondered the people who still rode with him. The quiet straw hatted African lady in the corner stared beyond nothing. The Spanish family continued to chat in brief spurts to each other. Samir studied all their faces. They were completely without any doubt. No one was surprised in the least that the world changed and kept changing.
+The oval brightness morphed into a dark round gray. It passed quicker and quicker, only the pipes remained in constant view. While the train slowly accumulated rowdy racketeers, Samir pondered the people who still rode with him. The quiet straw hatted African American lady in the corner stared beyond nothing. The Spanish family continued to chat in brief spurts to each other. Samir studied all their faces. They were completely without any doubt. No one was surprised in the least that the world changed and kept changing.
 
 The announcer was barely audible above the static that suddenly crashed into the car. He was now equipped with an English accent, "The next station is Marble Arch".
 
@@ -41,7 +41,7 @@ A few talkative bunches got off the train, bumbling in a stupor. An older baldin
 
 Samir questioned his sanity. Maybe he was getting taken back, back to the end of the world, back to having nothing useful. He prayed while the sounds of the train nestled into his heart and punched it slowly from the inside, beating it harder and harder. Samir sat there in silence, wishing his English and biology would improve dramatically.
 
-They sped down the only direction they knew for hours. The train car leapt down its runway in a hurry. The train conductor's voice grew harder and harder to understand, not from teh static but from teh pronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox". A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. The Spanish family remained on the train, shuffling. The African American lady remained in the corner, reading a newspaper that materialized out of her bag just a moment ago.
+They sped down the only direction they knew for hours. The train car leapt down its runway in a hurry. The train conductor's voice grew harder and harder to understand, not from teh static but from teh pronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox". A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. The Spanish family remained on the train, . The African American lady remained in the corner, reading a newspaper that materialized out of her bag just a moment ago.
 
 Eventually the tunnel lights grew lighter again. Samir slumped as they flushed down deeper into the earth. Once they emerged out of a tunnel, the walls were cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds, now suspiciously clear, and a low solemn voice pronounced "Valcarca" in a accent. The Spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
 
@@ -51,7 +51,7 @@ A small jet black haired kid sat next to Samir as his mother stood in front of h
 
 "Qué?" she asked him.
 
-"Where is here?" hoping dreadfully she'd understand. He could feel his skin drying from the stress and airconditioner.
+"Where is here?" hoping dreadfully she'd understand. He could feel his skin drying from the stress and air conditioner.
 
 "¿Qué? Eh, Barcelona. Barcelona." She said slowly in a half smile.
 
@@ -59,13 +59,35 @@ A small jet black haired kid sat next to Samir as his mother stood in front of h
 
 "Ah, siento. No Inglés" Her face puckered a sad smile. Her son looked out the window and Samir nodded out two thank yous. They sped down the bright fluorescent gray tunnel. Samir thought this far in the train was still in on its joke but not laughing as much.
 
-As the people moved on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. Eventually Samir tired of sitting. He began to feel stale and bland on top as the panic settled along with the others. he got up, navigating through the cars. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
+As the people moved on and into each other so did Samir's sighs. People from all corners of the earth bobbled, hopped, dashed, dragged themselves into his car. Stations got dirtier then cleaner then dirtier again. The cars were packed with silent bodies or very bizarre ones. Eventually Samir tired of sitting. He began to feel stale and bland on top as the panic settled along with the others. He got up, navigating through the cars. After quietly making it through the entire train, taking him twenty or so minutes, he had reached the conductor's car.
 
 He knocked on the door once, harder again, pulled at the handle, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice.Lonely, He felt a bit like a spirit but without the haunting. A failed ghost.
 
 He sighed in frustration, but then a second wind hit him, and bravery pulled him up to the emergency break against the wall. He looked around but no one made eye contact with him. The plastic white handle just sat there on it's dirty and frayed cord, shivering as the car rattled. Samir braced himself as he put his hand around it, looked back at the distracted faces, and then gave a sharp tug.
 
-The emergency brake must have been broken, or never worked, because it did nothing. He tugged down hard, putting his weight on it, but it felt like a toy. Samir somehow knew he couldn't stop the train. He wiped his hand on his pants and cursed.
+The emergency brake must have been broken, or never worked, because it did nothing. He tugged down hard, putting his weight on it, but it felt like a toy. Again and again. Samir somehow knew he couldn't stop the train. He wiped his hand on his pants and cursed.
+
+----------------
+
+The haggard and indifferent looks were moving and twitching artifacts no different from the broken emergency brake he held. What was animated just before, smiling faces, laughs, banal chats and even kisses were replaced seconds later when the train massaged all of it out from existence. Under the spell.
+
+That's when a stranger no more than approached, standing up out of his chair, walking over, ripped from the page ((capture how they are stuck to the seats then get up)).
+
+"You wanna to ge' auff?" in a husky voice, a cigarette smoker.
+
+"ge' auff?" Samie mimiked. He only thought, somehow through this man, he needed to get back.
+
+"ge' auff the train?"
+
+"Wakefield two four one."
+
+"Wakefield. Wakefield?" the man search his brain, "I don' know whe' tha' is. ((Not too good with directions anyway. You lost? I'd say you could get off and catch the train going the other way back but this one doesn't have a straight route.))"
+
+"Home, You understand? New York."
+
+The man laughed, "New Yauk? We're pretty far from New Yauk."
+
+----------------
 
 It must have been a good five hours since he got on. Since then he had hopped through all the train cars, memorized their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He tried talking to anyone, but most like the mother spoke little English, if any. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to his original car. And while heavily distracted with disappointment and confusion, sleep overtook him.
 
