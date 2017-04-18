@@ -6,6 +6,27 @@
 - realizes his friend was just someone he made up in his head or was, instead of real life
 
 
+Minsun talks like this:
+- Sudden exclimation:
+	- "Oh my ga~wd!"
+	- "So we took a train, up to Bronx. Two hours!"
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -49,7 +70,16 @@ Soon enough we stood alone, "So how have you be~en?" she placed her hand on my s
 
 "What? Really?"
 
-"Yea actually. Minsun Kim is a pretty easy name to find. So many people came up it was hard to know which was which, no one had pictures."
+"Yea. Minsun Kim is a pretty easy name to find. So many people came up it was hard to know which was which, no one had pictures."
+
+We would smile at eachother, and pause, and look into eachother's eyes, and seriously no need for dramatic effect because we'd be content to do that, but out of necessity we'd need to come up with something to talk about, pathetic small talk that led nowhere, and we'd hack at that.
+
+
+
+
+
+
+
 
 
 
@@ -60,21 +90,11 @@ Soon enough we stood alone, "So how have you be~en?" she placed her hand on my s
 
 The Italian Chinese restaurant was at the ground floor of the Waldorf. They served tiny portions of food cut into various shapes and probably placed on the plates with tweezers. To me, honestly, the food was all tasteless. It didn't taste bad, it just didn't taste. My senses only took in the moment and mixed it roughly with my memories, then slowly folded them on top of eachother.
 
-Her face in the candlelight flitted in and out.
+Shadows on her face flitted in and out by the candlelight.
 
-"How is your wife?"
+"How is your wife? When did you get marri~ed?!"
 
-
-
-
-
-
-
-
-
-
-
-We took a small detour from the hotel, and headed left on to 40th 
+"4 years ago."
 
 
 
@@ -84,10 +104,42 @@ We took a small detour from the hotel, and headed left on to 40th
 
 
 
+"What's your fiancé like?"
+
+"He's handsome, and smart. He's a young doctor studying to be a hart ((heart)) sugeon. ((surgeon))" She said as a matter of fact, recalling him and smiling. "He's not like my other boyfiends ((sic)) you met before."
+
+"Really? What's he into besides ripping people's hearts out?"
+
+Without batting an eye, "He's into basketball. Last time he came here he wanted to see where ____ used to play before he got famous. So we took a train, up to Bronx. Two hours! We got there and the area was so sketchy, so after five minutes we headed back."
+
+"That must have been really annoying..."
+
+"It was fine. I mean, we saw Statue of Liberty, Times Squa~e."
+
+-----------
+
+her fiance's joke, loving her for her body.
+
+they never said I love you to eachother
+
+------------
 
 
 
-"Rockerfeler center is open."
+
+
+
+
+
+
+
+We took a small detour from the hotel, and headed left, then up towards 47th.
+
+"You want to skate tonight."
+
+She yawned back to a particular memory, "How did you rememb~er? I love to skate."
+
+"Rockerfeller center is open."
 
 "I can't ice skate there. I had a very, ~bad~ experience." her accent pronounced every C like an S, and every S was mutilated, ground to dust while her tongue pushed against the back of her teeth. Before she said a sentence she prepared it, revving it up. She said the first few words, stopped, then charged on with the rest.
 
@@ -103,38 +155,48 @@ Sullenly, she replied "I'll tell you." and her voice quieted dramatically as if 
 
 "What could I do~~~? We broke up. No poi~nt! I still can't skate there. It's really bad memory."
 
-It snowed heavily the day before, but all of th fluff turned into hard ice by the end of that night. It was so crunchy under our feet, just piles of it pushed up against random trees, gates and corners. We walked silently for a while  at the top of Bryant park. No one was there, and no one skated there. I jumped on a table and looked into the rink over the gates. It was closed, even when I read earlier that it would be open. New York failed me. And she looked around, her face blank.
+"Well... I checked Bryant Park this morning, they said it'd be open for skating tonight."
 
+Her arm curled into mine tigther, and we walked like that. Occassionally, we would smile at eachother, and pause, and look into eachother's eyes, and seriously no need for dramatic effect because we'd be content to do that, but out of necessity we'd need to come up with something to talk about, pathetic small talk that led nowhere, and we'd hack at that.
 
-
-
-
-
-
-
-
-
+It snowed heavily the day before, but all of the fluff turned into hard ice by the end of that night. It was so crunchy under our feet, just piles of it pushed up against random trees, gates and corners. We walked silently for a while  at the top of Bryant park. No one was there, and no one skated there. I jumped on a table and looked into the rink over the gates. It was closed, even when I read earlier that it would be open. New York failed me. And she looked around, her face blank.
 
 "What if, we made a new memory at Rockerfeller? A happier memory?"
 
-A pause. "I'm sorry Poco, it's ok but I can't do it. It's there and it's been there for a long time, my feeling. I didn't date anyone for years after that. That's life, you kno~w?"
+A pause. "I'm sorry Poco, it's ok but I can't do it. It's there and it's been there for a long time, my feeling. I didn't date anyone for years after that. No one."
+
+She looked at me, then away, "that's life, you kno~w?"
 
 
 
 
-----
 
-Promise of not marrying anyone else until 30. Very juvinile.
 
-....
+"I'll only ask this once, not to make it awkward as I tried to make it awkward."
 
-Looking back, 30 is a bit young right? Shouldn't we have said 40?
+"Ok," she said with a child's voice, her voice, like my daughter's voice.
 
-Maybe, I guess... It is a bit young, but not where I come from. 26 is pretty late.
+"Remember we made a promise, to marry each other..."
 
-I'll only ask this once, not to make it awkward as I tried to make it awkward.
+"Really?" she said without looking at me, "I don't remember that."
 
--------
+"When we are 30, we said, if neither of us was married then we'd marry eachother." Her eyebrows squenched at that one.
+
+"Would you have married me then?"
+
+She then stopped me dramatically, looked me straight at me in the eye, "If you were rich." And laughed so hard, and I pretended to laugh with her. She almost doubled ove, and came down.
+
+"I don't kno~w. We never tried. We'd have to date eachother, get to know each other, you kno~w. Then maybe... But you got married anywa~y so you ruined that."
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -188,7 +250,7 @@ Our first memory resurfaced. In it only she talks, and I'm mute. Walking down a 
 
 
 
-
+We hugged on our way out. She, still so light, I felt if I hugged hard enough I would crush her. So I didn't and she survived ((she crushed him)).
 
 
 
@@ -226,7 +288,6 @@ Wants better for her than her fiance'.
 
 
 
-We would smile at eachother, and pause, and look into eachother's eyes, and seriously no need for dramatic effect because we'd be content to do that, but out of necessity we'd need to come up with something to talk about, pathetic small talk that led nowhere, and we'd hack at that.
 
 
 
@@ -443,14 +504,6 @@ I hugged her in the bed, and then once when we got up. I knew I'd miss her, and 
 I got on the train, heading back over the bridge, over the river. 
 
 -------------------
-
-
-
-her fiance loving basketball, going to one court in the bronx for a few minutes then leaving
-
-her fiance's joke, loving her for her body.
-
-they never said I love you to eachother
 
 
 
