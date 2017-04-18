@@ -17,17 +17,124 @@ The hotel by Grand Central threw people in and out so fast its revolving doors t
 
 Her smile could be felt just behind her door. I heard her coworker in there, shuffling to pack her things as they talked.
 
-After a knowck, "Come i~n" she sang.
+After a knock, "Come i~n" she sang.
 
-The heavy room hotel door opened, the last barrier. It slid swiftly open, enough for me to see Minsun on sprawled on the bed, her roommate packing up. 
+The heavy room hotel door was the last barrier. It slid swiftly open, dragging its feet on the carpet. And barely a moment later was enough for me to see Minsun sprawled on the bed, her roommate packing up. 
 
 There was no pause. Jumping up and into my arms in one movement, she screamed "Poco~!" And I swung her around in circles in my arms as she held onto me, light as a lunch, with every long lost friend finally rediscovery scene watching. Cliche watched too, and didn't shrug this time I know. It was so over the top it was a first.
 
-We stopped and we looked into eachother's her eyes.
+We stopped and we looked into eachother's her eyes. "I didn't think you'd be so e~arly."
+
+"I'm not," my mouth smiled. But I was, I knew I was. Grand Central had been in my mind since she told me, and I avoided it enough for the weeks until she arrived and toured it for an hour or two with spare time. Without the rush it felt barron, and there were brief moments where only a few people stood in the main hall, each one alone waiting for them to happen on someone. 
+
+Her coworker's dark tan skin made me think she could have been from any number of countries, but I'm a terrible judge of origin or character on first impressions or long impressions. o many people were getting unlimited tans you'd have to chip at ths skin on the shoulders to know if it's real or fake. She was on her way out anyway to catch her plane. Minsun introduced us briefly, and we idled chatter in the air, placing the words carefully and professionally. Since the small talk was so miniscule we lost sight of it and it was over.
+
+"I hope you both have a wonderful time."
+
+"It's been ten almost," I corrected her.
+
+"Ah ten is so long. You should have so much fun."
+
+"Sorry I can't be with you Helena~" Minsun squeeked. They embraced quickly from the shoulders up.
+
+"You don't need me anyway, catch up! Catch up! My brother will be waiting for me at the airport I don't want to miss my flight. It was nice meeting you."
+
+Soon enough we stood alone, "So how have you be~en?" she placed her hand on my shoulder and paused, laughed a bit then headed over to the bathroom, her purse, the nightstand, the closet. She kept looking back at me, listening to my confidence, or my bravado?
+
+"I've definitely been, it's been too long. I can't believe I found you, really."
+
+"Actually I wondered for so often... Where is Poco? I tried looking for you everywhere but your name doesn't show up. Poco Saltino is very easy to find."
+
+"Ah it's 'Seltino'"
+
+"What? Really?"
+
+"Yea actually. Minsun Kim is a pretty easy name to find. So many people came up it was hard to know which was which, no one had pictures."
 
 
 
-Her coworker's dark tan skin made me think she could have been from any number of countries.
+
+
+
+
+
+The Italian Chinese restaurant was at the ground floor of the Waldorf. They served tiny portions of food cut into various shapes and probably placed on the plates with tweezers. To me, honestly, the food was all tasteless. It didn't taste bad, it just didn't taste. My senses only took in the moment and mixed it roughly with my memories, then slowly folded them on top of eachother.
+
+Her face in the candlelight flitted in and out.
+
+"How is your wife?"
+
+
+
+
+
+
+
+
+
+
+
+We took a small detour from the hotel, and headed left on to 40th 
+
+
+
+
+
+
+
+
+
+
+
+
+"Rockerfeler center is open."
+
+"I can't ice skate there. I had a very, ~bad~ experience." her accent pronounced every C like an S, and every S was mutilated, ground to dust while her tongue pushed against the back of her teeth. Before she said a sentence she prepared it, revving it up. She said the first few words, stopped, then charged on with the rest.
+
+"What happened?"
+
+Sullenly, she replied "I'll tell you." and her voice quieted dramatically as if on some que. She recited the story naturally, upset but accepting. "I used to be engaged to someone named David. He owned a massage business. We dated for three years, and finally he took me ice skating there, and proposed to me. I didn't know exactly what to do. So many people were there. It must have cost so much, and everyone was staring at me, and I said yes, but my Dad, he said no."
+
+"Did you love him?"
+
+"Yea I guess so. We were together for a long time. We did everything."
+
+"So what did you do?"
+
+"What could I do~~~? We broke up. No poi~nt! I still can't skate there. It's really bad memory."
+
+It snowed heavily the day before, but all of th fluff turned into hard ice by the end of that night. It was so crunchy under our feet, just piles of it pushed up against random trees, gates and corners. We walked silently for a while  at the top of Bryant park. No one was there, and no one skated there. I jumped on a table and looked into the rink over the gates. It was closed, even when I read earlier that it would be open. New York failed me. And she looked around, her face blank.
+
+
+
+
+
+
+
+
+
+
+
+"What if, we made a new memory at Rockerfeller? A happier memory?"
+
+A pause. "I'm sorry Poco, it's ok but I can't do it. It's there and it's been there for a long time, my feeling. I didn't date anyone for years after that. That's life, you kno~w?"
+
+
+
+
+----
+
+Promise of not marrying anyone else until 30. Very juvinile.
+
+....
+
+Looking back, 30 is a bit young right? Shouldn't we have said 40?
+
+Maybe, I guess... It is a bit young, but not where I come from. 26 is pretty late.
+
+I'll only ask this once, not to make it awkward as I tried to make it awkward.
+
+-------
 
 
 
@@ -46,10 +153,18 @@ Her coworker's dark tan skin made me think she could have been from any number o
 
 
 
-"Less just rest for now." And she plopped on the bed, arms out.
 
 
-She loved beds somehow even more than I remembered. She snuggled in the covers and her eyes closed, hair infinite whisps on her white pillow. Her eyes stared at me and smiled, and her mouth smiled, beaming radiantly. It was so hard to not look away from fear of being burned.
+
+
+
+
+
+
+"Less juss rest for now." And she plopped on the bed, arms out.
+
+
+She loved beds somehow even more than I remembered. She snuggled in the covers and her eyes closed, her infinite black whisps of hair on her white pillow, the happiest dark starfish. Her eyes stared at me and smiled, and her mouth smiled, beaming radiantly. It was so hard to not look away from fear of being burned.
 
 Our first memory resurfaced. In it only she talks, and I'm mute. Walking down a gloomy college dorm hall, suddenly framing the most beautiful thing on earth after turning a corner. The shock shook me a few steps back. She said "Haee" (("Hi")) in a sing song voice.
 
@@ -103,6 +218,15 @@ And then I remembered her nesting in her bed covers, in her pajamas drifting off
 
 
 
+Wants better for her than her fiance'.
+
+
+
+
+
+
+
+We would smile at eachother, and pause, and look into eachother's eyes, and seriously no need for dramatic effect because we'd be content to do that, but out of necessity we'd need to come up with something to talk about, pathetic small talk that led nowhere, and we'd hack at that.
 
 
 
@@ -135,39 +259,6 @@ And then I remembered her nesting in her bed covers, in her pajamas drifting off
 
 
 
-
-
-
-
-
-
-
-
-"Rockerfeler center is open."
-
-"I can't ice skate there. I had a very, ~bad~ experience." her accent pronounced every C like an S, and every S was mutilated, ground to dust while her tongue pushed against the back of her teeth. Before she said a sentence she prepared it, revving it up. She said the first few words, stopped, then charged on with the rest.
-
-"What happened?"
-
-Sullenly, she replied "I'll tell you." and her voice quieted dramatically as if on some que. She recited the story naturally, upset but accepting. "I used to be engaged to someone named David. He owned a massage business. We dated for three years, and finally he took me ice skating there, and proposed to me. I didn't know exactly what to do. So many people were there. It must have cost so much, and everyone was staring at me, and I said yes, but my Dad, he said no."
-
-"Did you love him?"
-
-"Yea I guess so. We were together for a long time. We did everything."
-
-"So what did you do?"
-
-"What could I do~~~? We broke up. No poi~nt! I still can't skate there. It's really bad memory."
-
-It snowed heavily the day before, but all of th fluff turned into hard ice by the end of that night. It was so crunchy under our feet, just piles of it pushed up against random trees, gates and corners. We walked silently for a while  at the top of Bryant park. No one was there, and no one skated there. I jumped on a table and looked into the rink over the gates. It was closed, even when I read earlier that it would be open. New York failed me. And she looked around, her face blank.
-
-
-
-
-
-"What if, we made a new memory at Rockerfeller? A happier memory?"
-
-A pause. "I'm sorry Poco, it's ok but I can't do it. It's there and it's been there for a long time, my feeling. I didn't date anyone for years after that. That's life, you kno~w?"
 
 
 
@@ -301,19 +392,7 @@ We made up excuses on what our long hugs meant, and how no one cheated.
 
 We made a promise to eachotehr that, if we weren't married by thirty, we'd marry each other.
 
-----
 
-Promise of not marrying anyone else until 30. Very juvinile.
-
-....
-
-Looking back, 30 is a bit young right? Shouldn't we have said 40?
-
-Maybe, I guess... It is a bit young, but not where I come from. 26 is pretty late.
-
-I'll only ask this once, not to make it awkward as I tried to make it awkward.
-
--------
 
 
 
@@ -366,7 +445,24 @@ I got on the train, heading back over the bridge, over the river.
 -------------------
 
 
+
+her fiance loving basketball, going to one court in the bronx for a few minutes then leaving
+
 her fiance's joke, loving her for her body.
+
+they never said I love you to eachother
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

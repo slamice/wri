@@ -1,1 +1,1 @@
-Sometimes it feels whishful. THe days flew by unintended but angrily, like sitting ducks. A while later, they swam up and wanted some bread.
+Sometimes it feels whishful. The days flew by unintended but angrily, like sitting ducks. A while later, they swam up and wanted some bread.

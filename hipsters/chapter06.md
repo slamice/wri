@@ -1,8 +1,8 @@
-One night I went to a show alone. Renee was off at one of her retreats in the forest and Selina continued down a the dating road and her future prospects, very oddly never seemed to stick.
+One night I went to a show alone. Renee was off at one of her retreats in the forest and Selina continued down a dating road and her future prospects, very oddly never seeming to stick.
 
 My long walk took me down alleys and construcion sites, through lost lots of the city's soul. A few randoms shuffled along, tehy spoke audible English but no words understandble. I pleaded with myself never to do this again. Walking to shows for so long, intentionally ignoring maps, missing buses I thought were too slow for me.
 
-The show was advertised in a zine I found in a coffee shop. The venue was only called Stiff and was very difficult to find. For a good half an hour I ended up in some projects. They were buildings with sprinkled sores, and next to those were boarded up houses. Some high tension antisocials walked the streets, and I was taken aback a bit especially when two biking assholes shot a high pitched scream and tehn looked to me for a reaction. But after two jean jacket wearing randoms finally directed me to a place two train stations away. It was above  Whatever Tattoo, and the show itself was in someone's living room. An art collective that housed all kinds of artists, none of which were classical. As long as they chugged out music and art they could scrape by and slowly mold with the apartments they lived in.
+The show was advertised in a zine I found in a coffee shop. The venue was only called Stiff and was very difficult to find. For a good half an hour I ended up in some projects. They were buildings with sprinkled sores, and next to those were boarded up houses. Some high tension antisocials walked the streets, and I was taken aback a bit especially when two biking assholes shot a high pitched scream and then looked to me for a reaction. But afterwards two jean jacket wearing randoms finally directed me to a place two train stations away. It was above Whatever Tattoo, and the show itself was in someone's living room. An art collective that housed all kinds of artists, none of which were classical. As long as they chugged out music and art they could scrape by and slowly mold with the apartments they lived in.
 
 Inside everyone huddled together in small clumps of friends. Most of the guys held beers and shook hands. Some of the guys cross dressed. They wore stockings and long hair smiling behind their drinks. Others had thick beards. One later that night sang about a bully he encountered in a bar very softly, "fuck you guy" he whispered.
 
@@ -16,7 +16,7 @@ I think I was the only person in the crowd not to have a band member who was my 
 
 I've seen similar bands time and again, and even the broken microphone couldn't make it more interesting. The first was a soloist, acoustic and shy singing about loving a girl, losing a girl, lost some hope but was still wishful. But one I remember clearly.
 
-They were an unfocused band, and I couldn't tell if they were serious or not. Their drummer was lost in a dream, the beats were amatuer.  He donned a blue jacket until the attic venue's humidity slowly grew unbearable. The other three band members exchanged vocals with every song. One girl sang in a monotonous tone ((monotone)), the guy wore a denim dress and earings and his voice was low enough to skim the ground. All of this met my expectations.
+They were an unfocused band, and I couldn't tell if they were serious or not. Their drummer was lost in a dream, the beats were amatuer and barely audible. He donned a blue jacket until the attic venue's humidity slowly grew unbearable. The other three band members exchanged vocals with every song. One girl sang in a monotonous tone ((monotone)), the guy wore a denim dress and earings and his voice was low enough to skim the ground. All of this met my expectations.
 
 There was a girl, young on the bass, who only sang the last song. ((Describe her young in a differnt way, too young to be there)) She looked no older than fourteen, small and petite with long dirty blonde hair. She wailed on sinking into an emotional abyss, her song was her leaning against a wall of depression. So desperate she couldn't see where she was going even though she'd been the same place again and again. And again. We all clapped on time when it was over.
 
@@ -26,7 +26,34 @@ But afterward she wound up XLR guitar cables, and sank into her tall Puerto Rica
 
 And of course, the only answer was "Nothing."
 
+She looked back at me, everyday getting younger, her bandmates too. I sided up with the drummer, thrown a bit to the side looking just as young, bored woundering whether they should pack up because they did their set, even if two more bands were set to play.
 
+"So you came all the way from Boston? What's there to do there."
 
+"Boston isn't really something you do." without looking at my face and my four day unshaven beard.
 
+"You think New York is something to do?"
 
+"Yea, actually." He smiled, "What's wrong with New York?"
+
+"Wha-"
+
+"I'm not expecting an answer." he shrugged, "Hey we get by you know. We're not well known or anything but we get by. What do you do?"
+
+"I'm in a band too actually."
+
+"What about for money?"
+
+"I work at a company making systems for _______, I write software."
+
+"Sounds like a fantastic mystery... You play around town then?"
+
+"We play but we don't like to play too much. Seems it would suck out all the fresh from it. Some, or even most people here play shows two or three times a month."
+
+"I mean you have to get the word out though." He almost snarled, finally looking at me, "You have to push the boundaries."
+
+"Pushing the boundaries," Dock walked in, a mispresence out of alliignment. "that's what you gotta do. Dock, nice to meet you." He stuck out his hand for a firm shake to teh drummer, who was a bit bewildered.
+
+"Matt. You know eachother?"
+
+"Yea," Dock snuck out slowly, "I've known this scallywag a few years since university. Sorry I missed your set Matt."
