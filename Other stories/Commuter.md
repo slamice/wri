@@ -25,7 +25,7 @@ Samir's eyes swung past beam after beam in the dark corridor the train borrowed 
 
 The tunnel soon began flooding with bright florescent light. Hundreds of white tiles fevered on the walls until they covered them, and Samir's body twinged a bit in puzzlement. His livid mind hadn't caught up with his environment yet, but it slowly grew a bit curious and surprised. His stop somehow vanished.
 
-Soon the tunnel opened up and the conductor, in a very heavy and muffled voice announced "South Kensington". Breaking open again, the doors welcomed an older gentleman out. A moment later a small crowd high heeled and loafered into the car, looking as high as risen loaves. They laughed in between half drunk coughs. One had an unlit cigarette dangling from his lip. They all spoke as if their mouths were full of bread and they were choking it down, gafawing hard. In the corner, the straw hatted lady looked on at them unimpressed in her corner then slowly away.
+Soon the tunnel opened up and the conductor, in a very heavy and muffled voice announced "South Kensington". Breaking open again, the doors welcomed an older gentleman out. A moment later a small crowd high heeled and loafered into the car, looking as high as risen loaves. They laughed in between half drunk coughs. One had an unlit cigarette dangling from his lip. They all spoke as if their mouths were full of bread and they were choking it down, gafawing hard. In the corner, the straw hatted lady in her corner looked on at them unimpressed then slowly away.
 
 Samir's eyebrow twitched and he felt himself waking up a bit. Out a window he witnessed speckled yellow tiles spread across the floor, accompanying the brightly lit tunnel. They were so clean he panicked. Too clean for the Bronx. He gulped and held himself slowly, wondering who to ask or gesture, but Samir's English was weak enough to break so he hardly used it. The missing words sat sad and crying nestled behind his tongue.
 
@@ -39,11 +39,23 @@ The announcer was barely audible above the static that suddenly crashed into the
 
 A few talkative bunches got off the train, bumbling in a stupor. An older balding man stepped on and sat opposite to Samir. And they continued on.
 
-Samir questioned his sanity. Maybe he was getting taken back, back to the end of the world, back to having nothing useful. He prayed while the sounds of the train nestled into his heart and punched it slowly from the inside, beating it harder and harder. Samir sat there in silence, wishing his English and biology would improve dramatically.
+Samir questioned his sanity. Maybe he was getting taken back, back to the end of the world, back to having nothing useful. He prayed while the sounds of the train nestled into his heart and punched it slowly from the inside, beating it harder and harder. And he sat there in silence, wishing his English and biology would improve dramatically.
 
-They sped down the only direction they knew for hours. The train car leapt down its runway in a hurry. The train conductor's voice grew harder and harder to understand, not from teh static but from teh pronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox". A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. The Spanish family remained on the train, . The African American lady remained in the corner, reading a newspaper that materialized out of her bag just a moment ago.
+Finally getting up, walking between people, between cars. He looked at the stupid windows that were too stuck to open but only saw his life speeding by, the blur behind the dirt. It's not that people weren't hospitable, they weren't anyway but, they had to _be_ somewhere.
 
-Eventually the tunnel lights grew lighter again. Samir slumped as they flushed down deeper into the earth. Once they emerged out of a tunnel, the walls were cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds, now suspiciously clear, and a low solemn voice pronounced "Valcarca" in a accent. The Spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
+Every New Yorker, even the latest ones, knew the warning and danger signs to avoid walking between cars were only there for aesthetic and dramatic affect. So despite them he walked between the cars and didn't even the hollow thunder echo in the subway tunnel above his own thoughts and confusion. Walking into a new car he fumbled out, ignoring a few stares but hitting an older lady. "Excuse". He said.
+
+"Do'n leen on me." with an aggressive hiss.
+
+The possiblity of a conversation leapt off a cliff, and Samir watched it fall as he muddled through this car. A slightly heavy smell wafted.
+
+"New York?" He asked the car as the car hushed. The air thickened with stares and barely any acknowledgement. "New York City? Where?"
+
+A few people laughed, one hiding among the many yelled in a laugh "In America!"
+
+They sped down the only direction they knew for hours. The train car leapt down its runway in a hurry. The train conductor's voice grew harder and harder to understand, not from teh static but from teh pronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox". A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. The Spanish family remained on the train, and the African American lady remained in the corner, reading a newspaper that materialized out of her bag just a moment ago.
+
+Eventually the tunnel lights grew lighter again. Samir slumped as they flushed down deeper into the earth. Once they emerged out of a tunnel, the walls were cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds, now suspiciously clear, and a low solemn voice pronounced "Valcarca" in an accent. The Spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
 
 A small jet black haired kid sat next to Samir as his mother stood in front of him. The kid held out a flat aluminum papered stick between his fingers. "¿Chicle?" he offered. His mom glanced at both of them and smiled.
 
@@ -71,21 +83,31 @@ The emergency brake must have been broken, or never worked, because it did nothi
 
 The haggard and indifferent looks were moving and twitching artifacts no different from the broken emergency brake he held. What was animated just before, smiling faces, laughs, banal chats and even kisses were replaced seconds later when the train massaged all of it out from existence. Under the spell.
 
-That's when a stranger no more than approached, standing up out of his chair, walking over, ripped from the page ((capture how they are stuck to the seats then get up)).
+"Hey! What a you doin?"
 
-"You wanna to ge' auff?" in a husky voice, a cigarette smoker.
+That's when a stranger no more than him approached, standing up out of his chair, walking over, a page ripped out from the train's book ((capture how they are stuck to the seats then get up)).
 
-"ge' auff?" Samie mimiked. He only thought, somehow through this man, he needed to get back.
+"What's the emergency? You wanna to ge' auff?" in a husky voice, a cigarette smoker.
+
+"ge' auff?" Samir mimiked but only thought, somehow through this man, he needed to get back.
 
 "ge' auff the train?"
 
 "Wakefield two four one."
 
-"Wakefield. Wakefield?" the man search his brain, "I don' know whe' tha' is. ((Not too good with directions anyway. You lost? I'd say you could get off and catch the train going the other way back but this one doesn't have a straight route.))"
+"Wakefield. Wakefield?" the man searched his brain, "I don' know whe' tha' is. ((Not too good with directions anyway. You lost? I'd say you could get off and catch the train going the other way back but this one doesn't have a straight route.))"
 
 "Home, You understand? New York."
 
 The man laughed, "New Yauk? We're pretty far from New Yauk."
+
+"My home is New York."
+
+"Listen," he shimmied a bit closer to Samir with a lower voice, his eyes darting for listeners, "What if we got out of the train? I could call an embassy if you like? Where are you from? I never get reception here though."
+
+"Train goes back?"
+
+"I don't think this train has ever turned back. You could stay I guess and get off wherever you were, but I don't know how long that'll be."
 
 ----------------
 
@@ -95,7 +117,7 @@ Again slumped in a chair, he began to drift off to the rhythm of the car shaking
 
 When his eyes opened it was just him with hunger pangs and the only person who he recognized earlier, the older African American lady with her big hat. They sped down yet another dark corridor. Samir walked toward her hopefully, wondering with a heavy heart if she knew where they were headed. She noticed him lazily, pursed her lips and then dropped them. Then again her lips judged him.
 
-"Excuse?" Samir intended it shyly but it came out perverse. "Where is here?"
+"Excuse me?" Samir intended it shyly but it came out perverse. "Where is here?"
 
 "We on the train honey." She said bluntly. A blank stare on Samir's face made her yell "ON. THE. TRAIN."
 

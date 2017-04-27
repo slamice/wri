@@ -126,7 +126,15 @@ Selina shrugged, "kind of, but wanted to take it easy tonight. Take it easy."
 
 On my way out I ordered Renee's latte. Selina's haze started to brighten up, 
 
-The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments hadn't yet gone on sale. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs.
+The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments hadn't yet gone on sale. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. Basterdized Bauhaus under a modern sky. The same sky's been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they needed to do to need to do.
+
+I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. I sipped Renee's latte, the ice melting as my hand warmed it. I looked up and tried to find a star under all the street lamps. ((These people try to reach the top, and they look down where they once were, and wonder if the view is better on the otehr side of the complex, by the pond shaped thing, as they dim their living room lights and go to sleep.
+
+There was nothing to play with outside, everything was spotless, relentlessly clean to a point of no return. Rustling my jacket, pretending to have a cigarette in my mouth. I held it between two of my fingers, chocked and coughed a bit from the dry wretch in my throat. My eyes closed and I waited. I waited for my father to call me back, to beg me to come home. Or for my work to fall in front of me, asking me to re-arrange the letters over and over again until somehow it worked. I saw Selina's red eyes looking at me, with a jiggered smile. A "beautiful" corruption that she would defend. What was wrong with normal eyes you could see?))
+
+I hummed a soft sylable in a bass, my eyes still closed, forgetting the world. But the latte was cold and wondered where it was, so I had to save it.
+
+
 
 
 

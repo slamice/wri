@@ -14,11 +14,11 @@ Ch3 . Renee is still connected with his old friends. Eventually they go to jack'
 
 
 
-Renee and I walked back to our makeshift apartment when we saw a light was on a block back. Since we moved in we haven't said hi to Jack and his friends. I hadn't seen him since the dance party i saw him at. It was fairly uninteresting.
+Renee and I were walking back to our makeshift apartment when we saw a light was on a block back ((ahead of us)). Since we moved in we haven't said hi to Jack and his friends. I hadn't seen him since the dance party i saw him at. It was fairly uninteresting.
 
 "We should at least stop by to visit them."
 
-"I mean maybe Jack but that's it. Just avoid Andy. Why am I supposed to see him?"
+"I mean maybe Jack but that's it. Just avoid Andrew. Why am I supposed to see him?"
 
 "Because he's still my friend-" she said, stammering.
 

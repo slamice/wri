@@ -57,3 +57,6 @@ She looked back at me, everyday getting younger, her bandmates too. I sided up w
 "Matt. You know eachother?"
 
 "Yea," Dock snuck out slowly, "I've known this scallywag a few years since university. Sorry I missed your set Matt."
+
+"It's fine. I'll do it again tomorrow and tomorrow." Matt settled in, less alarmed, more familiar. His world accompanied a cohort, like himself someone who probably mattered around here.
+

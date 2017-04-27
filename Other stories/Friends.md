@@ -1,36 +1,24 @@
-- girl and guy meet in NYC
-- girl has fiance coming the next day
-- find out girl and guy have history of flirting
-- guy has a son and wife
-- guy is in love with the thought of her
-- realizes his friend was just someone he made up in his head or was, instead of real life
+Her dormitory bed was simple, minimalist and empty ((except for us)). It's where we lied thinking, a few times even holding hands. Her hand was warm and was the softest thing in mine. A towel covered the entire thing and then a thin sheet on top of that. I remember it better than her room, which was mostly empty. Fully clothed, contemplating life, the future and our relationships to the world for the first time again. She was as lost as I was as she was as I.
 
+Her ex-boyfriend then was a popular topic. Another time She found two tickets to a movie, a bad one, in his wallet when he went back to Korea.
 
-Minsun talks like this:
-- Sudden exclimation:
-	- "Oh my ga~wd!"
-	- "So we took a train, up to Bronx. Two hours!"
+"It's too obvious. Is he just careless?"
 
+"I don't know, maybe?" Her voice rose at the end of each sentences, half a whine. It was grating but very cute.
 
+"This movie is so horrible, maybe they didn't watch it and they did something else." We laughed, her nervously. We were so innocent we couldn't even bring ourselves to contemplate the words behind that possibility. We talked about his broken Korean, how caring and humble his mother was. A devout christian widow, set up a separate room for Minsin to sleep in when she visited. She told me about how their cat sat on her face often at night, and they made her allergic een though she swore she wasn't before.
 
+Around exams she invited me over to study, but her room was so warm I fell asleep without reluctance on her bed while she studied at her desk. She never found it amusing and kicked me out when she needed to sleep. It was just routine to her.
 
+......................................................
 
+She dictated me the whole day play by play until I stood in front of her hotel room. It was weird remembering who she was, A walking memory, or in her case a stationary memory, sitting diseased with melancholy sprinkled with ironic giggles. I knew she thought it too, we both did, how the city shadowed anywhere either of us went. We were together awkwardly closing in on eachother, in no hurry.
 
+"Haitham!" She screamed out in joy when I knocked, and she screamed it again when we hugged and turned in circle after circle, carrying her light body in an embrace. 
 
+......................................................
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+She went on about her new fiance for months
 
 
 
@@ -74,19 +62,7 @@ Soon enough we stood alone, "So how have you be~en?" she placed her hand on my s
 
 We would smile at eachother, and pause, and look into eachother's eyes, and seriously no need for dramatic effect because we'd be content to do that, but out of necessity we'd need to come up with something to talk about, pathetic small talk that led nowhere, and we'd hack at that.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+....................................................
 
 The Italian Chinese restaurant was at the ground floor of the Waldorf. They served tiny portions of food cut into various shapes and probably placed on the plates with tweezers. To me, honestly, the food was all tasteless. It didn't taste bad, it just didn't taste. My senses only took in the moment and mixed it roughly with my memories, then slowly folded them on top of eachother.
 
@@ -96,13 +72,7 @@ Shadows on her face flitted in and out by the candlelight.
 
 "4 years ago."
 
-
-
-
-
-
-
-
+....................................................
 
 "What's your fiancé like?"
 
@@ -114,9 +84,36 @@ Without batting an eye, "He's into basketball. Last time he came here he wanted 
 
 "That must have been really annoying..."
 
-"It was fine. I mean, we saw Statue of Liberty, Times Squa~e."
+"It was fine. I mean, we saw Statue of Liberty, Times Squa~e." She trailed off, looking at the food, at the lights in a daze.
+
+
+"Well what's he like?"
+
+"He's like, an athletic guy. After a long day at werk, he just wants to play basketball. He loves it so much. One time we were in New York for a visit, and we went all the way up to teh Bronx. He wanted to see where ___________ played. SO we took the train for two hours, but by then it was getting dark, and the area is not so safe, so we were there for two minutes, saw it then went back."
+
+
+....................................................
+
+
+"When did he first say I love you?"
+
+"A~h," she sighed into her words, and like some ((secret)) gossip she gave it to me very quietly with a smile. "He never did."
+
+"Wait what? You can't be serious..." in shock.
+
+"I~'m seriu~s!"
+
+"But you told him right? That you loved him?"
+
+"No I didn't..." She laughed, and her eyes widened as she honested to me "I'm not gonna lou~use!"
+
+I put down my fork and looked her straight in the eye, disappointed.
+
+"He's the only one I've shown my belly fat to. I know he's the one. I mean, I don't regret anything."
 
 -----------
+
+belly fat
 
 her fiance's joke, loving her for her body.
 
@@ -124,14 +121,7 @@ they never said I love you to eachother
 
 ------------
 
-
-
-
-
-
-
-
-
+....................................................
 
 We took a small detour from the hotel, and headed left, then up towards 47th.
 
@@ -168,8 +158,7 @@ A pause. "I'm sorry Poco, it's ok but I can't do it. It's there and it's been th
 She looked at me, then away, "that's life, you kno~w?"
 
 
-
-
+....................................................
 
 
 "I'll only ask this once, not to make it awkward as I tried to make it awkward."
@@ -188,39 +177,7 @@ She then stopped me dramatically, looked me straight at me in the eye, "If you w
 
 "I don't kno~w. We never tried. We'd have to date eachother, get to know each other, you kno~w. Then maybe... But you got married anywa~y so you ruined that."
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+....................................................
 
 
 "Less juss rest for now." And she plopped on the bed, arms out.
@@ -236,30 +193,12 @@ Our first memory resurfaced. In it only she talks, and I'm mute. Walking down a 
 
 "David owned deli~'s. You know deli~'s? Like with sandwiches? My father didn't think it was such a good job. He was also not assertive. I could walk over him and my father didn't like that."
 
-
-
-
-
-
-
-
-
-
-
-
-
+..........................
 
 
 We hugged on our way out. She, still so light, I felt if I hugged hard enough I would crush her. So I didn't and she survived ((she crushed him)).
 
-
-
-
-
-
-
-
-
+..........................
 
 
 For two weeks my wife and daughter were out of town, and every day I walked by the skating rink, and one day I finaly rented skates. Overpriced coming with an additional fee for a locker, a steal.
@@ -280,166 +219,38 @@ And then I remembered her nesting in her bed covers, in her pajamas drifting off
 
 
 
+
+
+..............................................................................
+
+Random notes:
+
+
+- girl and guy meet in NYC
+- girl has fiance coming the next day
+- find out girl and guy have history of flirting
+- guy has a son and wife
+- guy is in love with the thought of her
+- realizes his friend was just someone he made up in his head or was, instead of real life
+
+
+Minsun talks like this:
+- Sudden exclimation:
+	- "Oh my ga~wd!"
+	- "So we took a train, up to Bronx. Two hours!"
+- Talks like a windup toy
+
+
+
+
 Wants better for her than her fiance'.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
--------------------
-
-
-
-
 
 
 
 "You love me!" she yelled, and slapped my arm. "Poco loves me. Oh Poco, the best Romance ~ever~" and as she laughed her hair fell in her face.
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Her dormitory bed was somehow more minimalist than others. A towel covered the entire thing and then a thin sheet on top of that. I remember it better than her room, which was mostly empty. It's where we lie thinking, holding hands. Her hand was warm and was the softest thing in mine. Fully clothed, mulling life, the future and our relationships to the world.
-
-Her ex-boyfriend then was a popular topic. Another time She found two tickets to a movie, a bad one, in his wallet when he went back to Korea.
-
-"It's too obvious. Is he just careless?"
-
-"I don't know, maybe?" Her voice rose at the end of each sentences, half a whine. It was grating but very cute.
-
-"This movie was so horrible, maybe they didn't watch it and they did something else." We laughed, her nervously. We were so innocent we couldn't even bring ourselves to contemplate the words behind that possibility. We talked about his broken Korean, how caring and humble his mother was. A devout christian widow, set up a separate room for her to sleep in when she visited. She told me about their cat sat on her face often at night, and they made her allergic een though she swore she wasn't before.
-
-
-Around exams she invited me over to study, but her room was so warm I fell asleep without reluctance on her bed while she studied at her desk. She never found it amusing and kicked me out when she needed to sleep. It was just routine to her.
-
-
-----------------
-
-She dictated me the whole day play by play until I stood in front of her hotel room. It was weird remembering who she was, A walking memory, or in her case a stationary memory, sitting diseased with melancholy sprinkled with ironic giggles. I knew she thought it too, we both did, how the city shadowed anywhere either of us went. We were together awkwardly closing in on eachother, in no hurry.
-
-"Haitham!" She screamed out in joy when I knocked, and she screamed it again when we hugged and turned in circle after circle, carrying her light body in an embrace. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+-------------------
 
 
 What did we mean to eachother, really?
@@ -452,12 +263,6 @@ We made up excuses on what our long hugs meant, and how no one cheated.
 
 
 We made a promise to eachotehr that, if we weren't married by thirty, we'd marry each other.
-
-
-
-
-
-
 
 
 
@@ -487,10 +292,7 @@ We walked through times square. She took less pictures than i remembered, and he
 
 The people milled around like pillbugs sniffing every corner of the square, which has never been a square, and we walked back, after a few pictures, quietly.
 
-
-
-
-
+-------------------
 
 
 We went up to her room, the whole time, she looped her arm in mine, and we walked back. 
@@ -508,18 +310,7 @@ I got on the train, heading back over the bridge, over the river.
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
+I didn't go to her wedding because I didn't want to see her marrying this man.
 
 
 :::: It's about discovering the person you made to be so beautiful be so different from what your imagination construed.
