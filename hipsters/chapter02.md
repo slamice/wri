@@ -1,4 +1,4 @@
-Ch2. The book opens with a daily routine, a trudge everyone knows well to and from work. This sets the scene for who his coworkers are, who his gf is, who he is. The cat is a siren. We learn he is tired of his office life, working like a broken machine.
+Ch2. This sets the scene for who his coworkers are, who his gf is, who he is. The cat is a siren. We learn he is tired of his office life, working like a broken machine.
 
 
 
@@ -71,21 +71,21 @@ Ryan peered over at me. "Do you know the difference?"
 
 But I intentionally ignored them and zoned out. I zoned out a few times daily. To what I can't remember. To random things.
 
-You have to understand. I tried to build it so it could speak to me. The screen should have screamed something intelligible instead of staring back at me, blandly holding up the garbage boxes and font I drew on it.
+You have to understand. I tried to build it so it could speak to me. The screen should have screamed something intelligible instead of staring back at me, blandly holding up the garbage boxes and text I drew on it.
 
 At six or so everyone began shaking their things, feeling a bit uneasy. Someone ruffled their coat onto themselves, and then pretended to realize it was time to go.
 
 I packed my things and left. Out the door, into the street, on the crowded train. Past them, past the burden that beckoned me to come back again tomorrow but giving it a nod.
 
-The recycling shop was closed, thousands of bottles and cans snug, sleeping and snoozing in their clear bags. I shut my apartment door, the cat whined and whined inside. No purring whatsoever.
+The recycling shop was closed, thousands of bottles and cans snug, sleeping and snoozing in their clear bags. I shut my apartment door, the cat whined and whined inside. No purring whatsoever. You could the  low siren rising, like what you'd hear in a foreign country before the silence, before the bombing.
 
-Renee was awake. It was impossible to tell. Sitting in bed, topless, her posture and nudity fit a greek aristocratic she-lump. What played in front of her was the most unimaginable imaginable television. Horror movies with identical endings, relationship finales foreshadowing later romps. The reality Romcoms poured from her computer like an open facet, spilling and staining the room, ruining the wallpaper. Misunderstood nerds loving curly haired attitude women. One dimensional machos winning over dysfunctional girls only alive to mall and bawl. One man obsessed with "mancaves", girls caked with makeup running down their angry sad faces. ((There were a few plots where they only ate together and incested incestually off each other.))
+If Renee was awake, it was impossible to tell. Her eye lids were practically shut. Sitting in bed, topless, her posture and nudity fit a greek aristocratic she-lump. What played in front of her was the most unimaginable imaginable television. Horror movies with identical endings, relationship finales foreshadowing later romps. The reality Romcoms poured from her computer like an open facet, spilling and staining the room, ruining the wallpaper. Misunderstood nerds loving curly haired attitude women. One dimensional machos winning over dysfunctional girls only alive to mall and bawl. One man obsessed with "mancaves", girls caked with makeup running down their angry sad faces. ((There were a few plots where they only ate together and incested incestually off each other.))
 
 "How was your day, Om? What did you do?" a seedless grape slid into Renee's mouth.
 
 "Things happened that were less than nothing today." I murmured.
 
-"Om can you turn on the washing machine again? I forgot to put the clothes in the dryer. Wash them again so they don't get moldy."
+"Can you turn on the washing machine again? I forgot to put the clothes in the dryer. Wash them again so they don't get moldy."
 
 "Did you happen to check the mail?" I perked my ears up a bit.
 
@@ -100,8 +100,8 @@ I don't remember what I cooked that night, but I do remember it was bland. I did
 
 Most of the things I made were courtesy of a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Om. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. I took her challenge as an excuse to make something creative. My mouth took it as a challenge to taste any flavor.
 
-Outside stood the vacant parking lots and warehouses, limos occasionally drive to and fro. The window made a frame to the distant city and the reddening horizon. The New York sun wasn't at all like in Lebanon. Somehow it felt bigger there, pulsing with blood and vigor as it slid down the sky.
+Outside stood the vacant parking lots and warehouses, limos occasionally drive to and fro. The window made a frame to the distant city and the reddening horizon. The New York sun wasn't at all like in Lebanon. Somehow it felt bigger there, pulsing with blood and vigor as it slid down the sky. Here the smog painted it smudgy, the tips of buildings poking at it.
 
-A heard the lady selling clothes, yelling in the distance "socks socks underwear tanktop!" 
+A heard the Chinese lady selling clothes, yelling in the distance "socks socks underwear tanktop!"
 
 After dinner and before I slept I sighed downstairs, but they said nothing came that day. There was no mail.

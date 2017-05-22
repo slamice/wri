@@ -1,4 +1,4 @@
-Her dormitory bed was simple, minimalist and empty ((except for us)). It's where we lied thinking, a few times even holding hands. Her hand was warm and was the softest thing in mine. A towel covered the entire thing and then a thin sheet on top of that. I remember it better than her room, which was mostly empty. Fully clothed, contemplating life, the future and our relationships to the world for the first time again. She was as lost as I was as she was as I.
+He remembered her dormitory bed was simple, minimalist and empty ((except for us)).  A towel covered the entire thing and then a thin sheet on top of that.It's where they lied thinking, a few times even holding hands. Her hand was warm and was the softest thing in his mind. Nothing else in teh room mattered really, it was mostly empty. With them on the bed, fully clothed, contemplating life, the future and their relationship to the world for the first time every time again and again. She was as lost as he was as she was as he was.
 
 Her ex-boyfriend then was a popular topic. Another time She found two tickets to a movie, a bad one, in his wallet when he went back to Korea.
 

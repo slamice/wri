@@ -1,5 +1,53 @@
+Hero's journey
+
+Messenger between the aristocrats and the peons
+
+The aristocrats want money and power
+The peons wants freedoms and not to work
+
+both are offering him to enter into their domain, and they are both not what he wants
+
+He wants to be neither but has no choice
+
+
+
+
+
+
+
+
+
+The visa: His ticket to stay, his guarantee. But it never comes, because there is never a guarantee. Deep down he may know it will never come.
+
+The tour: His desired future, his saving grace. Once he's on tour his troubles will be away and the rest of his life will be wonderful supposably. Of course he could always just go on tour by himself but he may lose his job he hates and also he wouldn't be playing the peon game, something he feels he needs to do.
+
+He tries to imagine his salvation, but as ((someone)) says "even the priests and monks come out to beg" means you can't leave the spiritual without the material.
+
+
+
+Story is about games. We set up the peices and tear them down. We set them up so well, with so many cliques and rules, that hipsters and business workers are not so dissimilar. Hipsters work just as hard at who they want to be with different results. Which is sad.
+
+Om has to play the game and can't play the saint, because there is no salvation in running away or going through the motions, only by going into the thick of it.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Loneliness
-Self dobut
+Self doubt
 
 
 

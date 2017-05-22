@@ -14,7 +14,7 @@ Michael and I caught up at lunch. He enjoyed sports so much he only talked about
 
 "I might. But I don't know how many people I'm ready to fight off to get drunk on their boat."
 
-"I don't know... free anything sounds alright to me. But you're right it could be a joke."
+"I don't know... free anything sounds good to me. But you're right it could be a joke."
 
 Michel shrugged "The joke is on them honestly. We've already all been through years of signing up and just staying at home after a few weeks."
 
@@ -48,54 +48,4 @@ My food finally arrived, humbly placed before me by a tattoo sleeve. It went dow
 
 "It'd be longer than that anyway. They're going to P_______, have you ever been there? I haven't been anywhere really."
 
-On our way back my phone hummed. "Hello?"
-
-"Hey big guy! How are you?"
-
-"I'm doing alright Dad."
-
-"How's the job?"
-
-"It's going ok, you know it's going. How are you?"
-
-"I'm doing good, your Mom has problems."
-
-"What happened to Mom?" I hastened a wave goodbye to Selina as a shock enveloped me.
-
-"Oh she just depressed about some things, You should call her more. I always try to make her happy. She's fine, don't worry though. When are you coming to visit son?"
-
-"I told you Dad I can't come back without the visa. Are you sure about Mom?"
-
-"When do you think you'll have it?"
-
-"I'm not sure honestly, some time soon I hope. I check my mail everyday."
-
-"You said that last time, we just haven't seen you in forever."
-
-"I told you," I said sighing, "You can come here anytime."
-
-A shuffling then a pause, "Well son for everyone to come it's not possible. Anyway, your brothers will be here in May so if you can make it please come."
-
-I leaned on a wall with a sign commanding to "POST NO BILLS". "If anything changes I'll come as soon as possible."
-
-"Ok good."
-
-"Is Mom ok?"
-
-"Yes she's fine. No problem. I'm just talking son. Did you reach the next level at your job, son? When are you going to be the manager? Are you managing people?"
-
-"The next level? No not yet."
-
-"Ok well please do son. You know it's what's best for your future. I'm only giving advice and my opinion, but it's for your future."
-
-"I know Dad."
-
-"Ok well son I'm going to go. Say hi to what's her name? The french one?"
-
-"Renee. Yes I'll say hi to her."
-
-"Ok great. Have a good day son. Ok Bye."
-
-"Bye Dad."
-
-Fairly later, our company's gym sponsored a cruise once a year. Its' hopes were to spin some people around the rivers while pitching their guests to join a year long contract to sweat, hoping they just pay and don't actually show up.
+On our way back my phone hummed. 

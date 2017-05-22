@@ -37,25 +37,23 @@ The oval brightness morphed into a dark round gray. It passed quicker and quicke
 
 The announcer was barely audible above the static that suddenly crashed into the car. He was now equipped with an English accent, "The next station is Marble Arch".
 
-A few talkative bunches got off the train, bumbling in a stupor. An older balding man stepped on and sat opposite to Samir. And they continued on.
+A few talkative bunches got off the train, bumbling in stupors. An older balding man stepped on and sat opposite to Samir. And they continued on.
 
-Samir questioned his sanity. Maybe he was getting taken back, back to the end of the world, back to having nothing useful. He prayed while the sounds of the train nestled into his heart and punched it slowly from the inside, beating it harder and harder. And he sat there in silence, wishing his English and biology would improve dramatically.
+Samir questioned his sanity. Maybe he was getting taken back, back to the end of the world, back to having nothing neccesary. He prayed while the sounds of the train nestled into his heart and punched it slowly from the inside, beating it harder and harder. And he sat there in silence, wishing his English and biology would improve dramatically.
 
-Finally getting up, walking between people, between cars. He looked at the stupid windows that were too stuck to open but only saw his life speeding by, the blur behind the dirt. It's not that people weren't hospitable, they weren't anyway but, they had to _be_ somewhere.
+Finally getting up, walking between people, between cars. He looked at the stupid windows that were too stuck to open but only saw his life speeding by, the blur behind the dirty glass. It's not that people weren't hospitable. They weren't anyway but, they had to be somewhere.
 
-Every New Yorker, even the latest ones, knew the warning and danger signs to avoid walking between cars were only there for aesthetic and dramatic affect. So despite them he walked between the cars and didn't even the hollow thunder echo in the subway tunnel above his own thoughts and confusion. Walking into a new car he fumbled out, ignoring a few stares but hitting an older lady. "Excuse". He said.
+Every New Yorker, even the latest ones, knew the warning and danger signs to avoid walking between cars were only there for aesthetic and dramatic affect. So despite them he walked between the cars and didn't hear the hollow thunder echo in the subway tunnel above his own thoughts and confusion. Walking into a new car he steadily walked out, ignoring a few stares. Muttering "Excuse" after bumping into an older lady, but she felt tarnished.
 
 "Do'n leen on me." with an aggressive hiss.
 
 The possiblity of a conversation leapt off a cliff, and Samir watched it fall as he muddled through this car. A slightly heavy smell wafted.
 
-"New York?" He asked the car as the car hushed. The air thickened with stares and barely any acknowledgement. "New York City? Where?"
+"New York?" He asked the car and the car hushed. The air thickened with eyes watching him and even more with barely any acknowledgement. "New York City? Where?" A few people laughed, but most dismissed him, as he would have. He tried this in every car anyway. One shook their head, the other glared angrily, one smiled and shrugged.
 
-A few people laughed, one hiding among the many yelled in a laugh "In America!"
+They sped down the only direction they knew for hours in a hurry practicaly leaping across runway. The train conductor's voice grew harder and harder to understand, not from teh static but from teh bronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox". A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. What was animated just before, smiling faces, laughs, banal chats and even kisses were replaced seconds later when the train massaged all of it out from existence. Under the spell. The Spanish family remained on the train, and the African American lady remained in the corner, reading a newspaper that materialized out of her bag just a moment ago.
 
-They sped down the only direction they knew for hours. The train car leapt down its runway in a hurry. The train conductor's voice grew harder and harder to understand, not from teh static but from teh pronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox". A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. The Spanish family remained on the train, and the African American lady remained in the corner, reading a newspaper that materialized out of her bag just a moment ago.
-
-Eventually the tunnel lights grew lighter again. Samir slumped as they flushed down deeper into the earth. Once they emerged out of a tunnel, the walls were cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds, now suspiciously clear, and a low solemn voice pronounced "Valcarca" in an accent. The Spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
+Eventually the tunnel lights grew lighter again. Samir slumped in his seat as they flushed down deeper into the earth. Once they emerged out of a tunnel, the walls were cleaner than any station he'd seen in New York. The train receiver twinkled out a few bright sounds, now suspiciously clear, and a low solemn voice pronounced "Valcarca" in an accent. The Spanish family got out excitedly and a few small crowds orderly parked themselves on seats and in corners.
 
 A small jet black haired kid sat next to Samir as his mother stood in front of him. The kid held out a flat aluminum papered stick between his fingers. "¿Chicle?" he offered. His mom glanced at both of them and smiled.
 
@@ -75,41 +73,9 @@ As the people moved on and into each other so did Samir's sighs. People from all
 
 He knocked on the door once, harder again, pulled at the handle, but there were no results. The dark glass on the door looked back at him, pitying but stern. Samir took a deep breathe and it did too. Save a handful of people's eyebrows, nothing gave Samir much notice.Lonely, He felt a bit like a spirit but without the haunting. A failed ghost.
 
-He sighed in frustration, but then a second wind hit him, and bravery pulled him up to the emergency break against the wall. He looked around but no one made eye contact with him. The plastic white handle just sat there on it's dirty and frayed cord, shivering as the car rattled. Samir braced himself as he put his hand around it, looked back at the distracted faces, and then gave a sharp tug.
+He sighed in frustration, but then a second wind hit him that bravery pulled him up to the emergency break against the wall. He looked around but no one made eye contact with him. The wooden red handle just sat there on it's dirty and frayed cord, shivering as the car rattled. Samir braced himself as he put his hand around it, looked back at the distracted faces, and then gave a sharp tug.
 
 The emergency brake must have been broken, or never worked, because it did nothing. He tugged down hard, putting his weight on it, but it felt like a toy. Again and again. Samir somehow knew he couldn't stop the train. He wiped his hand on his pants and cursed.
-
-----------------
-
-The haggard and indifferent looks were moving and twitching artifacts no different from the broken emergency brake he held. What was animated just before, smiling faces, laughs, banal chats and even kisses were replaced seconds later when the train massaged all of it out from existence. Under the spell.
-
-"Hey! What a you doin?"
-
-That's when a stranger no more than him approached, standing up out of his chair, walking over, a page ripped out from the train's book ((capture how they are stuck to the seats then get up)).
-
-"What's the emergency? You wanna to ge' auff?" in a husky voice, a cigarette smoker.
-
-"ge' auff?" Samir mimiked but only thought, somehow through this man, he needed to get back.
-
-"ge' auff the train?"
-
-"Wakefield two four one."
-
-"Wakefield. Wakefield?" the man searched his brain, "I don' know whe' tha' is. ((Not too good with directions anyway. You lost? I'd say you could get off and catch the train going the other way back but this one doesn't have a straight route.))"
-
-"Home, You understand? New York."
-
-The man laughed, "New Yauk? We're pretty far from New Yauk."
-
-"My home is New York."
-
-"Listen," he shimmied a bit closer to Samir with a lower voice, his eyes darting for listeners, "What if we got out of the train? I could call an embassy if you like? Where are you from? I never get reception here though."
-
-"Train goes back?"
-
-"I don't think this train has ever turned back. You could stay I guess and get off wherever you were, but I don't know how long that'll be."
-
-----------------
 
 It must have been a good five hours since he got on. Since then he had hopped through all the train cars, memorized their numbers, but the situation was the same everywhere. He got sick of the doors opening and closing. He tried talking to anyone, but most like the mother spoke little English, if any. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to his original car. And while heavily distracted with disappointment and confusion, sleep overtook him.
 
@@ -133,22 +99,22 @@ When his eyes opened it was just him with hunger pangs and the only person who h
 
 "Wha you mean?"
 
-"Why it is ok? We go far. It is not ok. Where you go?"
+"Why is ok? We go far. It is not ok. Where you go?"
 
 "No one forcing you ta stay here. You can ge' off anytime."
 
-The conductor breathed out something unpronounceable as the train slowed to a stop. The lady got up pushing past Samir without another word. A rush of cold air gushed in Samir's face. Between huge white pillars a sign read "Алекса́ндровский сад". He saw her hobble off as the doors closed, bobbling bravely away on the bright cold concrete. Her dark contrasted the sea of white so much so you could see her slowly walking, alone, down the platform. A single period on a white page.
+The conductor breathed out something unpronounceable as the train slowed to a stop. The lady got up pushing past Samir without another word. A rush of cold air gushed in Samir's face. Between huge white pillars a sign read "Алекса́ндровский сад". He saw her hobble off as the doors closed, bobbling bravely away on the bright cold concrete. Her darkness contrasted the sea of white so much so you could see her slowly walking amplifying her lonesome down the platform. A single period on a clear page.
 
 Samir didn't feel there was anyone driving the train.
 
-He sat for another hour, hating the doors opening and closing at places that meant nothing to him. Each time a door opened a new bland painting revealed itself. Blacks, grays, bricks with cracks, some bathed in marble and others in pure white stone.
+He sat for another hour, hating the doors opening and closing at places that meant nothing to him. Each time a door opened a new bland painting revealed itself. Blacks, grays, bricks with cracks, some in marble and others in pure white stone.
 
-The next stop was deserted, and the train intercom didn't crackle on this time. Samir sensed the train as exhausted as himself, and it's engine whined until a full stop. The sign outside read "도곡　Dogok　谷道".
+The next stop was deserted, and the train intercom didn't crackle on this time. Samir sensed the train as tired as himself, and it's engine whined until a full stop. The sign outside read "도곡　Dogok　谷道".
 
 He stuck his head out the doors looking down the striped platform. He didn't know when he'd see the grayish black hues of concrete and brick he was used to again. But at that point he didn't much care.
 
 The doors stood open, mocking him for several minutes.
 
-It felt eerily clean and completely silent. Without anotehr thought he took a step, and walked out. His shoes echoed squeaks in the tunnel until he headed upstairs.
+It felt eerily clean and completely silent. Without another thought he took a step, and walked out. His shoes echoed squeaks in the tunnel until he headed upstairs.
 
 A few minutes later, a ringing closed the doors, and in moments they were gone.

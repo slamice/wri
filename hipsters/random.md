@@ -526,9 +526,11 @@ I walked so much my shoes ate into my socks and tehn my feet, and gave me bliste
 
 
 
+---------------------
 
+Even the priests and monks come down to beg, you fuckhead
 
-
+I wish this wall could hug me. But then it wouldn't be a wall.
 
 
 

@@ -125,6 +125,8 @@ A second shock overcame me, "What?!" I shot her a hard look, but it couldn't pen
 
 "You think you're a fucking, nice guy? You're an awful person."
 
-"PRUDENT?!" I pronounced it in disbelief.
+"PRUDENT?!" I pronounced slowly in disbelief.
+
+
 
 "COME _ON_" She ushered, "COME the fuck _ON_. Let's go _home_."

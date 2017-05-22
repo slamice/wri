@@ -6,7 +6,7 @@ The show was advertised in a zine I found in a coffee shop. The venue was only c
 
 Inside everyone huddled together in small clumps of friends. Most of the guys held beers and shook hands. Some of the guys cross dressed. They wore stockings and long hair smiling behind their drinks. Others had thick beards. One later that night sang about a bully he encountered in a bar very softly, "fuck you guy" he whispered.
 
-The girls were very ecletic. One tied her t-shirt up to see her stomach and tattered jeans, her face red with excitment and probably a few drinks earlier. Another wore a choke and posed against the wall. Anotehr had a rip from her belt buckle down to her knee on the right side of her leg. One wore very bulky overalls with huge frizzy bushy hair. I was in love with most of the girls in the room. 
+The girls were very ecletic. One tied her t-shirt up to see her stomach. Her tattered jeans hung on her like her red face, red from excitement and probably a few drinks earlier. Another wore a choke and posed against the wall. Another had a rip from her belt buckle down to her knee on the right side of her leg. One wore very bulky overalls with huge frizzy bushy hair. I was in love with most of the girls in the room and threw them into the mix. 
 
 One who sat next to me was dressed completely normal if she lived in the 70's. I chatted with her briefly, she made sculptures that existed for only moments. They became sculptures in the moment, in between dances and mysterious gestures. I found it interesting and asked further about it, but was embarassed and ignored me the rest of the night.
 
@@ -52,11 +52,13 @@ She looked back at me, everyday getting younger, her bandmates too. I sided up w
 
 "I mean you have to get the word out though." He almost snarled, finally looking at me, "You have to push the boundaries."
 
-"Pushing the boundaries," Dock walked in, a mispresence out of alliignment. "that's what you gotta do. Dock, nice to meet you." He stuck out his hand for a firm shake to teh drummer, who was a bit bewildered.
+"Pushing the boundaries," Prof proded in, a mispresence ((out of alignment... But is already a MIS-precense?)). "that's what you gotta do. Prof, nice to meet you." He stuck out his hand for a firm shake to the drummer, who was a bit bewildered.
 
 "Matt. You know eachother?"
 
-"Yea," Dock snuck out slowly, "I've known this scallywag a few years since university. Sorry I missed your set Matt."
+"Yea," Prof snuck out slowly, "I've known this scallywag a few years since university. Sorry I missed your set Sir Matt."
 
-"It's fine. I'll do it again tomorrow and tomorrow." Matt settled in, less alarmed, more familiar. His world accompanied a cohort, like himself someone who probably mattered around here.
+"It's fine. I'll do it again tomorrow and tomorrow the next tomorrow." Matt settled in, less alarmed, more familiar. His world welcomed a cohort like himself, someone he probably thought mattered around here.
+
+I'll be honest and tell you their conversation was crap. It would have been more fun to drill a hole through my lung than to listen to small talk, weather talk, whatever talk. I stared at them both for a while, well aware I grew quiet around Prof quite a bit. He offered the wisdom everyone wanted but I was barely a student. A mail in communications degree.
 

@@ -7,9 +7,9 @@ Ch1. We next see his personal life. He's at a dance party with his "friends". He
 
 
 
-Something in the air was broken. It felt banal and burnt to an odorless cinder. I smelt it, felt it and watched it with my eyes, deadpan. I looked out across the dead street, I thought I saw something move.
+Something in the air was broken. It felt banal and burnt to an odorless cinder. I smelt it still somehow, felt it and watched it with my eyes, deadpan. I looked out across the silent empty street. I thought I saw something move, but only thought.
 
-Cars swept by snarling cats. The area was thick with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple the apartment's worth a month. The door got stuck often but there was a skylight so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
+Cars swept by hissing cats. The area was thick with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple the apartment's worth a month. The door got stuck often but there was a skylight so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
 
 "Guitar lessons? Dance space rental? Warm bodies? Call us."
 
@@ -177,6 +177,6 @@ He ignored me briefly, but then breathed out without looking at me "about half a
 
 Parties like these were brutally exhausting without something substantial to dull me. Weed was usually the norm but light drinking was another option I took up. I never overindulged, but inhaled just enough to feel like it was working. Two beers were enough for me that night.
 
-So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked cars. A couple, if they were that legitimately, stratled me with their discreet argument as I passed by a random car.
+So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked cars. A couple, if they were that legitimately, startled me with their discreet argument as I passed by a random car.
 
 I was sketched out, my hands were in my pockets, my right gripping my keys and flipping through them.

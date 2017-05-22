@@ -1,16 +1,36 @@
-Ch7. Another show, Mexico City happens here. Om's infatuation with bands happens here. He gets a call from his family in the middle again. This chapter shows the nature of a live show, how slightly awkward and banal it is. Om has seen these bands dozens of times. He discusses circuit bending, how a famous musician stayed at someone's house. Boombastic plays.
+Ch7. 
 
-Meets up with Dock in this chapter.
+The game went on and on, and it felt like three feet in the grave.
 
-Talk at concert about circuit bending, blabbing to friends about how big of an annoyance talking about it with someone was.
+Why is this asshole just sitting at me, staring into space but intentionally avoiding my precense and everyone else's precense and everyone else is avoiding every else's and is the driver even paying attention to the road? Of course he is because that's great right? Once I stared into space into a man's eyes. I wondered what it would be like. But he noticed immediately and shot a look at me. What I did was rude, abrasive, sickening. Disgusting. SO I shrugged and he smiled and looked away. I snuck in a few at his eyes again, but our conversation was over.
 
-talk about how bands isn't great, get told off.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
 ...
 
-Despite all the vapers outside, smoke still lingered and began to settling. The hazy room held leather and jean jackets of all characters and shapes. I pushed a bit through expecting to find Selina or someone I knew, but it was a loss with this crowd and I was sure she wasn't there yet. I decided to just take to watching the stage silently as the band on it bled its electronic heart out.
+Despite all the vapers outside, smoke still lingered and began settling. The hazy room held leather and jean jackets of all characters and shapes. I pushed a bit through expecting to find Selina or someone I knew, but it was a loss with this crowd and I was sure she wasn't there yet. I decided to just take to watching the stage silently as the band on it bled its electronic heart out.
 
 There were only two on stage. The lackluster crowd blew bubbles and shuffled in place silently. The band member in the back wore aviator shades a la seventies. Familiar dry techno hums suddenly sounded, and as they dribbled into the room like repeated fingers wrapping on a table. The other, a messy blonde hair picked up the mike and dug it in behind his mop. He staggered a bit, having drunken a few.
 
@@ -26,7 +46,7 @@ As the crowd slowly dispersed I depressed against the front of the stage. The bl
 
 I could barely hear him when he yelled "Why?!".
 
-And I said I just didn't like it. Provoking. Of course no one was allowed to say it but I gave it a shot. I didn't care about him not caring how much his voice syntha-sized sucked.
+And I said I just didn't like it. Provoking. Of course no one was allowed to say it but I gave it a shot. I didn't care about him not caring how much his voice syntha-sucked.
 
 "No no no. You don't understand man. You don't understand. It was Brazilian minimal techno, a mix of Brian Eno's best dance stuff he was doing in the late 90's. Hip hop, you know Mexican hip-hop? You'll have to listen to it again I don't believe you you just don't understand it..."
 
@@ -34,7 +54,7 @@ I said "Yea, maybe I don't understand it."
 
 "No it's ok you have to realize this is great."
 
-There was an awkward silence between us while the room crunched papers of conversation.
+There was a weird silence between us while the room crunched papers of conversation.
 
 "You liked the other stuff right?"
 
@@ -188,3 +208,16 @@ The door was open and surprisingly Renee was gone. The cat whined whinily as I w
 Renee slept next to me with the cat lazily on top of her.
 
 That night I laid dumb in my bed waiting. And waiting. ((Not for Renee.))
+
+
+
+--------------------
+
+
+Another show, Mexico City happens here. Om's infatuation with bands happens here. He gets a call from his family in the middle again. This chapter shows the nature of a live show, how slightly awkward and banal it is. Om has seen these bands dozens of times. He discusses circuit bending, how a famous musician stayed at someone's house. Boombastic plays.
+
+Meets up with Dock in this chapter.
+
+Talk at concert about circuit bending, blabbing to friends about how big of an annoyance talking about it with someone was.
+
+talk about how bands isn't great, get told off.
