@@ -4,27 +4,88 @@ Pinky's mother died. She was the one to name him, A fat Reganold Sidaloskevichns
 
 Pinky's mother's funeral cast a long and abismal shadow. It was enough to distress Pinky's inner inhibitions. As he walked into the hall he glanced at the people who lined it. His family, friends, former friends and the rest of the horrible people Pinky knew said their condolences as he passed. Half of them with dull comforting smiles, others completely devoid of expression. He took them all in with grace, numb as he was wantiung to get over with the whole thing.
 
-There ceremony rolled out slowly. Pinky's father dolled out his speech like the catering earlier. One at a time he brought out each memory to his grieving audience, the quality questionable. They all sat uncomfortably, especially Pinky, as his father picked off their names and hammered them into a scenario with Pinky's mother.
+There ceremony rolled out slowly. Pinky's father dolled out his speech like the catering working in the background. One at a time he brought out each memory to his grieving audience, the quality questionable. They all sat uncomfortably, especially Pinky, as his father picked off their names and hammered them into a scenario with Pinky's mother.
 
 "Roberta was an angel. Just ask Mrs. Mortimer, right Peggy? Do you remember how many times she helped you with your garden? I was sick of it by the end honestly, but she stuck out. It might be what killed her too! Ah no, that's my joke. Sigfried! She always brought her pie when she visited you. Every damn time she had to bake that pie that morning before we came over... Can you taste it Sig? You remember that pie? You do?" 
 
 Whose name is actually Sig, seriously? Pinky grumbled. With a shrug his father's speech faded behind his ears into the background. His thoughts wondered onto what to do with himself past drinking the cheap wine and eating the cheddar cheeses. He really wished he was home, back in his apartment, locked behind a Tetris game as the peices fit and imploded in front of him.
 
-It's not that Pinky didn't care for his mother. It's just that this was nothing of what she wanted. Her last desire was for her body to be donated to medical science, where you couldn't watch it sink into the ground or get blown into the wind. She was as bitter as fine chocolate and firm on that. But Pinky's father was a true traditionalist, and he invited everyone he could to attend and was also firm that his wife would sleep next to him forever, even with all the fighting that was bound to strike up again once he was in the cold damp earth.
+It's not that Pinky didn't care for his mother. It's just that this was nothing of what she wanted. Not the funeral. Not the euology. And most especially not Pinky. Her depression made it clear that she just wanted to be gone and remembered not as another chore to take care of but rather, as someone she didn't have to deal with anymore. Her last desire was for her body to be donated to medical science, where you couldn't watch it sink into the ground or get blown into the wind. She was as bitter as fine chocolate and firm on that. But Pinky's father was a true traditionalist, and he invited everyone he could to attend and was also firm that his wife would sleep next to him forever, even with all the fighting that was bound to strike up again once they were together in the cold damp earth. Pinky doubts she'd be content with the plumbing.
 
-The entire town Pinky grew up in, small, minor, a speck on a mole as he thought of it, was in their entirety there. Easily a hundred people hushed their children every few minutes as the proceedings went on. The children either got busy 
+The entire town Pinky grew up in, small, minor, a speck on a mole as he thought of it, ((was in their)) entirety there. Easily a hundred people hushed their children every few minutes as the proceedings went on. The children either got busy watching their shoes swinging or sweating out the summer sun tinking of anything else. The adults were quite ready to get on with it, licking their chapped lips in the heat.
 
 Pinky checked his non-existent watch a third time, the sun beating down on their fold out chairs. He could hear his mother yelling to get on with it, impossible to know if she wanted her fate cemented or not. Pinky glanced recgonized everyone. His childhood friends, enemies, fellow boy scouts and drop outs. People who yelled at him while he grew up. Those who hated him as a child for being a child as he dreamt of etching revengeful marks into their cars but he never did.
 
-"What is this mood I'm in?" Pinky asked himself.
+He tried to be complacent, confident, devoid of expression. But. "What is this mood I'm in?" Pinky asked himself.
 
-"Melancholy." his mood answered without even a glance.
+"Melancholy." it answered without even a glance. Pinky looked  out of the corner of his eye then took a full take at who was next to him. Someone he hadn't seen since he was sixteen down and out in the middle of middle school. He barely recognized the man now with a beard and a monocole saddled in his eye. He finally glanced back at Pinky and whispered "Don't pretend like you're innocent in all of this. That's your mother they're laying to rest. I would only be here if there wasn't a purpose, but don't fool yourself."
 
-"Don't forget with a bit of frustration." a toddler waddled over and said in a hushed voice.
+Pinky muddled those words in his head trying to make sense of them. He took it lightly when they came up hazy. Very methodical, he chose to ignore the words and pass through him, because they didn't help him. The more he thought about him, teh more he realized he barely remembered who this man was.
+
+A toddler wondered wandering neglected. She waddled into Pinky's view a few disturbing feet away. Someone's daughter perhaps. She hid behind people's chairs and from an invisible opponent playfully. Pinky watched her a bit. Her faded pink dress. Her surly short blonde hair. 
+
+It was like a parade around the eulogy. Each person who stepped up to remember his mother was acompanied by an estranged character that somehow fit into his life. The shopkeeper old Mr. Cusak, with a grey mustache like a comb, was escorted to the microphone by a banal essence of a human. Big round thick glasses that shuffled through the crowd and was easily forgotten. Others like his scout master Mr. Tofall, was all smiles besides his tears and warts, went up to speak. Pinky long suspected his mom had something going on with him for teh 4 years he was bullied in boy scouts. Mr. Tofall was followed closely behind by a ginger girl, her tears raged down her face like a lit fire as she lightly knashed her teeth.
 
 
 
 
+
+Pinky was not one to make a scene but he panicked uncontrollably. All of these people around him, their faces at first gilded but soon he saw them for what they really were. Distractions and incantations for his passions. Without words. He grabbed Melancholy by the ear and sang into it an obsenity and pushed him back, thrusting him off his chair onto the dry grass.
+
+
+
+Soon they were approaching him from all sides and eventually dogpiled him. They sat and fought on top of him as he flailed kicks and screams into the mass. Curses and swears erupted from his throat in a panic. A finger reddening his eye, a choke in his throat, he chest tightening and heaving, an incredible pressure pushing out deep breathes and tears. They beat them out of him more like an old cushion wheezing out dust after hit with a thick stick.
+
+No one around him could hear him though until he said, "Go to hell like my mother!"
+
+
+
+
+-----
+
+Literally wrsetles with his emotions
+
+
+
+
+
+
+
+
+Sadness ->
+Melancholy
+Sorrow
+depression
+Disappointment
+Shame
+
+Anger
+Indignition (feeling angry because something is not fair, such as undeserved bad fortune)
+
+Fear
+
+End:
+Conviction (https://www.jstor.org/stable/22499?seq=1#page_scan_tab_contents)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
 
 
 
@@ -57,7 +118,7 @@ Immediately, silence.
 
 
 
-The swear echoed the halls, running through them like an olympic triumph. The aghasts on people's faces were withered and worn down, making them more prominent. Some people's mouths were upended in wide o's with glaring eyes.
+The swear echoed the halls of the garden, running through them galantly like an olympic triumph to Pinky's horror. The aghasts on people's faces were withered and worn down, making them more prominent. Some people's mouths were upended in wide o's with glaring eyes.
 
 
 
@@ -78,7 +139,7 @@ Pinky was more taken aback by who accompanied his father, his two kindergarten t
 Right behind them though, was his high school class filing in, their ears obviously perked up to Pinky's descent. They had exaggerated surprised expressions on their faces with slightly curled smiles.
 
 
-
+The parade of humility battered at him, their stares flogging him and he, on the floor while his many otehr unpleasant hes (emotions) beat on top of him in turns, one blow after the other.
 
 
 
@@ -108,7 +169,7 @@ His friend extends his hand, and Pinky reaches but he can't open his hands. They
 
 
 
-They look in eachother's eyes and Pinky says "Thank for being there for me."
+They look in eachother's eyes and Pinky says "Thank you for being there for me."
 
 "Thank for being there to be there with." And their pinkies tighten their embrace one more time. "Friends forever."
 
