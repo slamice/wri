@@ -110,9 +110,9 @@ This seemed like a low point for Anne, and it was. Anne was firmly squeezed into
 
 "I didn't mean so, not at all. I was being a hospitable host. Mrs. Barrymore said she smelled the drink on her daughters breathe as Diana laughed and fell to her feet in a heap, sleeping for hours, her face turning various rainbow colors, hopefully not heaving. Mrs. Barrymore has no room in her heart for gurgitating animals, only for vengeance."
 
-"Well, for Diana to drink so much pays a hefty price. There goes the neighborhood. The islanders will get their kick our of this, people won't like my wine anymore."
+"Well, for Diana to drink so much pays a hefty price. There goes the neighborhood. The islanders will get their kicks out of this, people won't like my wine anymore."
 
-Not that they did anyway, Mrs. Pleb?
+Not that they did anyway, Mrs. Plebb?
 
 "You shouldn't be blamed for this Anne."
 
