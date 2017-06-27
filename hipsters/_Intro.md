@@ -1,3 +1,32 @@
+Themes:
+- Games
+- Buddhism, meaning of life (angaging with it is part of it)
+- Loneliness
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Hero's journey
 
 Messenger between the aristocrats and the peons

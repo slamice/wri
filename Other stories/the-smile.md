@@ -28,7 +28,7 @@ The next thirty minutes were not relaxed and played out very slowly. The glances
 
 My dream began where I asked her her name, where she could meet me again, did she like her socks on or off when it came to that.
 
-It could also have bee that she thought I was in high school and I knew Mr. Tweedman, right? Or she was drawn to my beard.
+Maybe she thought I was in high school and I knew Mr. Tweedman, right? Or she was drawn to my rich mess of a stuble.
 
 
 
@@ -40,4 +40,4 @@ It could also have bee that she thought I was in high school and I knew Mr. Twee
 
 
 
-At her stop, she got up, and left. I stayed on, and wondered if she would look back. And she did, and smiling one last time before digging for treasure alone deep in the city, she almost whispered a goodbye.
+At her stop, she got up, and left. I stayed on, and wondered if she would look back. And she did, and smiling one last time before digging for treasure alone deep in the city, almost whispering a goodbye.
