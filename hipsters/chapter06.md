@@ -44,7 +44,7 @@ She looked back at me, everyday getting younger, her bandmates too. I sided up w
 
 "What about for money?"
 
-"I work at a company making systems for _______, I write software."
+"I work at a company making systems for ______, I write software."
 
 "Sounds like a fantastic mystery... You play around town then?"
 
@@ -58,7 +58,14 @@ She looked back at me, everyday getting younger, her bandmates too. I sided up w
 
 "Yea," Prof snuck out slowly, "I've known this scallywag a few years since university. Sorry I missed your set Sir Matt."
 
-"It's fine. I'll do it again tomorrow and tomorrow the next tomorrow." Matt settled in, less alarmed, more familiar. His world welcomed a cohort like himself, someone he probably thought mattered around here.
+"It's fine. I'll do it again tomorrow and tomorrow and the next tomorrow." Matt settled in, less alarmed, more familiar. His world welcomed a cohort like himself, someone he probably thought mattered around here.
 
 I'll be honest and tell you their conversation was crap. It would have been more fun to drill a hole through my lung than to listen to small talk, weather talk, whatever talk. I stared at them both for a while, well aware I grew quiet around Prof quite a bit. He offered the wisdom everyone wanted but I was barely a student. A mail in communications degree.
 
+
+
+
+------------------------
+
+
+Most people expect alleys to be dark, and most are, but only the most observant or those who live in alleys know that they can be bright fleetingly. In the mornings or afternoons you can look up and see the bright moving clouds. You can watch them longingly and you can sulk while you watch them. And you can wonder what you drank earlier after you notice the tip of your tongue is burnt.

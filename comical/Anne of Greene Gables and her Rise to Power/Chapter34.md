@@ -1,5 +1,7 @@
+Chapter a lot. The Queen Girl
 
-
+Anne was in a fitful brightness for the next three weeks because she was going to the Queen's. She couldn't believe it. No one applied to see the Queens and made it out alive. She had to make sure all her stuff was borderline royally outrageous. Hundreds of Minions Anne acculumated over the years of school and the gables helped her put herself together. Even Mrs. Plebb put together an "'evening dress', as they are calling it in this day and age, when the the ladiesa re out in the town about and 'dancing' enchanted 'dances' and 'losing their minds swooning', 'slipping' and 'turning' 'fox trots and hopscothes'" Marilla said delicately indignantly. The dress was green and had so many thrills and frills sewn to it it didn't seem like it was finished at all.
+Anne put it on once in the house and Marilla broke out in a thousand sobs, remembering all the years Anne plagued her and Matthew the Gorilla. 
 
 
 =-----------------

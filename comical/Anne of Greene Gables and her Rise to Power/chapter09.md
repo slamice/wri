@@ -86,6 +86,6 @@ Mrs. Pleb insisted a firm apology, threatening all sorts of time outs, delayed d
 
 "I'm sorry I've vexed you; but I'm GLAD I told her just what I did. It was a great satisfaction. I can't say I'm sorry when I'm not, can I? I can't even IMAGINE I'm sorry." Mrs. Pleb dismissed herself after that without a word.
 
-As Mrs. Pleb left Anne smiled and frothed a bit at the mouth. Thinking thoughts about her future thoughts, Queen of Canada, she knew that heads must inevitably roll, and pictured Mrs. Lindt in a mess of chocolate, dripping with death.
+As Mrs. Pleb left Anne smiled and a bit of drool slipped out. Thinking thoughts about her future thoughts, Queen of Canada, she knew that heads must inevitably roll, and pictured Mrs. Lindt in a mess of chocolate, dripping with death.
 
 Heads will roll indeed.

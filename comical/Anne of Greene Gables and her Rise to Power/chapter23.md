@@ -44,7 +44,7 @@ Anne's body was so robust physically that she stood on impact and even pushed th
 
 Anne slipped into an ankle deep coma. Her dress was a see through white, a ghost dancing on rooftops that jovially smiled with their toothy thatches and panes. She hugged them tightly and laughed unapologetically. Everyone below her was presented as a peasant, brownly cloaked with dirt. A few ticks and lice fell out of them as she spoke. She denounced them all as peons. She peoned them hard, harder than any other peoning.
 
-While she was asleep writhing with a grin about this stuff, teh doctors gave her a new pickled ankle and shoved it in Victorian style, pinkies up. They sent her home soon after.
+While she was asleep writhing with a grin about this stuff, the doctors gave her a new pickled ankle and shoved it in Victorian style, pinkies up. They sent her home soon after.
 
 That night Marilla went upstairs to her. Anne lied there unstable in the gable feeling pathetic.
 

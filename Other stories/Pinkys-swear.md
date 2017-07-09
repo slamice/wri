@@ -10,11 +10,9 @@ His family, former rivals and the rest of these horrible people Pinky knew from 
  
 The rock that Pinky remembered as his father's face was molten down then frozen again. The years were not kind to him, perhaps even a bit abusive. Pinky and his father exchanged only a few select words anyway. They exhausted all the rest of them in shouts growing up. His father's sentences were hard, shallow and grief stricken. He took them in numb wanting to finish the ordeal. Pinky's words were firmly consoling, dotted with a 'sir'.
  
-He walked to a seat in front of where the procession was to begin and sat, adjusting to a complacent and confident stature. The necessity of it all was slightly discomforting, even he had to admit it. But not to anyone, even himself. Still, Pinky's mother's funeral cast a long and abysmal shadow on on him. It was enough to at least knock on the door of his insecurities. And after that knock was a long pause filled with a void of thoughts.
+He walked to a seat in front of where the procession was to begin and sat, adjusting to a complacent and confident stature. The necessity of it all was slightly discomforting, even he had to admit. But not to anyone, even himself. Still, Pinky's mother's funeral cast a long and abysmal shadow on him. It was enough to at least knock on the door of his insecurities.
  
-Pinky felt someone shift besides him. Looking out of the corner of his eye he did a subtle double take on who. Someone he hadn't seen since he was sixteen and down and out in the middle of middle school. He barely recognized the man now with a beard topped with a porkpie hat.
- 
-This town is worse than he remembered, "these people don't even have any shame for the annoying dead." He wanted to shove the porkpie in this man's face, just for spite. But he held that back, commandeering.
+Pinky felt someone shift besides him. Looking out of the corner of his eye he did a subtle double take on who. Someone he hadn't seen since he was sixteen. He barely recognized the man now with a beard topped with a porkpie hat. This town is worse than he remembered, "these people don't even have any shame for the annoying dead." He wanted to shove the porkpie in this man's face, just for spite. But he held that back, commandeering.
  
 "May I ask how long have you've been in service?" The man said, after leaning forward, inquisitively, and catching a glimpse of his front pocket's medals.
  

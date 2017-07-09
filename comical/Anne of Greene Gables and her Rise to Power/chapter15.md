@@ -4,7 +4,7 @@ Chapterly 15, Imagine. Drunk on Tea.
 
 "Am I missing tarts? How many bites for the ten of us" The ugliest confused glance came over Anne's walking stick, Diana, as she tried to count how many tarts she was missing. More than you know Diana, more than you know.
 
-Since Canadians overfeed their geese, the school girls had to ration their food regularly. If one girl didn't reveal her rations she was chastized and forced to sing the OCanada. Everyone was hungry and yet, with all irony in hand, no one was invited to lunch.
+Since Canadians overfeed their geese, the school girls had to ration their food regularly. If one girl didn't reveal her rations she was chastized and forced to sing the O'Canada. Everyone was hungry and yet, with all irony in hand, no one was invited to lunch.
 
 Anne and her butty whiskered through Bum Lane, Violet's Quesy and Ottenbacher's Pale Bare Road. SO much more satisfying then going down main street, a mild street for the mains of wherever they lived exactly.
 
@@ -52,9 +52,9 @@ Oh man, Mr. Philips was closing in on them both, Latin slurs authoratatively spe
 
 "What the dickens is dicking around over here?" Mr. philips eyes darted every which way looking for an explanation. Godfried, his high pitched moaning overtly audible, a head where the top was now a crown of blood, moaned annoyingly.
 
-Typically Anne prefered physical punishment punches. But Mr. Philips had a mind didn't work that way, and since he had to save both his arms for flirting, marched Anne to the corner to suffer humiliation.
+Typically Anne prefered physical punishment punches. But Mr. Philips had a mind that didn't work that way, and since he had to save both his arms for flirting, marched Anne to the corner to suffer humiliation.
 
-"I shall never forgive Gilbert Blythe," said Anne gerfumpled, walking home with Diana. "And Mr. Phillips spelled my name without an e, too. The iron has entered into my soul, Diana."
+"I shall never forgive Gilbert Blythe," said Anne gerflumpled, walking home with Diana. "And Mr. Phillips spelled my name without an e, too. The iron has entered into my soul, Diana."
 
 For further humiliation, Anne was sat next to the piercing shrill boy. "Sit next to him." Mr. philips shouted, "The finest buddy of the lord, Gilbert Godfriend".
 
@@ -70,7 +70,7 @@ At the end of the day Anne packed up all her quills and sharpeners, parephenalia
 
 "Diana, I'm never coming back here."
 
-"For good? leaving school forever? leaving me?" Diana's eyes trembled. A jet of tears was ready to be shot out and spray all over Anne's petticoat.
+"For good? leaving school forever? leaving me?" Diana's eyes trembled. A jet of tears was threatened to shoot out and spray all over Anne's petticoat.
 
 "I am not coming back to school any more," said Anne. "I'd do almost anything in the world for you, Diana," said Anne sadly. "I'd let myself be torn limb from limb if it would do you any good. But I can't do this, so please don't ask it. You harrow up my very soul."
 
@@ -78,8 +78,8 @@ At the end of the day Anne packed up all her quills and sharpeners, parephenalia
 
 "Nor do I care how to play it. Ball."
 
-The kid's, exhausted by the length of this chapter, treaded off arms back to their houses through the various forests.
+The kids, exhausted by the length of this chapter, treaded off arms back to their houses through the various forests.
 
-Marilla couldn't get Anne to go to school, like anyone could, really. What could she learn from a flirt and a godfreid, whining incidiously into her ear. Mrs. Lynt's advice to her was to forget about it and just et her stay home. Kids these days can stay home from school, it's the modern age.
+Marilla couldn't get Anne to go to school, like anyone could, really. What could she learn from a flirt and a godfreid, whining incidiously into her ear. Mrs. Lynt's advice to her was to forget about it and just let her stay home. Kids these days can stay home from school, it's the modern age.
 
 But Anne went back anyway, because of revenge, of course. Gilbert, Dilbert, whatever, had it coming soon enough.
