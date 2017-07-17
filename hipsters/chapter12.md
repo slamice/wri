@@ -2,6 +2,8 @@ Ch12. Renee moves out. Dad calls and says the news. The band opportunity breaks 
 
 A month didn't fly by. I felt it wriggling in my gut everyday. It does sound worse than it was. It was just uncomfortable. There were no fights, barely any orders. Some of the people we knew patted me on the back, others simply apologized and walked away. But mostly no one said anything, an odd missed opportunity to entertain themselves with drama.
 
+All her stuff in boxes, all her drawings starting when she was 2 years old, her entire highschool and middle school courses and year books, copied handwriting and shorthand classes, classwork, doodles, 
+
 We sat outside and the second moving van that day cancelled for a third time. This gave us enough time to pack everything into boxes though. Renee sat on one of them and we waited for her iouesca ceremony leader now. He promised to take some of the tables and chairs off our hands. I realized that the apartment was truly bare. She took all the dishes, the furniture, the bookshelf, most of the records, etc.
 
 

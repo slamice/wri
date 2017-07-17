@@ -1,3 +1,63 @@
+How Om self sabotages:
+
+- Does nothing about the band tour, thinks he's priveleged for it (part of scene mentality)
+- Gets involved in Prof's crap (relationship crap)
+- Does not improve or put effort in his job, even though he's tied with it to make money
+- Stays with Renee when he knows it's bad for him and still flirts with others
+- Worsens his relationship with his father when he knows he's the only other person who can take care of their sick mother
+
+How other people feed in to each other's loneliness:
+- Ignoring eachother after inviting them
+- Band stuff
+- Criticism, isolation
+- 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+--------------------------------
+
 Om is looking for something beautiful. He knows its beyond the city, beyond his job, beyond the scene.
 
 

@@ -12,7 +12,7 @@ Selina didn't think "you guys" made any feministic sense, so she opted for "Hell
 
 "What's up?"
 
-"You should come out." she whispered, "You haven't been out in a while. A friend of mine's band is visiting from O_____.".
+"You should come out." she whispered, "You haven't been out in a while. A friend of mine's band is visiting from O-----"
 
 "I just don't feel it right now, you know? But, I could use a coffee shop though. I'll see you there."
 

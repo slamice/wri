@@ -3,13 +3,13 @@ Ch2. This sets the scene for who his coworkers are, who his gf is, who he is. Th
 
 
 
-My body fought me and woke up. Ten, twenty or thirty minutes of sleep didn't seem to matter to it anymore. It humiliated me but I whined back. I didn't want to go to work. I didn't want to work. Was I just bad at it or did I hate my job? I wasn't sure.
+My body fought me and woke up. Ten, twenty or thirty minutes more of sleep didn't seem to matter to it anymore. It humiliated me but I whined back. I didn't want to go to work. I didn't want to work. Was I just bad at it or did I hate my job? I wasn't sure.
 
-There were no curtains on my windows yet, for months, but I somehow slept late into a late morning. I woke up still in a bizarre dream while Renee dozed next to me in a really thick sleep deep in a gutter. The bed springs squirmed, and as I got up slowly, they bit back audibly. I slipped off the bed, grabbing my jeans from the floor and a shirt from the rack. Renee's cat Chibi laid on a pile of our clothes looking up at me, tired and bloated. It watched me wander around the room. With its' eyes it asked me, "why are you awake, that's a pitiful thing to be."
+There were no curtains on my windows yet, for months, but I somehow slept late into a late morning with the sun pawing at my face. That day I woke up still in a bizarre dream while Renee dozed next to me in a really thick sleep deep in a gutter. The bed springs squirmed, and as I got up slowly, they bit back audibly. I slipped off the bed, grabbing my jeans from the floor and a shirt from the rack. Renee's cat Chibi laid on a pile of our clothes looking up at me, tired and bloated. It watched me wander around the room. With its' eyes it asked me, "why are you awake, that's a pitiful thing to be."
 
-Anything eaten too early in the morning I gagged on. Apples, oranges, toast. The only thing that stayed down were latte's.
+Anything eaten too early in the morning I gagged on. Apples, oranges, toast. The only thing that stayed down were latte's. 
 
-The sun poked me and the morning met my gaze. It glared a mean hello. The day was bright and cheery and yet profoundly and beautifully mundane. My button up was too big for me, like someone threw a blanket on a chair and it just sat there. I wore it anyway. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelted in a rage.
+The sun poked me and the morning met my gaze. It glared a mean hello. The day was bright and cheery and yet profoundly and beautifully mundane. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelted in a rage. My button up was too big for me, like someone threw a blanket on a chair and it just sat there. I wore it anyway.
 
 Everyday I shaved and tapped my razor handle against my hand so it would vomit out the hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it, tiny hair spraying against the sink so early. "No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
 
@@ -73,6 +73,34 @@ But I intentionally ignored them and zoned out. I zoned out a few times daily. T
 
 You have to understand. I tried to build it so it could speak to me. The screen should have screamed something intelligible instead of staring back at me, blandly holding up the garbage boxes and text I drew on it.
 
+I was in the hallway, between snacks and lack of snacks, when Mik approached me. "Hey Man!" he wore cowboy boots that day, in defiance to the more fashionable of the business sporting their dusty three peice suits. His glasses were thin enough but it made his nose look obtruse and like it was poking you and the conversation you had with him. "Haven't seen talked to you in a while."
+
+"Nothing really to talk about."
+
+"You sure?" He asked, intentionally changing his face to puzzled, not holding back that it was a fake natural look.
+
+"Yea I'm pretty sure." I wasn't sure what I was supposed to feign. Regret, fatigue, accomplishment maybe. He still stood there though, expecting me to excuse as it grew more awkward.
+
+"You'll let me know I'm sure. Tell me when you feel comfortable. If it's something or nothing. Did you get your visa?"
+
+"Not yet, no."
+
+"Let me know when you get it. There's details and all that to resolve. We don't you to need us to continue to support you forever." And he actually winked.
+
+"Of course not I wouldn't want th-"
+
+"Unless you wanted to continue to work here." He paused but not long enough for it to be a legitimate, and then laughed at his remark and sidled off as just kidding as he headed to his office, one of the few of us who had an office.
+
+
+
+
+
+
+
+
+
+
+
 At six or so everyone began shaking their things, feeling a bit uneasy. Someone ruffled their coat onto themselves, and then pretended to realize it was time to go.
 
 I packed my things and left. Out the door, into the street, on the crowded train. Past them, past the burden that beckoned me to come back again tomorrow but giving it a nod.
@@ -96,12 +124,10 @@ If Renee was awake, it was impossible to tell. Her eye lids were practically shu
 The kitchen was only a tiny mess compared to the living room. Dishes weren't piled high enough to call it a disaster.
 Renee gave me a juicer from the 70's, incredibly powerful and just as hard to clean. Fruit flies laid back on lawn chairs on it, sunglasses and a bit of smoothie in their tiny glasses. Occassionally they flew up a bit and waggled around looking for another spot. 
 
-I don't remember what I cooked that night, but I do remember it was bland. I didn't let her cook anyway. She burnt curry once and that was her introduction and goodbye to the kitchen.
-
-Most of the things I made were courtesy of a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Om. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. I took her challenge as an excuse to make something creative. My mouth took it as a challenge to taste any flavor.
+I don't remember what I cooked that night, but I do remember it was bland. I didn't let her cook anyway. She burnt curry once and that was her introduction and goodbye to the kitchen. So I made the food and most of the things I made were courtesy of a diet Renee had dedicated herself to; she wasn't allowed anything fermented, with spice, with meat, ground or with dairy. "Sacrifice, I've been doing it my whole life." She said vigilantly and proud. "Everyone has to write their own story Om. I'm writing my own story, you're in it too." By now I was used to these broad statements. They were one of the reasons I loved her, the insistence and necessity she gave her language. The way she used them to feel independent and smart. Salt was completely out of the question and answer, so I took her dietary challenge as an excuse to make something creative. My mouth took it as a challenge to taste plenty of non-flavors.
 
 Outside stood the vacant parking lots and warehouses, limos occasionally drive to and fro. The window made a frame to the distant city and the reddening horizon. The New York sun wasn't at all like in Lebanon. Somehow it felt bigger there, pulsing with blood and vigor as it slid down the sky. Here the smog painted it smudgy, the tips of buildings poking at it.
 
-A heard the Chinese lady selling clothes, yelling in the distance "socks socks underwear tanktop!"
+A heard the Chinese lady selling clothes, yelling in the distance "sock sock underwear tanktop!"
 
 After dinner and before I slept I sighed downstairs, but they said nothing came that day. There was no mail.

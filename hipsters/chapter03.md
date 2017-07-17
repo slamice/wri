@@ -50,7 +50,7 @@ Andrew sat on the floor, rolling a joint on a crate. He licked his fingers and p
 
 "So what are you doing these days Andy?" Renee asked him cheerfully.
 
-Andrew rolled the joint between his fingers, responding casually without looking up at her, "Im working up at Cuppa Joe, also working on the film script with Ethan and Marley. We're sharing some of the dialogue and there's a big funeral scene with a eulogy. That's all I can say really."
+Andrew rolled the joint between his fingers, responding casually without looking up at her, "I'm working up at Cuppa Joe, also working on the film script with Ethan and Marley. We're sharing some of the dialogue and there's a big funeral scene with a eulogy. That's all I can say really."
 
 He was obviously very uncomfortable. The marijuana smoke trailed up and swirled above his head in a halo. He took a sip and then handed it over to Jack. Sarah turned it down, but watched attentively.
 
@@ -78,9 +78,26 @@ Jack muttered in, "Yea they had auditions and yeeeeaaaa I can do that." but then
 
 Jack must have felt the weird tension? How often did this situation occur, lovers of the past and present fight it out with passive aggressive blows. Probably fairly often but still. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone even though the people in it were dying. Andy knew I was Renee's latest best friend supposably. We hadn't talked since. Now Andy was sullen, apathetic at first glance, nothing unusual. But I'm sure it *dug* deep into him.
 
-In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leaf through them to feel busy.
+In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leaf through the records to feel busy.
 
-Renee started talking to Andy excitedly again, about nothing in particular. How he could use a new type of herbal medication. How she's woken up sick with a rash on her face down to her arm, bed struck and unable to go work. Prof brooded in the shadows not saying anything, and I could see a silhouette putting on some black blurry headphones.
+Renee was talking with Andy excitedly again about nothing in particular, in this case her mother.
+
+"She's still there in her house. Do you remember when you snuck in to wait for me?"
+
+"Yea, I remember her look."
+
+"I never heard this. So what happened he broke in?" Jack intevened. Then I thought I saw Renee give Andy a potential flirt, maybe not living up to its fullest but it was definitely made available. I sat there questioning its authenticity when she answered.
+
+"He climbed in through the window because he thought I was asleep but I was out then (doing what?). So he waited in the bathtub because he was ridiculous, not expecting my Mom to come back that weekend and walk through the door. I think she was at some kind of 'start your business' seminar."
+
+"She didn't like it." Andy's voice crept back in on top of Renee's.
+
+"You were crazy for doing that! You were crazy. She was pretty crazy too. I'm sure I told I used to wait for her for hours after school for her to pick me up. They worried about me then. She was always running errands."
+
+
+
+
+How he could use a new type of herbal medication. How she's woken up sick with a rash on her face down to her arm, bed struck and unable to go work. Prof brooded in the shadows not saying anything, and I could see a silhouette putting on some black blurry headphones.
 
 I didn't understand the meaning and didn't have a good idea of why I was there. What was floating in the atmosphere then? Sarcasm, grief, irony? The art slunked up against the walls undeterred by its inhabitants. I felt I was pretty small here. Even with the art, the flex-rooms, the smoke, dust, dirt and the people, the room still felt so empty. If you winked you weren't sure they were there. Like nothing was sure to exist in this space.
 
