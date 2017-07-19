@@ -1,12 +1,13 @@
-The phone rang again. And again.
+Maybe the events all happen in one night, with frequent flashbacks.
 
-"Yea?" I answered.
+- Explains story of laster night, was in concert. Is talking to Selina.
+-- 
+-- 
 
-"Well you're gonna answer now son?"
 
-"Yea Dad, what?"
 
-"What what? I'm your Dad how long are you going to avoid talking to me?"
+
+
 
 
 
@@ -26,7 +27,7 @@ The phone rang again. And again.
 6. Trying to figure out his 'self' in relationship to others but doesn't matter much in the end.
 7. Dock strikes him. Tour is cancelled. Letter arrives.
 8. Decides to give it a shot, flip the script. Breaks up with Renee after wedding. But possibly is too late. Father leaves. Mother becomes gravely ill.
-
+9. Maybe he rips up the letter and leaves. Because he accomplished.
 
 
 1. Om goes to a party, finds out about the tour, meets Frances and they discuss the letter. Om follows Selina and her friend to the band people's party. They talk more to him to get the deal.
@@ -43,4 +44,17 @@ The phone rang again. And again.
 
 7. Goes to cruise, 
 
-8. 
+
+..
+
+
+
+The phone rang again. And again.
+
+"Yea?" I answered.
+
+"Well you're gonna answer now son?"
+
+"Yea Dad, what?"
+
+"What what? I'm your Dad how long are you going to avoid talking to me?" 

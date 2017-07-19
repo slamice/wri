@@ -1,8 +1,8 @@
-Pinky's swear
+Pinky's Swear
  
 The stiff-necked colonel was caught up with the facts. Arriving in a dark black tweed suit, his rank pinned on it, gun in his pocket, head shaven, he scanned the crowded lawn across the cemetery devoid of expression. Standing like a lighthouse in a sea of his old hometown's folk, too many recognizable marked memories.
  
-The mourners stood in groups. Some surrounded his mother's casket, some a flower patch or a bench. All moved together except the colonel. He'd encountered them all at some point. They remembered the colonel as squat, plump, round and poignant. They knew him as Pinky too, because that's what his mother called him since the day he was born. So he had to deal with his name on top of dealing with all the other people dealing with him. He always thought of his mother as a jovial mess and a ridiculous person. His father, on the other hand, treated him as a neccessary ration.
+The mourners stood in groups. Some surrounded his mother's casket, some a flower patch or a bench. All moved together except the colonel. He'd encountered them all at some point. They remembered the colonel as squat, plump, round and poignant. They knew him as Pinky too, because that's what his mother called him since the day he was born. So he had to deal with his name on top of dealing with all the other people dealing with him. He always thought of his mother as a jovial mess and a ridiculous person. His father, on the other hand, treated him as a necessary ration.
  
 "This is where her past lived," he said dramatically to himself. "It's just unfortunate it happened for so long." He cast stern quick glances at people. Half of them wore dull comforting smiles, others he saw as completely mortified. That's when he knew these were amateurs.
  
@@ -102,7 +102,7 @@ This only made Pinky madder, his face redder than most combined. It was already 
  
 "Who are the fuck are you?"
  
-But as he blurted it out a pain stung him in his ankle. The toddler began first with small nibbles but then hard bites piece emeal, teeth mark holes breaks the seams of his pants. Blood drooled down his foot soon enough.  The brunette lady got behind him with what appeared to be a sad hunger, peppering his shoulder with spit. She climbed on his back as he turned in circles trying to grab her or her dress. She bit at his sweaty red neck in haste.
+But as he blurted it out a pain stung him in his ankle. The toddler began first with small nibbles but then hard bites piece meal, teeth mark holes breaks the seams of his pants. Blood drooled down his foot soon enough.  The brunette lady got behind him with what appeared to be a sad hunger, peppering his shoulder with spit. She climbed on his back as he turned in circles trying to grab her or her dress. She bit at his sweaty red neck in haste.
  
 "Get off of me!" He wheezed out between a breath. With Pinky off guard, the pork pie man grabbed the back of one of Pinky's arm and twisted it hard with surprising hidden strength. "Get off of me! I'll have you bastards arrested."
  
@@ -120,7 +120,7 @@ The swear echoed the garden, running through it gallantly like an olympic triump
  
 Sensing a familiar presence, Pinky knew before even looking that his aunt was staring right through him. Into his exasperated face he saw her shock. The family! Our Town! Pinky's humility! His words dumped all of those into oblivion, and he stared down at them as they fell, mouth agape. He reached out, but his his hands were too  far greased with sweat. So they only strained through his fingers.
  
-His father stepped up behind a crowd, slowly. He was distilled in an agony only a parent could know, ashamed and betrayed, having just watched Pinky cast aside all his life lessons. "Why, son?!" He barely said, overstricken by grief. Pinky tried to mouth something, but it only appeared as an imaginative gesture. The many shocked hating eyes froze those words and nailed them deep down his gullet.
+His father stepped up behind a crowd, slowly. He was distilled in an agony only a parent could know, ashamed and betrayed, having just watched Pinky cast aside all his life lessons. "Why, son?!" He barely said, overstruck by grief. Pinky tried to mouth something, but it only appeared as an imaginative gesture. The many shocked hating eyes froze those words and nailed them deep down his gullet.
  
 Who accompanied his father but two of Pinky's kindergarten teachers! Their arms hooked together just moments ago, soon fell to their sides. One raised her hands to the sky to ask, as if in a prayer to the past moment, how could he tarnish, how could he be such a horrible child?
  
@@ -130,7 +130,7 @@ Cousins, uncles, family friends, teachers, butchers, shopkeepers, mailmen, carni
  
 And then, even in death, his mother appeared before him exactly as if she were alive. She wore a particularly ugly dress with its own brand of horror. Unfashionable even in death, it made him even more depressed. Her body was frail, but stressed like her face, writhing in agony of disappointment. The look on her face was enough to melt him. "How could you..." the ghost whispered silently to the still air, then evaporated before him.
  
-***
+**
  
 As The last of his family left, ignoring Pinky as he lay on the ground with his face in the shade of his mother's tombstone. His mind was exhausted at his attempts for mercy. Everyone left him there sulking. It was the least they could do after he begged for their forgiveness, to let him sulk without dignity. Defeated.
  
@@ -148,4 +148,4 @@ Pinky's hands were red with calluses. They stung so much from pulling at people'
  
 They look in each other's eyes and Pinky whispered "Thank you."
  
-"Thank for being there to be there with." the blonde man smiled generously, showing his wide toothed grin. Their pinkies tightened their embrace. They noded together "Never again. Friends forever."
+"Thank for being there to be there with." the blonde man smiled generously, showing his wide toothed grin. Their pinkies tightened their embrace. They nodded together "Never again. Friends forever."

@@ -6,25 +6,33 @@ So late at night, I tried to look back at Manhattan from the bridge. But I was f
 
 
 
-A few days later Selina virtually hit me up for a coffee ((headache)) that night. "Hello fellow human!" She cheerfully gleed at me through the phone.
-
-Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
+A few days later Selina virtually hit me up for a coffee ((headache)) that night. "Hello fellow human!" She cheerfully gleed at me through the phone. Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
 
 "What's up?"
 
-"You should come out." she whispered, "You haven't been out in a while. A friend of mine's band is visiting from O-----"
+"You should come out." she whispered, "I'm at Cup O' Joe."
 
-"I just don't feel it right now, you know? But, I could use a coffee shop though. I'll see you there."
+"At the coffee shop?"
 
 "A cough-ee-shop?"
 
-I hung up.
+"Are you high?"
+
+"I may be high. It is a definite possibility."
+
+"I'll venture out."
+
+And I hung up.
 
 It sure was better than a night with Renee and an eigthies Romcom. I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
 
 "You never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
 
 "It'll only be for a bit. There is no other girl."
+
+"Do you like Selina?"
+
+"Please not again. Please."
 
 "Can you please get me an iced latte then?"
 
@@ -58,7 +66,7 @@ A cow hummed in my pocket and it was my father. Crawling over my phone was his n
 
 I leaned against a wall wit my back to it. My eyes closed and imagined my Dad on the other end, then I imagined a beautiful blonde curly haired girl, her face slightly red because she was dutch and because her genetics were tickled by the cold streaming into her shirt that cover her bellybutton. My Dad's voice faded back in but barely.
 
-"____'s Son got it in three week's, you remember them? I don't know how many years it's been since you applied."
+"----'s Son got it in three week's, you remember them? I don't know how many years it's been since you applied."
 
 "Only five. I don't know when I'll get it but I have to wait for it."
 
@@ -122,7 +130,7 @@ I drank it as my head slowly began to hurt. The milk was heavy and felt heavy go
 
 "Adrian's not working tonight looks like."
 
-"She's playing tonight. At the Claybourne Whatever. It's the new place near main and Clinton." slowly coming down from her high.
+"She's playing tonight. At the Claybourne Whatever. It's the new place near Main and Clinton." slowly coming down from her high.
 
 "Yea I heard about it. She plays a lot."
 
@@ -132,27 +140,25 @@ Selina shrugged, "kind of, but wanted to take it easy tonight. Take it easy."
 
 On my way out I ordered Renee's latte. Selina's haze started to brighten up, 
 
-The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments hadn't yet gone on sale. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. Basterdized Bauhaus under a modern sky. The same sky's been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they needed to do to need to do.
+The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments that were half finished had already been bought. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. Basterdized Bauhaus. The same sky's they'd be under has been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they needed to do to need to do.
 
-I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. I sipped Renee's latte, the ice melting as my hand warmed it. I looked up and tried to find a star under all the street lamps. ((These people try to reach the top, and they look down where they once were, and wonder if the view is better on the otehr side of the complex, by the pond shaped thing, as they dim their living room lights and go to sleep.
+I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. I sipped Renee's latte, the ice melting inside it as my hand warmed it. I looked up and tried to find a star under all the street lamps. ((These people try to reach the top, and they look down where they once were, and wonder if the view is better on the otehr side of the complex, by the pond shaped thing, as they dim their living room lights and go to sleep.
 
 There was nothing to play with outside, everything was spotless, relentlessly clean to a point of no return. Rustling my jacket, pretending to have a cigarette in my mouth. I held it between two of my fingers, chocked and coughed a bit from the dry wretch in my throat. My eyes closed and I waited. I waited for my father to call me back, to beg me to come home. Or for my work to fall in front of me, asking me to re-arrange the letters over and over again until somehow it worked. I saw Selina's red eyes looking at me, with a jiggered smile. A "beautiful" corruption that she would defend. What was wrong with normal eyes you could see?))
 
-I hummed a soft sylable in a bass, my eyes still closed, forgetting the world. But the latte was cold and wondered where it was, so I had to save it.
+I hummed a soft sylable in a bass, my eyes still closed, forgetting the world. I could still hear the wind so I tried to shut it out. And the street cars. And the silence. I thought about what I was looking for. Maybe it was the road when we'd go on tour. Just being on it would baptize me? It seemed incredible to even think about. ALl the empty desert, ((cliffs,)) plains, fields and forest. What could you fill it with?
 
+But the latte was cold now and getting colder and wondered where it was, so I had to save it.
 
+A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly.
 
+-- DAD TALK --
 
+Honestly my mother was just there, and I loved her. But really, we grew apart just like I grew apart from the rest of my family. She was cautious and protective but once I hit a certain age all that stopped. Maybe she figured she'd do what she did, so phrases became stuff like, "do your best." and "Have fun." and "Well whatever you do use a condom." The first two years away from home I took nothing she said in the past or that present seriously because I hated her for reasons I can't explain. And then after that I realized all the lies I made up in my head were just that. SO I got over them and we talked intermittently when she reminded me to talk. Now the thought of her sick, even if it wasn't serious, opened a locked box. I wondered how much longer I could stay indifferent.
 
+On my way back I passed by Jack and Andy's apartment and noticed the light was on. A fever of rage suddenly overtook me on my walk back. Who was he. Such a bastard. And suddenly I was in my apartment, sneaking a look at Renee saying Hi, but she didn't look up. She was completely embossed on the bed, engrossed.
 
-
-
-
-
-
-As I passed by Jack and Andy's apartment on my way back, I noticed the light was on. A fever of rage suddenly overtook me on my walk back. Who was he. Such a bastard. And suddenly I was in my apartment, sneaking a look at Renee saying Hi, but she didn't look up. She was completely embossed on the bed, engrossed.
-
-I immediately went back out, making sure the cat didn't escape. Just around teh corner, under our bedroom window, I tiled over Renee's forgotten latte and dumped it in slow motion. The the sugary milk stream made a quick splash and settled in the cracks of the broken concrete. The paper cup I put next to the mess, and lurched back up the stairs to the apartment.
+I immediately went back out, making sure the cat didn't escape. Just around teh corner, under our bedroom window, I tilted Renee's forgotten latte and dumped it in slow motion. The stream made a quick splash and settled in the cracks of concrete. The paper cup I put next to the mess, and lurched back up the stairs to the apartment.
 
 
 
@@ -322,7 +328,7 @@ It was like any gentrified neighborhood I guess. The lack of
 
 
 
-He worked at a coffeeshop we frequented on M___ street. It illuded to being a chain but was not really so.
+He worked at a coffeeshop we frequented on M--- street. It illuded to being a chain but was not really so.
 
 
 Bookstores were still open, they're still open. Shelves full of slightly off famous books. The inside of the comic vintage one next door was rickety yet ironed out. A clean mess of leafed through comics were wrapped in plastic. Inside were people ready to save us from disasters that never happened, or from each other.

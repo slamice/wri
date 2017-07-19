@@ -69,11 +69,11 @@ Ryan peered over at me. "Do you know the difference?"
 
 "I think homeless people have more fashion sense I guess?" Tom muttered smiling.
 
-But I intentionally ignored them and zoned out. I zoned out a few times daily. To what I can't remember. To random things.
+But I intentionally ignored them and zoned out. I zoned out a few times daily. To what I can't remember. To random things. It's kind of the definition as well, designed to forget.
 
-You have to understand. I tried to build it so it could speak to me. The screen should have screamed something intelligible instead of staring back at me, blandly holding up the garbage boxes and text I drew on it.
+You have to understand. I tried to build things so they could speak to me. The screen should have screamed something intelligible instead of staring back at me, blandly holding up the garbage boxes and text I drew on it. Sometimes deep down I want to just let things be. There are enough natural rules already.
 
-I was in the hallway, between snacks and lack of snacks, when Mik approached me. "Hey Man!" he wore cowboy boots that day, in defiance to the more fashionable of the business sporting their dusty three peice suits. His glasses were thin enough but it made his nose look obtruse and like it was poking you and the conversation you had with him. "Haven't seen talked to you in a while."
+I was in the hallway, between snacks and lack of snacks, when Mik approached me. "Hey Man!" he wore cowboy boots that day, in defiance to the more fashionable of the managers sporting their dusty three peice suits. His glasses were thin but still  made his nose look obtruse like it was poking you and the conversation you had with him. "Haven't talked to you in a while."
 
 "Nothing really to talk about."
 
@@ -81,7 +81,7 @@ I was in the hallway, between snacks and lack of snacks, when Mik approached me.
 
 "Yea I'm pretty sure." I wasn't sure what I was supposed to feign. Regret, fatigue, accomplishment maybe. He still stood there though, expecting me to excuse as it grew more awkward.
 
-"You'll let me know I'm sure. Tell me when you feel comfortable. If it's something or nothing. Did you get your visa?"
+"You'll let me know right? Tell me when you feel comfortable. If it's something or nothing. Did you get your visa?"
 
 "Not yet, no."
 
@@ -91,7 +91,7 @@ I was in the hallway, between snacks and lack of snacks, when Mik approached me.
 
 "Unless you wanted to continue to work here." He paused but not long enough for it to be a legitimate, and then laughed at his remark and sidled off as just kidding as he headed to his office, one of the few of us who had an office.
 
-
+I dug into work almost as seriously as I dug into my chips. It didn't behave and needed wrangling.
 
 
 
