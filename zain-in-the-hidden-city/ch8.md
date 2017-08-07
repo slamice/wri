@@ -1,0 +1,1 @@
+"Maybe a power outage iwon't affect us, if we don't care about it" ((don't use electricity))

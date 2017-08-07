@@ -1,12 +1,12 @@
 CHAPTER IX. Anne of Green Gables and will the Horrors Never Cease
 
-The answer is a polished no. Anne was now a fortnight in. Mr. and Mrs. Marilla Pleb couldn't contain her so they let her run free like a beast in between meals. Anne got to work studying her surroundings. She's lay out a battle on Prince Edward Island sooner or later, and where to dig trenches was a key decider in a battle. Everywhere was a lush lush green that was too hot to handle. Canada was a vegitation nation and Anne would surely be its gardener she thought, running her hands through thick reeds. She rode to and fro on passing elk, tasted streams fresh with fresh salmon flying out of it, some hitting her in the face as she laughed playfully, taking a bite out of a few.
+The answer is a polished no. Anne was now a fortnight in. Mr. and Mrs. Marilla Pleb couldn't contain her so they let her run free like a beast in between meals. Anne got to work studying her surroundings. She's lay out a battle on Prince Edward Island sooner or later, and where to dig trenches was a key decider in a battle. Everywhere was a lush lush green that was too hot to handle. Canada was a vegetation nation and Anne would surely be its gardener she thought, running her hands through thick reeds. She rode to and fro on passing elk, tasted streams fresh with fresh salmon flying out of it, some hitting her in the face as she laughed playfully, taking a bite out of a few.
 
 Among the peons Anne was a furly furror of rumor and they simply have not stopped talking about her. Of course they all suspected she was soon to be a new queen, no one yet believed they'd be trampled by a red headed freckle baring baroness.
 
-Among those plebbing was Mrs. Lindt. As described previously she fancied herself some type of oracle or orb that needed to be fed, in this case knowledge about orphans. She was confined to bed due to bed sores and grippes. Bed sores a terrible chicken in the egg dilemma that was rare among farmfolk at the time. I mean what would you do, you have sores stay in bed. The Grippes particularly were neverending though, she was always about those. Eventually she got better, and immediately wanted to start some drama off a few gabley greens. She went off in a hoo to hoot some hollars at our little Royal Anne the orphanette.
+Among those plebbing was Mrs. Lindt. As described previously she fancied herself some type of oracle or orb that needed to be fed, in this case knowledge about orphans. She was confined to bed due to bedsores and grippes. Bed sores a terrible chicken in the egg dilemma that was rare among farmfolk at the time. I mean what would you do, you have sores stay in bed. The Grippes particularly were never ending though, she was always about those. Eventually she got better, and immediately wanted to start some drama off a few gabley greens. She went off in a hoo to hoot some hollars at our little Royal Anne the orphanette.
 
-Mrs. Lindt appeared on the horizon, slowly approaching the Green house in a casual stride, arms out swinging.
+Mrs. Lindt appeared on the horizon, slowly approaching the Greenhouse in a casual stride, arms out swinging.
 
 Even at that distance she bellowed, "Top of the morning!" She was no spring chicken but she fancied herself one. Finally making it to the door, she spilled her gullet with her grippes of sores earfuls full. t came out like a slide down to Marilla Pleb's lobes and she just sat listening to every gripe, gripe by gripe.
 
@@ -26,7 +26,7 @@ No calling was need be heeded. Just at that moment Anne walked in, somehow skipp
 
 Mrs. Lindt's mouth was open, a yawning chasm you could stick a tree trunk in. She saw Anne's guard down and wanted to take her turn to poke the soon to be queen, just like the first time you see a frog and you want to poke it with a stick when you're 3 years old.
 
-"She's terrible skinny and homely. Come here, child, and let me have a look at you. Lawful heart, bear sway, did any one ever see such freckles? And hair as red as carrots! And red onions! Come here, child, I say."
+"She's terrible skinny and homely. Come here, child, and let me have a look at you. Lawful heart, bear sway, did anyone ever see such freckles? And hair as red as carrots! And red onions! Come here, child, I say."
 
 Anne now stared at the Lindt and walked towards her, her gaze stuck on her. She took one huge lunge towards her and bellowed out a laugh fit to kill.
 
@@ -60,7 +60,7 @@ The house was quiet for a few. "Well, I don't envy you your job bringing THAT up
 
 "I'm too sorry for you to leave any room for anger in my mind. You'll have your own troubles with that child. But if you'll take my advice—which I suppose you won't do, although I've brought up ten children and buried two—you'll do that 'talking to' you mention with a fair-sized birch switch. I should think THAT would be the most effective language for that kind of a child. Her temper matches her hair I guess. Well, good evening, Marilla. I hope you'll come down to see me often as usual. But you can't expect me to visit here again in a hurry, if I'm liable to be flown at and insulted in such a fashion. It's something new in MY experience." And with that she got about, obviously shaken from the experience, and trotted off back home.
 
-Mrs. Pleb waddled up the stairs like a tomato with two eraser head legs. She thought again and again. How should she punish Anne? She would be insane to resort to whipping. That would just multiply the personalities Anne is already harboring further into the light, little did she know. She couldn't take it all anyway, so she patoned into the room clutching a few rosaries and drillign them madly in preparation to what she saw.
+Mrs. Pleb waddled up the stairs like a tomato with two eraser head legs. She thought again and again. How should she punish Anne? She would be insane to resort to whipping. That would just multiply the personalities Anne is already harboring further into the light, little did she know. She couldn't take it all anyway, so she patoned into the room clutching a few rosaries and drilling them madly in preparation to what she saw.
 
 Anne was exhausted and crying into a pillow. Even for a young queen she couldn't take this ridicule, and decided to sob her sorrows to it, unabashed.
 
@@ -68,7 +68,7 @@ Anne was exhausted and crying into a pillow. Even for a young queen she couldn't
 
 Crickets. Tumbleweed. "Wow, cause when you're the Queen everyone wants to take a turn or two to fuck with you", Anne thought.
 
-"Listen to what I have to say to you," Mrs. Pleb sterned up. She had to teach Anne their ways. "It was completely unneccasry, under our roof you should uphold yourself better."
+"Listen to what I have to say to you," Mrs. Pleb sterned up. She had to teach Anne their ways. "It was completely unnecessary, under our roof you should uphold yourself better."
 
 "She hadn't any right to call me ugly and redheaded," Anne retorted, tossing back her hair with a waggle of her eyebrow.
 
@@ -80,9 +80,9 @@ Mrs. Pleb looked on at her and she watched a leaf from her hair fall to the floo
 
 "She's still my visitor and old. You have to be nice to these people Anne."
 
-"Tie me to the dungeon chain then. Use whatever medival instruments you have lying about in this green hell." Anne said defiantly as if she were ready to die for her country. She knew all too well unfortunately they had no dungeons she could demonstrate her bravery on, but mustered that mustard up one the least.
+"Tie me to the dungeon chain then. Use whatever medieval instruments you have lying about in this green hell." Anne said defiantly as if she were ready to die for her country. She knew all too well unfortunately they had no dungeons she could demonstrate her bravery on, but mustered that mustard up one none the least.
 
-Mrs. Pleb insisted a firm apology, threatening all sorts of time outs, delayed desserts and absent lunchmoney. But Anne only quivered in disgust. "I will never apologize and will have to stay here forever then.
+Mrs. Pleb insisted a firm apology, threatening all sorts of timeouts, delayed desserts and absent lunchmoney. But Anne only quivered in disgust. "I will never apologize and will have to stay here forever then.
 
 "I'm sorry I've vexed you; but I'm GLAD I told her just what I did. It was a great satisfaction. I can't say I'm sorry when I'm not, can I? I can't even IMAGINE I'm sorry." Mrs. Pleb dismissed herself after that without a word.
 

@@ -1,12 +1,3 @@
-Ch1. We next see his personal life. He's at a dance party with his "friends". He hates the atmosphere but goes anyway. His "friends" ditch him but he stays, holding out. We learn about the hipster atmosphere. His other friend takes him to a party with a possible proposition to get out of the city. He's ambivalent in general but excited and decides to aim for it.
-
-
-
-
-
-
-
-
 Something in the air was broken. It felt banal and burnt to an odorless cinder. I smelt it still somehow, felt it and watched it with my eyes, deadpan. I looked out across the silent empty street. I thought I saw something move, but only thought.
 
 Cars swept by hissing cats. The area was thick with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple the apartment's worth a month. The door got stuck often but there was a skylight so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
@@ -43,140 +34,166 @@ My next guess is Matt never shows up. He was usually late and occasionally we'd 
 
 We stood around, scratchy and unnerved. We looked like a shitty polaroid. I started to drift from Jack and Ryan there. These two were innocent compared to the hidden gems inside. I invited them out but honestly I didn't know who depressed me more.
 
-Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marijuana for eternity. As for Jack, various college degrees tried to swoop down on him, but he was great at avoiding them. Eventually he gravitated towards a bachelors in philosophy and did nothing with it. He sported shoulder length hair, was often seen chittering occasionally wore no shoes. Jack reigned in his own world of canvases featuring surreal modern nude art.
+"I heard about Renee." Jack whispered to me.
 
-We were there for another 20 minutes. They went in for a bit to check it out, but I could tell the two of them were getting finicky. Jack finished his cigarette in a few minutes and, "but seriously man I'm gonna bail. I'm really sorry, but I've got this thing with Sarah tonight and it's like you know me I'm sorry." His sentence bowed, shuffled and shrugged.
+"Yea man that's a shame. That happens." Ryan echoed.
 
-"It's not a big deal, you don't have to apologize. I'll see you later though, like another night."
+"It's not something I'd like to talk about."
 
-"Really sorry I can't right now."  And he slowly walked off waving, with Ryan bumbling and lagging behind him whispering a "me too." Matt never showed up either.
+"Oh I understand that. Yea." he nodded his head almost too quickly.
 
-How a show usually played out is posters went up in skate shops, coffee shops, really expensive barbershops. Each of these shops had only 3 items on their menus, those sort of places. Doors at 8, starts at 9. People know it really starts at 10. Bands keep waiting for their drinks and drunks. They go on at 11 or 11:30. It ends at 4am after the fourth band, but the police break it up at 3am.
+Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marijuana for eternity. As for Jack, various college degrees tried to swoop down on him, but he was great at avoiding them. Eventually he gravitated towards a bachelors in philosophy and did nothing with it. He sported shoulder length hair, was often seen chittering occasionally wore no shoes.
 
-This isn't that kind of show though, we don't technically really have to wait for anyone. It's 90's Dance night and that's a guaranteed win. Everyone here was an angry teenager then wanting to dye some highlights into their memories. Now we're back. But instead we have 60's pop remakes we forgot about on the radio, and they're in vogue again. One night only until the next 90's dance party five months from now.
+Why'd I invite them out? I hand't seen Jack for months especially since we were neighbors. It had been almost a year, back when I was still with Renee, when we visited his place.
 
-By now people stupided towards the door, a few already drinking, a few more warming up with headbands. Some beards were abound, a few lit up.
+Renee and I were walking back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we haven't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
 
-I flew in profusely like an uncaged canary. Past suit vests. Shirts with "savior" and "moron" emboldened in front of crowds. Some bumped into me accidentally and intentionally. A few jeered at nothing then laughed.
+"We should at least stop by to visit them."
 
-The party was a pagan dance. 90's theme be damned. Someone threw up the 60's, 70's, 90's (but mostly the eighties) onto some far and not finely aged wasted teenage bodies. Everyone was clad with chababyness. The dance floor was surrounded with quotation marks. Fashion was ripe with faux-paus chic and undeniable clashing that somehow made the word "tacky" look tame. Two were dancing the robot like humans. Straight out of Wonderland were Alices in all colors of the rainbow. A ghostbuster did a violent shuffle near a spinster, backpack jigging and all.
+"I mean maybe Jack but that's it. Just _avoid_ Andrew. Why am I supposed to see him?"
 
-Many weirds and beards shot each other, the digital polaroids barely drying between takes. Mouths were open, strung out on jargon, cheap beer and dance music. Some girls made a few soft-core poses, each holding a meaningless subliminal message.
+"Because he's still my friend-" she said, stammering.
 
-I scanned through the crowds casually. The lights were dim and confused, spraying in every other direction. I recognized a few passing faces in passing.  A few more prominent and active members ignored me. I made a hard nod at one girl made tapestries. Finally Selina waded into the crowd. I caught fleeting glimpses of Selina's roommate Adrian and her periodic boyfriend. They were lost in a few ways, most prominently in dancing.
+"He used to beat you." I said sharply, "I just don't understand why you'd want anything to do with him."
 
-"What's up and yo?" Selina and I pounded hands and laughed. She donned light flannel and a grey cap.
+"Yea but that's old! That was ages ago. I mean he used to get really mad but he's getting in a better place. He's moving to a BETTER PLACE in his life. Can't you see that?"
 
-"Yo yo yo. You're looking really grungy."
+We walked underneath their window and before another comment Renee yelled up for Andrew. From the second floor Jack's sleepy face poked out, and sleepier voice yelled down "Yeah he's here. Come up!". Jack's girlfriend, a squirrelly girl named Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
 
-"I've been wearing this since this morning! How long have you been here?" Her smile was huge.
+Andy's apartment was a desolate. It was a single huge room he lived in with Jack and Prof. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low. Anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight. It was a bit hard to imagine the place designed for anything but a mess. Littered on the floor were Prof's coffee mugs and cappuccino cups. Jack's paints were next to them with beer bottles, cigarette trays complete with ash, nails and chipped wood. Signs of Andrew were everywhere but his main manifest was a pile of philosophy and spiritual books. The lighting, as with all of the lighting within the industrial area we lived in, was a depressing florescent.
 
-"Not that long, like half an hour. Thought I would check it out."
+There was barely a kitchen thrown off to the side. A tossed lopsided fridge in a corner. A cutting board sat on the counter with a cleaver sticking straight up out of it. "For cutting cheese," Sarah whispered when she caught me glimpse at it. The inhabitants loafed around unapologetically, eyes a tad hazy.
 
-"Ch-check-ch-check-ch-checking it out!" She tried to yell over the bad dance style. I heard it because most of the moves around us were just people walking badly.
+There was art. Jack's work lined the walls and floor underneath. Lots of paintings. A desert with a naked woman standing by a cactus, a mesh of naked women spewing out of a drain. A pair of boobs floating in the sky. Different chairs were painted various hues, one had a tv glued to its seat with a portrait of a seagull. These things came to Jack casually, painted with pastels and cigarette smoke. I hadn't seen Jack's latest art in a while. 
 
-What was popular possibly eons ago started to play again. We danced a few jigs and tried to steal a few dance moves from our surroundings. We shuffled left and right and looked around us.
+"Which one do you like?" Jack rubbed his nose.
 
-About 20 minutes later Selina's friend Adrian formed out of thin air and pulled Selina by the arm miming a smoker. I followed them outside, and the cold air hit us once again.
+"Where do your ideas come from?" I asked.
 
-"Hey we've got to jam twice this week so we're ready for Saturday." Selina looked up at me as she lit up, and I fanned away wafts of marijuana.
+"Sometimes in my sleep, sometimes they creep up on me. Sometimes they come to me like a locomotive." proud of remembering something he considered archaic to use.
 
-"Ah yea ~no kidding~." she blew out and coughed a bit. "Oh did you get your papers yet?" with an earnest.
+"I like this one", his girlfriend Sarah yawned out a whine. She pointed to a painting with a woman wearing no pants, in fact nothing but a tiny t-shirt that said "NO cooking". She rode a horse into space.
 
-"Not yet, it's going to take a while."
+Jack also covered the walls in masses of text and melting heads. Quotes from Burroughs and Ginsberg were scribbled, smeared and softened. Some of the text was attached to torsos and huge brains that looked suspended in midair. It's as if someone sipped some ink and spat on the walls repeatedly. Pollack chewing, drooling tobacco in disgust, rubbing his face in it. "Irregular atmosphere, timid and reluctant" was written in one corner. "Art space for drunks" was written in another.
 
-"Whatever, government. THE GOVERNMENT!" She yelled. Selina was against everything government. She gauffed at capitalism and stood honestly in disbelief at the many injustices of the world mentioned to her. Her eyes would literally grow bigger if anyone mentioned grim crimes involving theft, extortion, brutalizing women or death. "Oh my god" she would usually exclaim between sips from her latte.
+Behind us Prof's shadow danced loudly against one of the curtains as he rummaged through a box of tools.
 
-Adrian took a toke next to her with her boyfriend Hayden. I never really did know what to say to her friend. She worked in a coffee shop day in day out, surrounded by people who looked familiar but I didn't know. She gave Selina free coffee every time she visited with soy milk of course thanks. She coughed it up a bit, her face red. To Selina,
+Andrew sat on the floor, rolling a joint on a crate. He licked his fingers and pressed them against the thin paper. His sockets were deep in his face, naturally born that way. He always looked either sad, indifferent or angry. Renee explained previously that he probably always felt like he was missing something and never found it. That something was probably his unborn twin, dead in the womb. He could never forget the memories he never had with his brother. His parents were worried he'd go through the rest of his life with regret. It certainly looked like they were winning their bet.
 
-"How long do you wanna stay? I saw Steve inside, we could go to his house afterwards. Kind of an after party thing."
+"So what are you doing these days Andy?" Renee asked him cheerfully.
 
-"I'm up for that, he's a good guy. Wait, Steve Flemer? Or Steve from 'No Hope?'"
+Andrew rolled the joint between his fingers, responding casually without looking up at her, "I'm working up at Cuppa Joe, also working on the film script with Ethan and Marley. We're sharing some of the dialogue and there's a big funeral scene with a eulogy. That's all I can say really."
 
-"From No Hope." Adrian yelled, laughing. "Who's the other guy?"
+He was obviously very uncomfortable. The marijuana smoke trailed up and swirled above his head in a halo. He took a sip and then handed it over to Jack. Sarah turned it down, but watched attentively.
 
-They trailed off into a world of drama. I turned to Hayden, also slunked against the brick wall, and ask him what, exactly, was up. He said nothing in particular, which was nothing. A distinctive ambiguous shrug. Eventually he gave out that he was between jobs, working on contract as a graphic designer for a business by the waterfront. "I've been making some show posters too."
+"That's exciting!" Renee said with a huge grin, overemphatically "I'm super happy for you! A movie, it really sounds like you're going places Andy!"
 
-"I saw one of them I think, the kiwis with the lasers coming out of their eyes, that-"
+"Jack's in it too actually. He got a part as the protagonist's friends." Jack nodded in agreement. Sarah stared at Jack then off into space.
 
-"Hah, yea I'm particularly proud of that one."
+"Oh really?!" Renee squealed. "I didn't know they'd invite so many people on this, they were pretty secretive about it."
 
-"To Steve's!" Adrian yelled. Selina followed suit, and we slowly walked to Adrian's cyan beetle and piled in.
+I wondered about what the movie was about. I didn't know much about Ethan and Marley but I met them a few times when they picked Renee up. She knew them through practiced ayahuasca once a month in a forest. They puked the whole night together, calling it purging. Marley painted pictures of flowers and giggled every other word. Ethan was involved in two huge children's productions that made them well off for a while. They both wrote scripts for hollywood that couldn't make it past the noses of producers. But this time it was their movie, probably about something holistic and etherial like Super Yoga.
 
-Inevitably, Adrian began discussing her family for a bit. People in her story were drunk, had financial problems. Selina and I echoed "Yea I know that's hard."
+Jack muttered in, "Yea they had auditions and yeeeeaaaa I can do that." but then he turned his attention to me, "Long time no see, so how's it going?" he patted me on the back, "How've you been, are you still working at the, what... The software thing? place?"
 
-"I don't know what to do about my Dad. I don't know what to do. So many family issues and nothing gets resolved, you know?" She was talking strictly to Selina.
+"Yea I'm still there."
 
-"No kidding that's hard." Selina stared out into the street. For a bit we drove in her bug silently. Hayden flipped through radio stations until he gave up. It coughed up something we didn't recognize, but we were lulled by it and the static with every turn down a street. A few cats were lying on sidewalks waiting to be petted.
+"Well do you like it?" Sarah feigned interest.
 
-"Did you hear about Darren?" Adrian said, her voice a bit less scratchy and distressed.
+"Yea it's alright, I don't know. I don't really like everything about my work."
 
-"Oh my god what a disaster." Hayden echoed.
+"But is it FUN?" Jack looked at me. I was a bit surprised at how serious his tone was suddenly.
 
- Selina woke up "No, what about him? Didn't he have a show recently?" I could see Adrian was still, her mouth straightened and formed slowly, over the next few minutes, into a frown.
+"Yea it's ok, I like programming I guess." I tried not to look at Andy. His presence made me uncomfortable, in fact the whole situation did.
 
- "Him and Gabe were playing a show at The Laundry Room the other day. With his band Hellen Killer? You know. Darren thought that it would be cool if he brought some lighter fluid right? It would be a great show. He dumped a bit on his guitar and lit it on fire, and continued to play as much as he could. But the space is pretty small, and the fire slowly got out of control. The whole place was wood. And while he was taking his guitar off he kicked the lighter fluid into the crowd. This girl ended up catching on fire and the paramedics came. It was 2 a.m. and everyone was panicking."
+"I guess you can make a lot of good money but it's pretty menial work. I talked to Matt, he's not too into it." and then Jack went on and on.
 
-"****" I said, any expression I had before fell to the floor of the car, rolling back and forth as the car turned.
+Jack must have felt the weird tension? How often did this situation occur, lovers of the past and present fight it out with passive aggressive blows. Probably fairly often but still. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone even though the people in it were dying. Andy knew I was Renee's latest best friend supposably. We hadn't talked since. Now Andy was sullen, apathetic at first glance, nothing unusual. But I'm sure it *dug* deep into him.
 
-"What happened to the girl?" Selina whispered in shock.
+In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leaf through the records to feel busy.
 
-"Well the horrible thing is she ended up in the hospital with two degree burns. Everyone is blaming them and berating Darren and Gabe any way they can. On their flyers too now. It's horrible. They visited the girl in the hospital a few times and apologized." Adrian then turned to Selina, stern, "It didn't make a difference. Also The Laundry Room is gone, it burnt down that night. No one can play there any more."
+Renee was talking with Andy excitedly again about nothing in particular, in this case her mother.
 
-"God, that's horrible." Selina said.
+"She's still there in her house. Do you remember when you snuck in to wait for me?"
 
-"No one stops telling them they're jerks. I mean no one thinks about them. Darren feels horrible and they don't have to make him feel any worse. They probably won't play for months too, how could they?"
+"Yea, I remember her look."
 
-Adrian parked on the street and we headed quietly towards Steve's house. A fair oodle of people were already inside. The place was barely furnished, toppled in and out of itself. The living room was a mattress, love seat and a short coffee table with papers and weed. We sat down next to these stranger underneath the projector.  Steve started up some indian music. His band, Boombastic, practically stole all these rhythms and put a beat to them.
+"I never heard this. So what happened he broke in?" Jack intevened. Then I thought I saw Renee give Andy a potential flirt, maybe not living up to its fullest but it was definitely made available. I sat there questioning its authenticity when she answered.
 
-This environment sat nicely with the rest of the people hanging out there, about fifteen more or so. All friends of his roommates or friends. They passed around some sort of blunt and pills I didn't recognize. I didn't bother to take either off their hands. Steve was hard at work entertaining Adrian and Hayden. His voice fit so well in the background I couldn't distinguish it at first when he turned to me, "Why don't you smoke up?"
+"He climbed in through the window because he thought I was asleep but I was out then (doing what?). So he waited in the bathtub because he was ridiculous, not expecting my Mom to come back that weekend and walk through the door. I think she was at some kind of 'start your business' seminar."
 
-"I'm not so sure I'd be happy with the results."
+"She didn't like it." Andy's voice crept back in on top of Renee's.
 
-"I don't know man sometimes it's nice to find out what those are. But that's cool." I nodded at a few more things he said muffled by the music and the crowd, then he went back to Adrian and Hayden promptly.
+"You were crazy for doing that! You were crazy. She was pretty crazy too. I'm sure I told I used to wait for her for hours after school for her to pick me up. They worried about me then. She was always running errands."
 
-Looking back, I remember not wondering about Renee. I remember staring at those faces, hazy through the smoke. Words drifting in the air next to them. They were cut up by the music and popped like bubbles as they spoke. Adrian's round face looked like a laughing cloud. My memory reduces Hayden was only to his fat nose getting high.
 
-Selina grabbed me hard by the arm and let me to a corner and we got up, and led me to a corner. Her eyes were a bit bloodshot and half closed dreamily. She smirked like a thoroughly candied child. We didn't need to shout anymore and I smiled with her.
 
-"Is this the after party or the after after party?"
 
-"Hmmm..." she wondered, her lips thoroughly pushed up exaggerated, "Has kind of an after-after party feel. I think we skipped one." and then her eyes opened up fully and I could see her red cornea canals, "We NEED to get a show Steve."
+How he could use a new type of herbal medication. How she's woken up sick with a rash on her face down to her arm, bed struck and unable to go work. Prof brooded in the shadows not saying anything, and I could see a silhouette putting on some black blurry headphones.
 
-"WE NEED TO GET A SHOW WITH STEVE."
+I didn't understand the meaning and didn't have a good idea of why I was there. What was floating in the atmosphere then? Sarcasm, grief, irony? The art slunked up against the walls undeterred by its inhabitants. I felt I was pretty small here. Even with the art, the flex-rooms, the smoke, dust, dirt and the people, the room still felt so empty. If you winked you weren't sure they were there. Like nothing was sure to exist in this space.
 
-"He's got so many connections and he's such a nice guy."
+After about twenty minutes of this, I signaled to Renee I was leaving. She waved that she'd catch up with me in a few minutes, but got up anyway. I took a quick last look at Andy. He noticed, got up in fact, and in front of us all he looked me in the eye and said, "I forgive you" smiling, and shook my hand. His sockets were sunk like battleships. I shook back blandly and headed towards the stairs, ignoring the glances.
 
-"Adrian barely knows him though."
+"You can come back and visit." Jack sleepily waved. The rest of the goodbyes procrastinated until we were out the door.
 
-"We could tour Europe with them Om." and then she whispered, "we could tour..."
+"Andy's changed! He's got a job and his life is getting stable. He's doing better," Renee was excited, almost blushing.
 
-"How?" after realizing she was serious.
+"Why do you care about someone who beat you?"
 
-"They have a record deal. We could piggy back off of them. It would be the greatest time of your life Om."
+"He's a part of my life. You have to accept that. I've known him for so long."
 
-I thought about any possible complications.
+And she tried to bring me back, "Hey! Come on! Don't worry of course I still love you. I'm with _you_ now! Come on!" I made a shut up smile. We walked back slowly in silence to the limo office, the only sound were Renee's inner thighs rubbing against each other wearing down her jeans.
 
-"You'll get your visa by then! It's been years! Om! Om!" she stared me in the eyes, paused. Her hands started stuffing invisible scones and butter rolls in her mouth "Om Om Om." she laughed to infinity and I joined in for a bit. It was so stupid we never got tired of it.
 
-We drifted to other parts of the party. I leaned against the wall and watched the room unfold. It and the people in it felt shruggy and benevolent, smoking away to a low psychedelic hymn ignoring each other moderately.
 
-I sat around for a bit more. I peer at the girls, drinking up various brown liquids. Most in black and two in camo jackets. I think they're beautiful on the outside. I take a look at the boys, rolling weed and describing their lives.
 
-A mustashio'ed man wearing a reggae mop leaned a few feet away from me in silence. I peered over at him.
 
-"When did you get here?" I whispered to him.
 
-He ignored me briefly, but then breathed out without looking at me "about half an hour ago I guess. I'm getting tired already."
 
-"Yea I know what you mean." When I really didn't.
 
-"It's getting pretty late." He sulked, then smiled at himself profoundly.
 
-"I've been tired before I even got here." I chuckled truthfully, but it was impossible to know if he was listening. He didn't look at me yet or ever again and left it at that. He walked away straight faced, taking his bloodshot eyes with him. I mulled that over in my head, and I only heard silence above the muttering people and the droning music.
 
-Parties like these were brutally exhausting without something substantial to dull me. Weed was usually the norm but light drinking was another option I took up. I never overindulged, but inhaled just enough to feel like it was working. Two beers were enough for me that night.
 
-So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked cars. A couple, if they were that legitimately, startled me with their discreet argument as I passed by a random car.
 
-I was sketched out, my hands were in my pockets, my right gripping my keys and flipping through them.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
