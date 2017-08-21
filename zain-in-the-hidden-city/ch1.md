@@ -1,7 +1,9 @@
-Zain's father moved from the country to work at a factory for money.
+Ch1. Moving to the City
 
+Summary: Zain's father moved from the country to work at the power plant for money. They move in with his aunt. Zain is 10 years old. A power outage.
+--------------------------------
 
-Zain laid awake in his bed that night, hearing the clatter downstairs, the noises in the attic, the banging of the pipes in the walls. How could a kid sleep with such a racket? The upper west side apartment they moved to was not what his parents described to him at all.
+Zain laid awake in his bed, hearing the clatter downstairs, the noises in the attic, the banging of the pipes in the walls. How could a kid sleep with such a racket? The upper west side apartment they moved to was not what his parents described to him at all.
 
 "Glamorous~!!" his mother exclaimed.
 
@@ -27,7 +29,17 @@ Of course he asked hi parents to inspect his room,
 
 "The building may be old Zain but it's not haunted or filled with monsters." His dad smiled, happily but sternly, "I know it's a lot, since we just moved, but give this place a chance."
 
-Zain sighed a "yes father."
+Zain sighed a "Yes, father."
+
+
+----
+
+They moved away because Zain's Dad got a job in the powerplant near New York City. They moved in with their uncle in the upper west side so they could get Zain to a decent school. Even though Zain hated school, and much rather would have watched the birds and animals outside, chasing after them to see what kind they were, if they were any rarer than the others. 
+
+
+----
+
+The only thing he had from his grandmother, which was her father's ruler. It was an old metal ruler, a real old one, but it wasn't rusted because his grandmother took care of it so well.
 
 
 

@@ -1,14 +1,21 @@
+Ch3. Inside the Husk house
+
+Summary: Mr. Thander explains the situation, how he needs electricity, gives him some rare food.
+----------
+
 He looked up, there was furniture on the ceiling, cabinets on the walls, picture frames.
 
 "Who is this?" The man demanded, waving his hand in exageratted anger.
 
 The girl didn't seem afraid, she smiled and uttered "He's just visiting Dad. He's gonna help us."
 
-The brain gears ground and turned furiously in her father's head, "Joseline what did yo-" But just then there was a knock. Zain couldn't quite place where, but he thought it might be coming from the ceiling.
+The brain gears ground and turned furiously in her father's head, "Joseline you didn-" But just then there was a knock. Zain couldn't quite place where, but he thought it might be coming from the ceiling.
 
 "Dad!"
 
-"No time to Dad! Quick hide in the closet sir." Behind and above Zain a door opened, and the girl's father pulled two what appeared to be some cranks and pulleys on the walls. Her father yelled, "Mr. FGgdor is that you?" and suddenly, the room began to spin slowly. Zain, startled, fell backwards into the closet door, and before her father closed the door he peered in with a, "Don't say a word, it's bad for the silence." They locked it and could hear them walking on top of the door.
+"No time to Dad!"
+
+"Quick hide in the closet sir." Behind and above Zain a door opened, and the girl's father pulled two what appeared to be some cranks and pulleys on the walls. Her father yelled, "Mr. FGgdor is that you?" and suddenly, the room began to spin slowly. Zain, startled, fell backwards into the closet door, and before her father closed the door he peered in with a, "Don't say a word, it's bad for the silence." They locked it and could hear them walking on top of the door.
 
 The closet began to shift with the rest of the place. He was flat on his back when it finally stopped. He heard a latch unlock and a few things unbuckle,
 
@@ -59,7 +66,7 @@ Mr. Thander and Joceline pulled on a few handles from the floor. Up came a table
 
 Joseline was ignoring them both, feeling sulky and guilty.
 
-"We live in your walls MyboyZain. It is as normal as you waking up, falling asleep and eating breakfast. We are your neighbors, for better or wors-"
+"We live in your walls young Z. It is as normal as you waking up, falling asleep and eating breakfast. We are your neighbors, for better or wors-"
 
 "But definitely for better." Joceline chimed in.
 
@@ -69,7 +76,24 @@ Joseline was ignoring them both, feeling sulky and guilty.
 
 
 
-Mr. Thander looked at him blandly then smiled, "Myboy Zain, of course to save space. Space... Is of unimaginable value."
+
+
+----------
+
+"Well, we couldn't help but notice your Dad works at the power plant. And as per his working there, he gets his power, to an extent, for free."
+
+
+
+
+
+
+"We also know the side people, like us when we have them, value their neighbors. It's the power of being neighborly. Please, if you would, help your neighbors."
+
+They both smiled in unison, as if on cue, and looked long at him.
+
+ 
+
+"I understand it's a very heavy thing to ask. It's unfair that we are desperate I know. But desperate people do..." he leaned in closer, "desperate things."
 
 
 
@@ -77,7 +101,34 @@ Mr. Thander looked at him blandly then smiled, "Myboy Zain, of course to save sp
 
 
 
-They have moved they main source of their metal maybe from queens to staten island?, and plastic sucks.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+--------------
+
+
+
+They have moved the main source of their metal maybe from queens to staten island?, and plastic sucks.
 
 
 

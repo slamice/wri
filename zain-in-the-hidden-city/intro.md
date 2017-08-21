@@ -14,7 +14,13 @@ Villans from long ago act old timey
 
 ----
 
+We don't see the bad guy's face. In the end we discover who it is and he asks, "What? You didn't know it was me for the entire book?!"
 
+Bad guy scapegoat: a thief
+
+Mayor is the inventor's boss.
+
+----
 
 
 
@@ -37,7 +43,7 @@ As a result they became master plumbers and electricians.
 What's happening with them recently (maybe)?
 - The 250 year old agreement is expiring, so they may all be subject to mass deportation
 - Someone from this place wants to overthrow NYC (doesn't fit the theme of vs. class)
-- 
+- Mayor wants to steal all NYC's money
 
 
 Atmosphere is semi steam punk. Has electricity, also they have accents because mixed groups of people who haven't interacted with the outside world.

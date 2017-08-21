@@ -3,7 +3,11 @@ Ch11. Wedding + dock fight
 
 
 
+----------
 
+Marriages usually didn't happen, they leave little or at least a bit less room to be flakey.
+
+----------
 
 
 The autumn weather ruffled us as I walked there with her. The serenity of the situation was dying down but still trying to grope me in all the wrong places.

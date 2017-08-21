@@ -6,6 +6,7 @@ Hidden Cities
 
 
 
+Maybe bad guy whispering in the woods
 
 
 
@@ -13,6 +14,192 @@ Hidden Cities
 
 
 
+
+---------
+
+Zain and the hidden city
+
+
+
+"Are you wizards?!"
+
+
+
+"Wiztards? Is that a thing in the byside? I'm not aware of it actually."
+
+
+
+-----
+
+
+
+People are walking on the sides with a trolley or something in the middle.
+
+
+
+------
+
+
+
+Joceline's Dad's name:
+
+
+
+Sordniche Husk?
+
+Mr. Husk is fine
+
+
+
+He doesnt know latest names so names his daughter Jocerine instead?
+
+
+
+
+
+
+
+------
+
+
+
+Maybe dad works at power plant and gets his electricity for free, so Joceline's dad wants free electricity.
+
+
+
+-----
+
+
+
+Zain knows all about extinct birds and stuff. So he's surprised they eat extinct pigeons.
+
+
+
+
+
+
+
+
+
+----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+"This is in, stout you throw out ((melt down??))"
+
+
+
+-----
+
+
+
+
+
+The entire city rumbled and bustled. Many gears moved and doors slid by in quick succession as they moved about. Doors slid by his right and left and people popped out and walked immediately in front of him, or snuck behind him in a hurry. People walked on the ceilings above him, some with backpacks. Some had babies right side up in their backs with the carrier upside down. They moved swiftly, almost in eerie quiet. But it was impossible, due to the small space and narrowness, not to bump into a pipe, or hit a door, or kick a can.
+
+
+
+
+
+------
+
+
+
+Living in the bridge pillars
+
+
+
+Richer people have more space
+
+
+
+Worst insult: "a waste of space."
+
+
+
+-----
+
+
+
+I dont know ---> Aiunno
+
+
+
+Name: Budhnell
+
+Bushnell
+
+-------
+
+
+
+Bad guy name: Pompous Grandeur
+
+
+
+"The city is already practically bankrupt where do you think the money will come from?"
+
+
+
+"You're a brilliant man mr. Mayor. I think you'll find a way."
+
+
+
+----
+
+
+
+
+
+Main bad guy is trying to ransom new york with brown outs (eventually black outs) for money. Could reveal underground, exposing everyone and calling it a humanitarian crisis.
+
+
+
+----
+
+
+
+Communicate through mikes and shortwave radio.
+
+
+
+------
+
+
+
+"Of course it's not enough! Why would it ever be enough?"
+
+
+
+"Because you get stuff and then you have it?" Zain asked.
+
+
+
+"But then it chips, or it's old and you want another one."
+
+
+
+
+
+
+
+
+
+
+
+----------
 
 
 

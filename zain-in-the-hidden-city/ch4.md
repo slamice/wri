@@ -1,1 +1,21 @@
-Little girl with goggles and yellow sweater appears to Zain, asking his to close his sink tighter, then disappears suddenly around a corner. Zain can't find any trace of her.
+Ch4. 
+
+Summary: Mr. Husk explains the situation, how he needs electricity in exchange for showing him the city, gives him some rare food.
+----------
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Mr. Thander looked at him blandly then smiled, "Myboy Zain, of course to save space. Space... Is of unimaginable value."
