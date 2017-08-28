@@ -104,7 +104,7 @@ chapter 2: Hipster Setting. Set up flakiness of friends. Set up Band subplot. In
 
 chapter 3: Home Life. Introduce basic home situation. Missing mother, expand on visa issue (research?). Explain confusion over longing for home and yet not having one much.
 
-chapter 4: Going to Jack's house. Introduce Dock, Andy as characters. Hint at Renee enjoying being a victim so she can come out on top.
+chapter 4: Going to Jack's house. Introduce Prof, Andy as characters. Hint at Renee enjoying being a victim so she can come out on top.
 
 chapter 5: 
 
@@ -115,7 +115,7 @@ chapter 7:
 chapter 8:
 chapter 9:
 
-chapter 10: Dock punching Om over issue he cant get over. Renee agreeing with Dock to put narrator down.
+chapter 10: Prof punching Om over issue he cant get over. Renee agreeing with Prof to put narrator down.
 
 chapter 11:
 

@@ -28,6 +28,25 @@ visa throughout
 
 14, Phone call from brother
 
+Themes:
+- Changing mind from indifference and inaction to action
+- Loneliness
+- If you want something yuo need to be an active part of it
+- Talk is cheap
 
 Tour: A thing he sets to do but puts no effort towards, sabotaging himself and making it unacheivable.
+
 Visa: A thing he has no control over but decides to live under.
+
+meditating: useless without purpose
+
+family: enforce some sort of values
+
+All people except family: re-enforce same lie to eachother
+
+Prof:
+
+Jack and Ryan: Echoes of indifference
+
+Gabby:
+

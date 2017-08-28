@@ -62,7 +62,7 @@ There was a weird silence between us while the room crunched papers of conversat
 
 And like that soon we faded awkwardly into a crowd of awkwards.
 
-I noticed Gaby, Dock's ex was in the crowd.
+I noticed Gaby, Prof's ex was in the crowd.
 
 "Hi Gaby" I said. Her tan skin complemented her polka dotted apron skirt. The grey white collared shirt accented the two ear piercings per ear. The contract of white socks with black shoes flattered her. Her spanish short hair was in a bob, and long eye lashes held tightly to her real ones.
 
@@ -76,13 +76,13 @@ I thought about topics, any really because we shared almost none. Then I remembe
 
 "Yea isn't that? Who told you that?" she said it with a huge smiling smug mug.
 
-"Hmm, Dock actually. What's he like?"
+"Hmm, Prof actually. What's he like?"
 
 "He's unreal, honestly. I mean now he's pretty old, like sixty or so, but he still has a thick German accent. He smoked up a lot when we were there. I don't have a car either so I had to pay for his taxis, since he was getting older he couldnt walk much anywhere."
 
 "That's what I would have expected though, but that's awesome."
 
-Dock came up inevitably. "You see Dock a lot?" Gaby asked. 
+Prof came up inevitably. "You see Prof a lot?" Gaby asked. 
 
 "Honestly not really recently. He's working a lot and we don't really have much in common anymore."
 
@@ -216,7 +216,7 @@ That night I laid dumb in my bed waiting. And waiting. ((Not for Renee.))
 
 Another show, Mexico City happens here. Om's infatuation with bands happens here. He gets a call from his family in the middle again. This chapter shows the nature of a live show, how slightly awkward and banal it is. Om has seen these bands dozens of times. He discusses circuit bending, how a famous musician stayed at someone's house. Boombastic plays.
 
-Meets up with Dock in this chapter.
+Meets up with Prof in this chapter.
 
 Talk at concert about circuit bending, blabbing to friends about how big of an annoyance talking about it with someone was.
 

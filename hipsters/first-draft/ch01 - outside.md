@@ -28,13 +28,15 @@ Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blank
 
 "But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became more pronounced.
 
-"Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan kept it and took the cigarette.
+"Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan took it and the cigarette.
 
 My next guess is Matt never shows up. He was usually late and occasionally we'd get pissed at him but we were usually late too. High expectations abound, no one was happy. At least we had cigarettes I don't smoke.
 
 We stood around, scratchy and unnerved. We looked like a shitty polaroid. I started to drift from Jack and Ryan there. These two were innocent compared to the hidden gems inside. I invited them out but honestly I didn't know who depressed me more.
 
 Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marijuana for eternity. As for Jack, various college degrees tried to swoop down on him, but he was great at avoiding them. Eventually he gravitated towards a bachelors in philosophy and did nothing with it. He sported shoulder length hair, was often seen chittering occasionally wore no shoes. Jack reigned in his own world of canvases featuring surreal modern nude art.
+
+A gaggle of girls approached us from a distant block. They wore pumps and various modern memorobilia to critical acclaim of eachother.
 
 We were there for another 20 minutes. They went in for a bit to check it out, but I could tell the two of them were getting finicky. Jack finished his cigarette in a few minutes and, "but seriously man I'm gonna bail. I'm really sorry, but I've got this thing with Sarah tonight and it's like you know me I'm sorry." His sentence bowed, shuffled and shrugged.
 

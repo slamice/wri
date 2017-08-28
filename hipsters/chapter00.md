@@ -25,7 +25,7 @@ Maybe the events all happen in one night, with frequent flashbacks.
 - Job
 - Father
 6. Trying to figure out his 'self' in relationship to others but doesn't matter much in the end.
-7. Dock strikes him. Tour is cancelled. Letter arrives.
+7. Prof strikes him. Tour is cancelled. Letter arrives.
 8. Decides to give it a shot, flip the script. Breaks up with Renee after wedding. But possibly is too late. Father leaves. Mother becomes gravely ill.
 9. Maybe he rips up the letter and leaves. Because he accomplished.
 

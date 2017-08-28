@@ -440,7 +440,6 @@ My father's ear was glued to the phone. During an argument, during the seven day
 
 
 
-The weather sucked. On what exactly wasn't important. There's a whole hidden season people choose to ignore. Its' heavy with musk and wet and dreary. Routines become slogs and everyone feels it. My energy drained, my ambitions shot then. Often around times that I wondered if there was a tear in me. Usually the pain of it disappeared and I could feel like a normal person. around the is season though it howled, mostly in the mornings. It stung and I'd feel the gash all around me, bleeding into the world.
 
 
 

@@ -1,4 +1,4 @@
-Ch11. Wedding + dock fight
+Ch11. Wedding + Prof fight
 
 
 
@@ -79,13 +79,13 @@ We both knew the answer but were completely ignorant about it.?
 
 
 
-Renee and I strolled angrily towards our apartment in silence. As we crossed the large parking lot though Renee changed her expression, Dock was coming back towards us. "Hi Dock, how's it going?" He smiled and waved back, but then stopped suddenly in front of us. A jerky jerk.
+Renee and I strolled angrily towards our apartment in silence. As we crossed the large parking lot though Renee changed her expression, Prof was coming back towards us. "Hi Prof, how's it going?" He smiled and waved back, but then stopped suddenly in front of us. A jerky jerk.
 
-Dock suddenly turned withered, depleted, a bit drunk and angry. He decomposed in front of us rapidly like a drying leaf in a vaccuum. "I talked to Gabby, do you remember my ex-girlfriend?" he yelled at the top of his lungs, "and FOUR years ago, FOUR YEARS AGO, you took what was mine." His body flailed and shook. Dock pointed his finger hard at me. "She asked you for a letter, a fucking letter. They sent it to ME, do you fucking remember?!"
+Prof suddenly turned withered, depleted, a bit drunk and angry. He decomposed in front of us rapidly like a drying leaf in a vaccuum. "I talked to Gabby, do you remember my ex-girlfriend?" he yelled at the top of his lungs, "and FOUR years ago, FOUR YEARS AGO, you took what was mine." His body flailed and shook. Prof pointed his finger hard at me. "She asked you for a letter, a fucking letter. They sent it to ME, do you fucking remember?!"
 
-Renee's eyes were wide open and the pair were both thoroughly confused. I barely remembered Gaby. Girly, thick accented, lost look in her eyes. Dock woo'ed her by leaving a note for her in an internet cafe, "You make me want to be better one day, I could be so awesome with you." She wasn't thoroughly disgusted and they began dating off and on.
+Renee's eyes were wide open and the pair were both thoroughly confused. I barely remembered Gaby. Girly, thick accented, lost look in her eyes. Prof woo'ed her by leaving a note for her in an internet cafe, "You make me want to be better one day, I could be so awesome with you." She wasn't thoroughly disgusted and they began dating off and on.
 
-I tried to think back, four years ago. Visiting Dock's house at any time was very uneventful. Dock used to live in a house off campus with a few randoms. Equipped with two floors and a basement, it felt massive. He remembered the kitchen. Fruit flies swam endlessly in circles over the sink, milk jugs in the fridge with just a bit of rotting milk skimming the bottom. One roommate had a neglected pug they were always furious at. Because it shat on their beds whenever it could becasue they rarely walked it.
+I tried to think back, four years ago. Visiting Prof's house at any time was very uneventful. Prof used to live in a house off campus with a few randoms. Equipped with two floors and a basement, it felt massive. He remembered the kitchen. Fruit flies swam endlessly in circles over the sink, milk jugs in the fridge with just a bit of rotting milk skimming the bottom. One roommate had a neglected pug they were always furious at. Because it shat on their beds whenever it could becasue they rarely walked it.
 
 I thought for a moment, "No, I don't th--"
 
@@ -95,25 +95,25 @@ I thought for a moment, "No, I don't th--"
 
 "THIS IS FUCKING IMPORTANT ASSHOLE, You fucking took that letter from ME, from MY ROOM. YOU INVADED MY PRIVACY, YOU FUCK."
 
-"Dock calm down!" Renee yelled, now half concerned half laughing, queerly intent on what looked like the beginning of a fight. A vein or two appeared on Dock's neck and/or forehead or whatever.
+"Prof calm down!" Renee yelled, now half concerned half laughing, queerly intent on what looked like the beginning of a fight. A vein or two appeared on Prof's neck and/or forehead or whatever.
 
 "Wait, what was this for? What is this letter?"
 
-"It was her visa so she could stay in the country." Dock hissed.
+"It was her visa so she could stay in the country." Prof hissed.
 
 I tried really hard to remember what I did, and suddenly manifested in my mind an image of grabbing something from the top of a pile of papers. I remembered the request now from Gaby. I remembered I found it odd because she never asked anything of me. The only thing that bound us together was our flakey friends at the time.
 
-"Dock, oh my God I'm sorry, I didn't even think about it, I'm so sorry. But she needed that to stay in the country, no? Were you even dating her th-"
+"Prof, oh my God I'm sorry, I didn't even think about it, I'm so sorry. But she needed that to stay in the country, no? Were you even dating her th-"
 
-"You violated my privacy," Dock steamed, very pale. "You dented my blood. I was going to use that letter to confront her. But you fucked that up. You fucking asshole, I will NEVER forgive you. You CROSSED ME." And Dock charged at me, throwing a punch in my stomach. It wasn't hard, but the shock was. I felt violated somehow. Dock walked right through me and didn't look back.
+"You violated my privacy," Prof steamed, very pale. "You dented my blood. I was going to use that letter to confront her. But you fucked that up. You fucking asshole, I will NEVER forgive you. You CROSSED ME." And Prof charged at me, throwing a punch in my stomach. It wasn't hard, but the shock was. I felt violated somehow. Prof walked right through me and didn't look back.
 
-"What the hell Dock?!" Renee shrieked, but Dock kept going. I took a step back and tried to understand if I was hurt. At that moment my temper shot up like Renee's ex, and I bellow a scream. "You idiot?! You think you got some kind of revenge? Over some kind of stupid plan you- FOUR YEARS AGO?! You moron! I apologized and you still hit me!"
+"What the hell Dock?!" Renee shrieked, but Prof kept going. I took a step back and tried to understand if I was hurt. At that moment my temper shot up like Renee's ex, and I bellow a scream. "You idiot?! You think you got some kind of revenge? Over some kind of stupid plan you- FOUR YEARS AGO?! You moron! I apologized and you still hit me!"
 
-But dock marched on, standing up taller now, shoulders straight. Dock slowly faded, saying nothing.
+But Prof marched on, standing up taller now, shoulders straight. Prof slowly faded, saying nothing.
 
 "Do you feel good now?! You feel you won something? You coward! Come back and fight this stupid fight like a real man you idiot! ANGUS!"
 
-Renee told me to shut up. Dock turned a corner and escaped from us. Renee whispered, "You know, you deserve that."
+Renee told me to shut up. Prof turned a corner and escaped from us. Renee whispered, "You know, you deserve that."
 
 A second shock overcame me, "What?!" I shot her a hard look, but it couldn't penetrate anything.
 

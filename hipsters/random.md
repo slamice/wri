@@ -71,7 +71,7 @@ Band - Self indulgent
 Father - Selfish 
 Adrian - Doesn't like him intruding on scene, wants to be master of her domain, a frenemy. Fine to be friends with her.
 Renee - Selfish with her own demands
-Dock and Andrew - Jealous and takes it out on him phsycologically
+Prof and Andrew - Jealous and takes it out on him phsycologically
 Co-workers - Think lowly of him because he's not one of them.
 Society - Pressures from society to do work
 
@@ -115,7 +115,7 @@ Point is to show the misguided life of hipsters
 -- Drug house
 -- Renee's friends' house
 -- Concert
--- Dock's anger
+-- Prof's anger
 
 Om is a hipster but doesn't want to be
 -- Hangs out with hipsters
