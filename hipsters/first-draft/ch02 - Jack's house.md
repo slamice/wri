@@ -1,94 +1,103 @@
-Ch2. This sets the scene for who his coworkers are, who his gf is, who he is. The cat is a siren. We learn he is tired of his office life, working like a broken machine.
+Ch2. 
 
 
 
 
-My body fought me and woke up. Ten, twenty or thirty minutes more of sleep didn't seem to matter to it anymore. It humiliated me but I whined back. I didn't want to go to work. I didn't want to work. Was I just bad at it or did I hate my job? I wasn't sure.
+Renee and I were walking back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we haven't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
 
-There were no curtains on my windows yet, for months, but I somehow slept late into a late morning with the sun pawing at my face. That day I woke up still in a bizarre dream while Renee dozed next to me in a really thick sleep deep in a gutter. The bed springs squirmed, and as I got up slowly, they bit back audibly. I slipped off the bed, grabbing my jeans from the floor and a shirt from the rack. Renee's cat Chibi laid on a pile of our clothes looking up at me, tired and bloated. It watched me wander around the room. With its' eyes it asked me, "why are you awake, that's a pitiful thing to be."
+"We should at least stop by to visit them."
 
-Anything eaten too early in the morning I gagged on. Apples, oranges, toast. The only thing that stayed down were latte's. 
+"I mean maybe Jack but that's it. Just _avoid_ Andrew. Why am I supposed to see him?"
 
-The sun poked me and the morning met my gaze. It glared a mean hello. The day was bright and cheery and yet profoundly and beautifully mundane. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelted in a rage. My button up was too big for me, like someone threw a blanket on a chair and it just sat there. I wore it anyway.
+"Because he's still my friend-" she said, stammering.
 
-Everyday I shaved and tapped my razor handle against my hand so it would vomit out the hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it, tiny hair spraying against the sink so early. "No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
+"He used to beat you." I said sharply, "I just don't understand why you'd want anything to do with him."
 
-The room defined askew. The bag of my socks were under random bits of clothes and books. It was pretty late but the only way to find anything was to start cleaning. Around laid trash bags of clothes and boxes unopened, half opened, opened for business, closed, etc and etc. A thin coat of stuff covered the floor and I tip toed over it. Our apartment was above a shifty limousine dispatch, neighboring a recycling office.
+"Yea but that's old! That was ages ago. I mean he used to get really mad but he's getting in a better place. He's moving to a BETTER PLACE in his life. Can't you see that?"
 
-After shifting the couch I found a pair of socks. Renee moaned in her sleep softly but the wake of it was loud enough. I still heard it as I shut the door quietly behind me.
+We walked underneath their window and before another comment Renee yelled up for Andrew. From the second floor Jack's sleepy face poked out, and sleepier voice yelled down "Yeah he's here. Come up!". Jack's girlfriend, a squirrelly girl named Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
 
-I don't need to but will mention the owners' of the place were dodgy themselves. Double dodgy. Two cousins from rich Indian families bought this building and then started the limo dispatch on the first floor a century back. One never came to the office once office. His pictures were all over it though with the latest limousine models. The other, simply nicknamed Raf, was shackled under house arrest for arranging prostitute rides for political clients amonth into our lease. I found that out in a newspaper one day, on the coffee table in my office. The print read Raf talked behind high caliber clients' backs. He called the prime minister 'little dictator' while dispatching a driver and an unclassy broad. Oh and he was our landlord.
+Andy's apartment was a desolate. It was a single huge room he lived in with Jack and Prof. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low. Anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight. It was a bit hard to imagine the place designed for anything but a mess. Littered on the floor were Prof's coffee mugs and cappuccino cups. Jack's paints were next to them with beer bottles, cigarette trays complete with ash, nails and chipped wood. Signs of Andrew were everywhere but his main manifest was a pile of philosophy and spiritual books. The lighting, as with all of the lighting within the industrial area we lived in, was a depressing florescent.
 
-We arranged a deal with Raf that we'd pay to live in his illegally zoned apartment for nothing more than rent and to shut up.
+There was barely a kitchen thrown off to the side. A tossed lopsided fridge in a corner. A cutting board sat on the counter with a cleaver sticking straight up out of it. "For cutting cheese," Sarah whispered when she caught me glimpse at it. The inhabitants loafed around unapologetically, eyes a tad hazy.
 
-Outside, our neighboring recycling station stood tall and busy. People were fast at work, trucks driving in and out recycled whatnots, laughing loudly at each other just because. The bottles, cans, tins, broken glass, milk jugs were sorted, tossed and recombined with each other. I wasn't clear exactly what they did with the recycling besides pack it in clear plastic bags. You could plainly see their wealth of trash. One day it'll be useful, but for now it's just for show.
+There was art. Jack's work lined the walls and floor underneath. Lots of paintings. A desert with a naked woman standing by a cactus, a mesh of naked women spewing out of a drain. A pair of boobs floating in the sky. Different chairs were painted various hues, one had a tv glued to its seat with a portrait of a seagull. These things came to Jack casually, painted with pastels and cigarette smoke. I hadn't seen Jack's latest art in a while. 
 
-Past the few warehouses, the territorial crows buzzed around one corner, some above my head. One in particular swooped down on me daily, nearly scathing my hair. So territorial. I ignored it completely though, it really wasn't worth it. The city was already awake and in full motion. Cars went places. The coffee shop lines were long and the trains were packed.
+"Which one do you like?" Jack rubbed his nose.
 
-The sea of people ebbed and flowed to the train and I swam with them. I wondered about these strangers, and how strange they were. I wondered for a few moments where she went home, who he wanted to be, who are these people's parents. Where do they think they're going and where are they actually going.
+"Where do your ideas come from?" I asked.
 
-On the train each person tried to sneak a silent look at the other. A cough gurgled up from somewhere buried in the crowd. Off the train, I hobbled up the the station stairs.
+"Sometimes in my sleep, sometimes they creep up on me. Sometimes they come to me like a locomotive." proud of remembering something he considered archaic to use.
 
-"Michael good morning!" Michael just came out of the building and placed himself in a nook. He towered over the street, passing walkers and me.
+"I like this one", his girlfriend Sarah yawned out a whine. She pointed to a painting with a woman wearing no pants, in fact nothing but a tiny t-shirt that said "NO cooking". She rode a horse into space.
 
-"Isn't it too early to smoke?"
+Jack also covered the walls in masses of text and melting heads. Quotes from Burroughs and Ginsberg were scribbled, smeared and softened. Some of the text was attached to torsos and huge brains that looked suspended in midair. It's as if someone sipped some ink and spat on the walls repeatedly. Pollack chewing, drooling tobacco in disgust, rubbing his face in it. "Irregular atmosphere, timid and reluctant" was written in one corner. "Art space for drunks" was written in another.
 
-"Morning Om. It's not too early. -You're - not too early," he smiled.
+Behind us Prof's shadow danced loudly against one of the curtains as he rummaged through a box of tools.
 
-"Yea well I wasn't really looking forward to today." I said casually, trying to mimic him, "This project never ends Michael."
+Andrew sat on the floor, rolling a joint on a crate. He licked his fingers and pressed them against the thin paper. His sockets were deep in his face, naturally born that way. He always looked either sad, indifferent or angry. Renee explained previously that he probably always felt like he was missing something and never found it. That something was probably his unborn twin, dead in the womb. He could never forget the memories he never had with his brother. His parents were worried he'd go through the rest of his life with regret. It certainly looked like they were winning their bet.
 
-"You've got to bear with it. We could say we fixed a whole state's license system by the end of this. It's a long haul."
+"So what are you doing these days Andy?" Renee asked him cheerfully.
 
-People rushed across the intersection, most in suits and black skirts. The sky cleared a bit and shed some light on the dank dirty sidewalk.
+Andrew rolled the joint between his fingers, responding casually without looking up at her, "I'm working up at Cuppa Joe, also working on the film script with Ethan and Marley. We're sharing some of the dialogue and there's a big funeral scene with a eulogy. That's all I can say really."
 
-I sputtered out, "But, today's gonna be hectic and quiet. Like a goldfish dying. I don't really see an end to any of this."
+He was obviously very uncomfortable. The marijuana smoke trailed up and swirled above his head in a halo. He took a sip and then handed it over to Jack. Sarah turned it down, but watched attentively.
 
-"Like a goldfish dying?"
+"That's exciting!" Renee said with a huge grin, overemphatically "I'm super happy for you! A movie, it really sounds like you're going places Andy!"
 
-"I don't know, nothing. It's a long story."
+"Jack's in it too actually. He got a part as the protagonist's friends." Jack nodded in agreement. Sarah stared at Jack then off into space.
 
-"How long?" He coughed out.
+"Oh really?!" Renee squealed. "I didn't know they'd invite so many people on this, they were pretty secretive about it."
 
-"Well, Actually..." I paused. "it's a short or long story depending on how you tell it."
+I wondered about what the movie was about. I didn't know much about Ethan and Marley but I met them a few times when they picked Renee up. She knew them through practiced ayahuasca once a month in a forest. They puked the whole night together, calling it purging. Marley painted pictures of flowers and giggled every other word. Ethan was involved in two huge children's productions that made them well off for a while. They both wrote scripts for hollywood that couldn't make it past the noses of producers. But this time it was their movie, probably about something holistic and etherial like Super Yoga.
 
-He chuckled a bit. He waved me in a see you later. The slight wet heat mugged me one last time before the air conditioner gushed in my face.
+Jack muttered in, "Yea they had auditions and yeeeeaaaa I can do that." but then he turned his attention to me, "Long time no see, so how's it going?" he patted me on the back, "How've you been, are you still working at the, what... The software thing? place?"
 
-It was sort of a race. I could never wake up early enough to get to work on time. The walls of the office were painted off hue primary colors. Shy bold statements. As I laid on my desk, the usual suspects were already there programming. The lazy hellos and good mornings were drilled out slowly like a list.
+"Yea I'm still there."
 
- Their clothes were a bit dapper in a casual way. Lucius wore a tight button up with a wrinkled collar. Tyler distinctively cared less about his ratty dress shirt than his rattier combed hair. The only chatter in every department was the computer keyboards whispering their damnedest. Every so often a private phone call came to life in a room buried in a corner somewhere.
+"Well do you like it?" Sarah feigned interest.
 
-I stared a bit at my coworkers but not long enough to not draw attention to myself. People engaged their whole hearts, a bit at a time, monotonously trying to make their work come alive. They pushed pixel after pixel and then a few more, some faster than others. I could see it in their glazed eyes. Everyday we talked over problems. Made micro adjustments. We took ten of them and tore them up all at once. Everyone was terribly excited over these changes. We all thought, these problems existed to be solved. Driver license systems needed to be overhauled, redone. Pictures needed cropping. Reports needed to be created. Claims needed to be claimed. How would we graph it, how could we get more information out of them?
+"Yea it's alright, I don't know. I don't really like everything about my work."
 
-Mik walked in the room, "Well good morning!" it came out like a question, his dutch accent thick and pronounced. I nodded and smiled back at him a good morning. Mik was a product manager committed to creating the most relaxed environment possible. The day proceeded and time was butchered into planning, lunch and typing. Oh, and clicking. We compiled lists of items and descriptions of them. We drew what they could look like out and threw most of them away.
+"But is it FUN?" Jack looked at me. I was a bit surprised at how serious his tone was suddenly.
 
-Lunch came and left. Four in the afternoon clocked in and left shortly after. I couldn't tell but felt it, felt how time was lucky like that. Literally leaving any time it wanted.
+"Yea it's ok, I like programming I guess." I tried not to look at Andy. His presence made me uncomfortable, in fact the whole situation did.
 
-Midday our business analyst Ryan sifted through photos. "There is no difference," Ryan interrupted no one, "from hipsters and the homeless. It's really really hard to tell the difference." Tom chuckled and relaxed into a smile.
+"I guess you can make a lot of good money but it's pretty menial work. I talked to Matt, he's not too into it." and then Jack went on and on.
 
-Ryan peered over at me. "Do you know the difference?"
+Jack must have felt the weird tension? How often did this situation occur, lovers of the past and present fight it out with passive aggressive blows. Probably fairly often but still. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone even though the people in it were dying. Andy knew I was Renee's latest best friend supposably. We hadn't talked since. Now Andy was sullen, apathetic at first glance, nothing unusual. But I'm sure it *dug* deep into him.
 
-"I think homeless people have more fashion sense I guess?" Tom muttered smiling.
+In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leaf through the records to feel busy.
 
-But I intentionally ignored them and zoned out. I zoned out a few times daily. To what I can't remember. To random things. It's kind of the definition as well, designed to forget.
+Renee was talking with Andy excitedly again about nothing in particular, in this case her mother.
 
-You have to understand. I tried to build things so they could speak to me. The screen should have screamed something intelligible instead of staring back at me, blandly holding up the garbage boxes and text I drew on it. Sometimes deep down I want to just let things be. There are enough natural rules already.
+"She's still there in her house. Do you remember when you snuck in to wait for me?"
 
-I was in the hallway, between snacks and lack of snacks, when Mik approached me. "Hey Man!" he wore cowboy boots that day, in defiance to the more fashionable of the managers sporting their dusty three peice suits. His glasses were thin but still  made his nose look obtruse like it was poking you and the conversation you had with him. "Haven't talked to you in a while."
+"Yea, I remember her look."
 
-"Nothing really to talk about."
+"I never heard this. So what happened he broke in?" Jack intevened. Then I thought I saw Renee give Andy a potential flirt, maybe not living up to its fullest but it was definitely made available. I sat there questioning its authenticity when she answered.
 
-"You sure?" He asked, intentionally changing his face to puzzled, not holding back that it was a fake natural look.
+"He climbed in through the window because he thought I was asleep but I was out then (doing what?). So he waited in the bathtub because he was ridiculous, not expecting my Mom to come back that weekend and walk through the door. I think she was at some kind of 'start your business' seminar."
 
-"Yea I'm pretty sure." I wasn't sure what I was supposed to feign. Regret, fatigue, accomplishment maybe. He still stood there though, expecting me to excuse as it grew more awkward.
+"She didn't like it." Andy's voice crept back in on top of Renee's.
 
-"You'll let me know right? Tell me when you feel comfortable. If it's something or nothing. Did you get your visa?"
+"You were crazy for doing that! You were crazy. She was pretty crazy too. I'm sure I told I used to wait for her for hours after school for her to pick me up. They worried about me then. She was always running errands."
 
-"Not yet, no."
 
-"Let me know when you get it. There's details and all that to resolve. We don't you to need us to continue to support you forever." And he actually winked.
 
-"Of course not I wouldn't want th-"
 
-"Unless you wanted to continue to work here." He paused but not long enough for it to be a legitimate, and then laughed at his remark and sidled off as just kidding as he headed to his office, one of the few of us who had an office.
+How he could use a new type of herbal medication. How she's woken up sick with a rash on her face down to her arm, bed struck and unable to go work. Prof brooded in the shadows not saying anything, and I could see a silhouette putting on some black blurry headphones.
 
-I dug into work almost as seriously as I dug into my chips. It didn't behave and needed wrangling.
+I didn't understand the meaning and didn't have a good idea of why I was there. What was floating in the atmosphere then? Sarcasm, grief, irony? The art slunked up against the walls undeterred by its inhabitants. I felt I was pretty small here. Even with the art, the flex-rooms, the smoke, dust, dirt and the people, the room still felt so empty. If you winked you weren't sure they were there. Like nothing was sure to exist in this space.
+
+After about twenty minutes of this, I signaled to Renee I was leaving. She waved that she'd catch up with me in a few minutes, but got up anyway. I took a quick last look at Andy. He noticed, got up in fact, and in front of us all he looked me in the eye and said, "I forgive you" smiling, and shook my hand. His sockets were sunk like battleships. I shook back blandly and headed towards the stairs, ignoring the glances.
+
+"You can come back and visit." Jack sleepily waved. The rest of the goodbyes procrastinated until we were out the door.
+
+"Andy's changed! He's got a job and his life is getting stable. He's doing better," Renee was excited, almost blushing.
+
+"Why do you care about someone who beat you?"
+
+"He's a part of my life. You have to accept that. I've known him for so long."
+
+And she tried to bring me back, "Hey! Come on! Don't worry of course I still love you. I'm with _you_ now! Come on!" I made a shut up smile. We walked back slowly in silence to the limo office, the only sound were Renee's inner thighs rubbing against each other wearing down her jeans.

@@ -51,3 +51,6 @@ Parties like these were brutally exhausting without something substantial to dul
 So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked cars. A couple, if they were that legitimately, startled me with their discreet argument as I passed by a random car.
 
 I was sketched out, my hands were in my pockets, my right gripping my keys and flipping through them.
+
+----
+

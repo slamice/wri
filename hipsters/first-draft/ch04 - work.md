@@ -41,7 +41,9 @@ The sea of people ebbed and flowed to the train and I swam with them. I wondered
 
 On the train each person tried to sneak a silent look at the other. A cough gurgled up from somewhere buried in the crowd. Off the train, I hobbled up the the station stairs.
 
-"Michael good morning!" Michael just came out of the building and placed himself in a nook. He towered over the street, passing walkers and me.
+"Michael good morning!" Michael just came out of the building and placed himself in a nook. He towered over the street, passing walkers and me. He towered over me. He was the only I could confide in, despite the age gap.
+
+Michael was an olympic gold medalist in a team of 8 in some 15 years prior. This didn't sound like anything to me, a non-title, until someone looked at it differently and said he was the best in the world at something. Michael won and was a winner. He brought in his trophy once, showed us slow motion videos of him making the final strides to the finish line. A perfect combination of brute and strategy. But then it depressed me, how he was now 15 years later coding software. As if that wasn't enough, he had to win at that too. It's still depressing me.
 
 "Isn't it too early to smoke?"
 
@@ -53,7 +55,7 @@ On the train each person tried to sneak a silent look at the other. A cough gurg
 
 People rushed across the intersection, most in suits and black skirts. The sky cleared a bit and shed some light on the dank dirty sidewalk.
 
-I sputtered out, "But, today's gonna be hectic and quiet. Like a goldfish dying. I don't really see an end to any of this."
+I sputtered out, "But, today's gonna be hectic and quiet. Like a goldfish dying. Well, ok, I _optimistically_ don't really see an end to any of this."
 
 "Like a goldfish dying?"
 
@@ -63,7 +65,8 @@ I sputtered out, "But, today's gonna be hectic and quiet. Like a goldfish dying.
 
 "Well, Actually..." I paused. "it's a short or long story depending on how you tell it."
 
-He chuckled a bit. He waved me in a see you later. The slight wet heat mugged me one last time before the air conditioner gushed in my face.
+He chuckled a bit. I wasn't sure why ((comment didn't make sense)) but I did too. He waved me in a see you later. The slight wet heat mugged me one last time before the air conditioner gushed in my face.
+
 
 It was sort of a race. I could never wake up early enough to get to work on time. The walls of the office were painted off hue primary colors. Shy bold statements. As I laid on my desk, the usual suspects were already there programming. The lazy hellos and good mornings were drilled out slowly like a list.
 

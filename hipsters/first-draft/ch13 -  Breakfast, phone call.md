@@ -36,20 +36,25 @@ Selina turned to me and we kept our voices low.
 
 "Absolutely anyone, I agree. High fives and all. She's gone. A waste of time flushed. I wasted so much time Selina. Just in general. I can't wait for this tour. Tell me we settled everything."
 
-Selina looked a bit off and worried, but still smiling. "Honeslty, they haven't gotten back to me. I mean initially it was good, but I haven't heard from their manager in over a week. Maybe if we talk to the band. I wouldn't get our hopes up Om. Our propisition was flimsy. We can continue to give it a shot though." He mouth twisted, waiting for my reaction. "I'm super happy for you. Also this means we'll see you more!"
+Selina looked a bit off and worried, but still smiling. "Honeslty, they haven't gotten back to me. I mean initially it was good, but I haven't heard from their manager in over a week. Maybe if we talk to the band. I wouldn't get our hopes up Om. Our propisition was flimsy. We can continue to give it a shot though." Her mouth twisted, waiting for my reaction. "I'm super happy for you. Also this means we'll see you more!"
 
-Who the we was I'll never know. At this point I felt like a painting in Selina's friends lives. A painting of brick colors, matching the wall it hangs on.
+Who the we was I'll never know. At this point I felt like a painting in Selina's friends lives. A painting of brick colors matching the wall it hung on.
 
-
-
-
+=========
 
 
 
 
 
 
-My phone hummed my brother was calling me. And I sluggishly floundered to pick it up.
+
+
+
+
+
+
+
+My phone hummed my brother was calling me. It seemed uneventful at the time. And I sluggishly floundered to pick it up.
 
 "Hey. I said."
 
@@ -117,22 +122,84 @@ pause.
 
 "I'll give you a call later. We'll figure it out. You think this is for real?"
 
-"Even if it isn't," his voice shook a tiny bit "what are we going to do. Have a good night"
+"Even if it isn't," his voice shook a tiny bit "what are we going to do. Have a good night."
 
 "Impossible. Goodnight." My voice dampened.
 
 And we hung up.
 
+===================
 
----------
+I remembered the letter then, stuck to the back of my jean's pocket. It felt wet with sweat. 
 
-"What? I'm a feminist. He's completely not allowed to do that."
 
-I waved an exhaustive "Ok, later." Selina said nothing as I walked down the street. It had a slight hill to it and my feet stuttered down at a bit of a speed.
+
+
+
+
+I'm sorry mom. Sometimes I forget myself.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 =============
 
-I'm so tired after doing nothing.
+Not sure what you expect. You're probably exhausted(( I'm sure)). I can't imagine, honestly. Maybe it's selfish, I thought about it. But I'm so tired. Maybe not as much but, I'm tired. I'm so tired.
+
+=============
+
+I told you because I'm not sure you will wake up. Not for me. Not for now.
+
+------------
+
+I don't know what's scarier If you stay asleep after hearing all of this, or if you wake up?
+
+------------
+
+I wish I could say that I see the rain coming down hard outside now. That the cold air looks like biting but it just looks like teeth shattering from in here, starving.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -140,10 +207,4 @@ I'm so tired after doing nothing.
 
 
 
-Nothing was keeping me awake, the most frustrating of all the things to. There was no way I could wait it out. So, all I needed was to find just some pants, yesterday's, before I made my way out the door. It didn't even seem like the odd politico was veneering that off a drunken night. A quick look in and the dispatcher was there, only half awake leafing through fashion propoganda.
 
-I had two hours before the sun saddled itself up in the sky. Ten minutes in, the stores looked compoletely different closed. While at their peak of typical consumer celebration in the daytime. Each of the shut up gates were unique, all closed for business. I waifed along the street, dreary, and parked myself on the sidewalk. I sat and tried to ignore my thoughts. But I could hear the stillness of the city, and I wanted to damn smash it.
-
-There were no cigarette butts left, most likely because a desperation or routine hooked the homeless person to pluck them out of the ground. I only knew they were there before because I could see their imprints in the concrete. I reached out and tried to chip away at the side of one with my fingernail. The hole gave ini easier than it let on, bits of dust gathered at the bottom. I asked myself if this was seriously necessary.
-
-So I got up and decided to run between the pages. My body felt slightly limp but I kept going because I was already well past midsentence. A few of the failed planned future events balloowed and hollered at me, knowing I was spoiling their fun as their ink ran out of the book. I pused a few characters aside. They were in my damn way, so many of them. A few tumbled into the sharp corners, but most of them were fairly agile and just shook their fists at me as I passed.

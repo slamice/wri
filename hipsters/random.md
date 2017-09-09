@@ -6,14 +6,14 @@ How Om self sabotages:
 - Stays with Renee when he knows it's bad for him and still flirts with others
 - Worsens his relationship with his father when he knows he's the only other person who can take care of their sick mother
 
+
 How other people feed in to each other's loneliness:
 - Ignoring eachother after inviting them
 - Band stuff
 - Criticism, isolation
-- 
 
-
-
+Selina:
+- Voice of reason
 
 
 
@@ -624,7 +624,6 @@ I wish this wall could hug me. But then it wouldn't be a wall.
 
 
 
-That day I stared into Renee's eyes, and her into mine. I wasn't sure what I saw, or was supposed to see. They were like any others, and it wasn't like I could stare into eyes that long anyway. I guess it was a boon,r eally. When you can stare and no one is offended, or aggravated, or aggitated or uncomfortable. I imagine it used to be that everyone was allowed to stare into the other's eyes until they realized they loved them, meant something to them or weren't dead yet. I stared into Renee's eyes and I watched my fisheyed reflection watching back at me. One thing I didn't expect was to find myself in there, especially since people usually move too much to notice that.
 
 
 
@@ -633,9 +632,23 @@ That day I stared into Renee's eyes, and her into mine. I wasn't sure what I saw
 
 
 
+-------------
+
+Nothing was keeping me awake, the most frustrating of all the things to. There was no way I could wait it out. So, all I needed was to find just some pants, yesterday's, before I made my way out the door. It didn't even seem like the odd politico was veneering that off a drunken night. A quick look in and the dispatcher was there, only half awake leafing through fashion propoganda.
+
+I had two hours before the sun saddled itself up in the sky. Ten minutes in, the stores looked compoletely different closed. While at their peak of typical consumer celebration in the daytime. Each of the shut up gates were unique, all closed for business. I waifed along the street, dreary, and parked myself on the sidewalk. I sat and tried to ignore my thoughts. But I could hear the stillness of the city, and I wanted to damn smash it.
+
+There were no cigarette butts left, most likely because a desperation or routine hooked the homeless person to pluck them out of the ground. I only knew they were there before because I could see their imprints in the concrete. I reached out and tried to chip away at the side of one with my fingernail. The hole gave ini easier than it let on, bits of dust gathered at the bottom. I asked myself if this was seriously necessary.
+
+So I got up and decided to run between the pages. My body felt slightly limp but I kept going because I was already well past midsentence. A few of the failed planned future events balloowed and hollered at me, knowing I was spoiling their fun as their ink ran out of the book. I pused a few characters aside. They were in my damn way, so many of them. A few tumbled into the sharp corners, but most of them were fairly agile and just shook their fists at me as I passed.
 
 
 
+---------
+
+"What? I'm a feminist. He's completely not allowed to do that."
+
+I waved an exhaustive "Ok, later." Selina said nothing as I walked down the street. It had a slight hill to it and my feet stuttered down at a bit of a speed.
 
 
 

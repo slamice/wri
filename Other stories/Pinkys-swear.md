@@ -60,7 +60,7 @@ Others, like his scout master Mr. Tofall, all smiles besides his tears and warts
  
 "Go away," he whispered back impatiently through his teeth fanning her to leave.
  
-It was hard to ignore both of them, especially with the ceremony going as slow as it was. The long draul of each person serenading his mother was a bad combination for him. Again he motioned the girl, but she only moved closer. He looked around for a parent, but couldn't see anyone claiming her. He tried to ignore the girl, feeling the sweat and his forehead began to bead from the hot sun. But suddenly a feminine hand materialized dobbing it with a cool handkerchief. "Who-" Pinky began, realizing he was so startled he was ready to pounce out of his seat.
+It was hard to ignore both of them, especially with the ceremony going as slow as it was. The long drawl of each person serenading his mother was a bad combination for him. Again he motioned the girl, but she only moved closer. He looked around for a parent, but couldn't see anyone claiming her. He tried to ignore the girl, feeling the sweat and his forehead began to bead from the hot sun. But suddenly a feminine hand materialized dobbing it with a cool handkerchief. "Who-" Pinky began, realizing he was so startled he was ready to pounce out of his seat.
  
 The second shock came when she placed her hand on his shoulder. The touch surprised Pinky so much it made him jump, circling around to see a brunette's long dark hair brushing his back. Her face was obviously hot from the sun, but her gaze was off, staring down into space somewhere lost. 
  
@@ -78,7 +78,7 @@ The lady sighed and looked frustrated, and her eyes again floated away into spac
  
 "Can you please be quiet," He whispered, lulled by the sun and the hands, he closed his eyes "We are at a funeral." He could hear Mr. Tofall's hard voice breaking down. His slow sobs steadily grew more in focus. His voice almost broke the spell Pinky was under.
  
-But what really undid it was how hard the long haired brunette started to massage his eyes, carelessly pushing hard on them aching his head. "Softer please," he cried, but she ignored him, until he felt pain, like marbles borrowing in his sockets. He grabbed her hands and raised them forcefully.
+What undid it was how hard the long haired brunette started to massage his eyes, carelessly pushing hard on them aching his head. "Softer please," he cried, but she ignored him, until he felt pain, like marbles borrowing in his sockets. He grabbed her hands and raised them forcefully.
  
 He realized just then he'd lost the feeling of the gun in his pocket. He felt naked without it. Someone must have disarmed him. In a sudden panic he got up. He was faced to face with her, her eyes were dreamy, somber, almost fainting. She looked back at him sadly, and he realised it irritated him incredibly.
  
@@ -98,29 +98,29 @@ The toddler wrapped around his leg, her face draining her tears into a puddle on
  
 "It's _your_ business." The man muttered, staring straight at him. "You don't deserve a salute Colonel, you let this happen to her."
  
-This only made Pinky madder, his face redder than most combined. It was already burning from the heat, but now was fully lit like a burner and his ears were the tips of the flame. All his restraint couldn't hold him back, and he grabbed the pork pie man by the collar.
+This only made Pinky madder, his face redder than most combined. It was already burning from the heat, but now was fully lit like a burner and his ears were the tips of the flame. All his military restraint couldn't hold him back, and he grabbed the pork pie man by the collar.
  
 "Who are the fuck are you?"
  
-But as he blurted it out a pain stung him in his ankle. The toddler began first with small nibbles but then hard bites piece meal, teeth mark holes breaks the seams of his pants. Blood drooled down his foot soon enough.  The brunette lady got behind him with what appeared to be a sad hunger, peppering his shoulder with spit. She climbed on his back as he turned in circles trying to grab her or her dress. She bit at his sweaty red neck in haste.
+But as he blurted it out a pain stung him in his ankle. The toddler began first with small nibbles but then hard bites piece meal, teeth mark holes ripped through the seams of his pants. Blood drooled down his shoe soon enough.  The brunette lady got behind him with what appeared to be a sad hunger, peppering his shoulder with spit. She climbed on his back as he turned in circles trying to grab her or her dress. She bit at his sweaty red neck in haste.
  
-"Get off of me!" He wheezed out between a breath. With Pinky off guard, the pork pie man grabbed the back of one of Pinky's arm and twisted it hard with surprising hidden strength. "Get off of me! I'll have you bastards arrested."
+"Get off of me!" He wheezed out between a breath. With Pinky off guard, the pork pie man grabbed the back of one of Pinky's arm and twisted it hard with surprising hidden strength. "Get off me! I'll have you bastards arrested."
  
 "You're at your own mother's funeral." The porkpie man hit him in his stomach, knocking out the wind in Pinky while the other two flailed around him. "Show... Some respect... For your mother."
  
-"I'm a damn colonel you bitch. Get off of me!" He tried to hook his arm around the brunette woman's head, anything to get a better hold of her, but she slipped out of his sweating palms' reach and started chowing on his ear. He screamed in pain as he felt her teeth grind it. Pinky fell to the ground while the toddler began gnawing on his right knee. 
+"I'm a damn colonel you bitch. Get off me!" He tried to hook his arm around the brunette woman's head, anything to get a better hold of her, but she slipped out of his sweating palms' reach and started chowing on his ear. He screamed in pain as he felt her teeth grind it. Pinky fell to the ground while the toddler began gnawing on his right knee. 
  
-But Pinky finally got his footing, and managed to pry the brunette off his shoulder, dragging the little girl against the grass and dirt from his knee. Staggering to get up, the man with the porkpie hat put him in a headlock. "Your mother was a saint, she was always there for you!" he yelled, kneeing Pinky hard in the stomach.
+Finally Pinky got his footing, and managed to pry the brunette off his shoulder, then dragging the little girl against the grass and dirt from his knee. Staggering to get up, the man with the porkpie hat put him in a headlock. "Your mother was a saint, she was always there for you!" he yelled, kneeing Pinky hard in the stomach.
  
-"My mother..." Pinky finally took to his military training. "I'm so glad she's dead. She never understood how much I hated-" And with a punch to the face the man with the porkpie hat man was on the ground having his hat fall off. "She only cared about herself and her stupid neighbors and friends. She was never there for me." And while kick the bald man in the face, the brunette clawing at him, he yelled clearly,
+"My mother..." Pinky finally took to his military training. "I'm so glad she's dead. She never understood how much I hated-" And with a punch to the face the man with the porkpie hat man was on the ground having his hat fall off. "She only cared about herself and her stupid neighbors and friends. She was never there for me." And while kicking the bald man in the face, the brunette clawing back at him, the child a short distance away, he yelled clearly,
  
 "You can all go to hell like my mother!"
  
 The swear echoed the garden, running through it gallantly like an olympic triumph. Pinky suddenly realized what he unleashed, and to his horror the wrinkles and aghasts on people's faces were petrified, making them appear more prominent. Some people's mouths were upended in wide o's coupled with glaring eyes. Everyone stood stone white for a moment. Pinky's world stood still. A twisted ode hung above them all.
  
-Sensing a familiar presence, Pinky knew before even looking that his aunt was staring right through him. Into his exasperated face he saw her shock. The family! Our Town! Pinky's humility! His words dumped all of those into oblivion, and he stared down at them as they fell, mouth agape. He reached out, but his his hands were too  far greased with sweat. So they only strained through his fingers.
+Sensing a familiar presence, Pinky knew before even looking that his aunt was staring right through him. Into his exasperated face he saw her shock. The family! Our Town! Pinky's humility! His words dumped all of those into oblivion, and he stared down at them as they fell, mouth agape. He reached out, but his his hands were too far greased with sweat. So they only strained through his fingers.
  
-His father stepped up behind a crowd, slowly. He was distilled in an agony only a parent could know, ashamed and betrayed, having just watched Pinky cast aside all his life lessons. "Why, son?!" He barely said, overstruck by grief. Pinky tried to mouth something, but it only appeared as an imaginative gesture. The many shocked hating eyes froze those words and nailed them deep down his gullet.
+His father stepped up behind the formed crowd, slowly. He was distilled in an agony only a parent could know, ashamed and betrayed, having just watched Pinky cast aside all his life lessons. "Why, son?!" He barely said, overstruck by grief. Pinky tried to mouth something, but it only appeared as an imaginative gesture. The many shocked hating eyes froze those words and nailed them deep down his gullet.
  
 Who accompanied his father but two of Pinky's kindergarten teachers! Their arms hooked together just moments ago, soon fell to their sides. One raised her hands to the sky to ask, as if in a prayer to the past moment, how could he tarnish, how could he be such a horrible child?
  
@@ -149,3 +149,5 @@ Pinky's hands were red with calluses. They stung so much from pulling at people'
 They look in each other's eyes and Pinky whispered "Thank you."
  
 "Thank for being there to be there with." the blonde man smiled generously, showing his wide toothed grin. Their pinkies tightened their embrace. They nodded together "Never again. Friends forever."
+
+

@@ -1,4 +1,29 @@
-visa throughout
+**************
+
+Ch1 & 2:
+
+Wants to show he's a smart person, thoughtful.
+
+- Comes off that he's boring, vain and . Start to show he's limiting himself in this world (e.g. by rejecting visiting back to his home because his visa was going through).
+- 
+
+**************
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 1 -- outside club
 
@@ -36,11 +61,11 @@ Themes:
 
 Tour: A thing he sets to do but puts no effort towards, sabotaging himself and making it unacheivable.
 
-Visa: A thing he has no control over but decides to live under.
+Visa: A thing he has no control over but decides to live under because it's an excuse to stay, easier than to leave.
 
-meditating: useless without purpose
+meditating: Useless without purpose
 
-family: enforce some sort of values
+family: Enforce some sort of values
 
 All people except family: re-enforce same lie to eachother
 
@@ -49,4 +74,35 @@ Prof:
 Jack and Ryan: Echoes of indifference
 
 Gabby:
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 

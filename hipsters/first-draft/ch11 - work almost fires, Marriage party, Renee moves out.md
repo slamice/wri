@@ -170,7 +170,7 @@ It turned out Renee knew many people here for years. Marty was an ex-boyfriend a
 
 
 
-
+---------
 
 
 
@@ -183,6 +183,18 @@ Another game of boce started up, and the old Italians measured the balls careful
 I sat silent, still looking at her face, but mostly her hair.
 
 She sequined her words into a fashionable sing song "When are we getting married, Om?"
+
+
+----
+
+That day I stared into Renee's eyes, and her into mine. I wasn't sure what I saw, or was supposed to see. They were like any others, and it wasn't like I could stare into eyes that long anyway. I guess it was a boon, really. When you can stare and no one is offended, or aggravated, or aggitated or uncomfortable. I imagine it used to be that everyone was allowed to stare into the other's eyes until they realized they loved them, meant something to them or weren't dead yet. I stared into Renee's eyes and I watched my fisheyed reflection watching back at me. One thing I didn't expect was to find myself in there, especially since people usually move too much to notice that.
+
+
+
+
+
+
+
 
 
 ---

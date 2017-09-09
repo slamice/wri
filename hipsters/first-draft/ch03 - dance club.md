@@ -1,6 +1,8 @@
-How a show usually played out is posters went up in skate shops, coffee shops, really expensive barbershops. Each of these shops had only 3 items on their menus, those sort of places. Doors at 8, starts at 9. People know it really starts at 10. Bands keep waiting for their drinks and drunks. They go on at 11 or 11:30. It ends at 4am after the fourth band, but the police break it up at 3am.
+It was a grand time to be alone.
 
-This isn't that kind of show though, we don't technically really have to wait for anyone. It's 90's Dance night and that's a guaranteed win. Everyone here was an angry teenager then wanting to dye some highlights into their memories. Now we're back. But instead we have 60's pop remakes we forgot about on the radio, and they're in vogue again. One night only until the next 90's dance party five months from now.
+How a show usually played out is posters went up in skate shops, coffee shops, really expensive barbershops. Each of these shops had only 3 items on their menus, those sort of places. Doors at 8, starts at 9. People know it really starts at 10. Bands keep waiting for their drinks and drunks. They go on at 11 or 11:30. It ends at 4am after the fourth band, but the police break it up at 3am. If the show ended earlier (at least by midnight) then fools would dance. Tonight was a bizarre switch from the usual rigamarol, a dance party instead of a show instead of はんたい. It was probably _a thing_ I guess.
+
+And since it wasn't that kind of show though, we didn't technically really have to wait for anyone. It was 90's Dance night and that's a guaranteed win. Everyone there was an angry teenager ((then, ~in the 90's~)) wanting to dye some highlights into their memories. Then we were back in the future. But instead we had 60's pop remakes we forgot about on the radio. Mix that with rap and they're in vogue again. It was one night only until the next 90's dance party five months from then.
 
 By now people stupided towards the door, a few already drinking, a few more warming up with headbands. Some beards were abound, a few lit up.
 
