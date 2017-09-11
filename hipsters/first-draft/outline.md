@@ -5,7 +5,7 @@ Ch1 & 2:
 Wants to show he's a smart person, thoughtful.
 
 - Comes off that he's boring, vain and . Start to show he's limiting himself in this world (e.g. by rejecting visiting back to his home because his visa was going through).
-- 
+- Set up with later plot for Prof. 
 
 **************
 
@@ -22,7 +22,7 @@ Wants to show he's a smart person, thoughtful.
 
 
 
-
+**************
 
 
 1 -- outside club
