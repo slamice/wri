@@ -16,7 +16,8 @@ Selina:
 - Voice of reason
 
 
-
+Michael:
+- Wants to reach higher but realizes there is no point because his heart isn't in it.
 
 
 

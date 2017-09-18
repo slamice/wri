@@ -1,8 +1,5 @@
 Ch2. 
 
-
-
-
 Renee and I were walking back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we haven't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
 
 "We should at least stop by to visit them."
@@ -15,7 +12,7 @@ Renee and I were walking back to our makeshift apartment when we saw a light was
 
 "Yea but that's old! That was ages ago. I mean he used to get really mad but he's getting in a better place. He's moving to a BETTER PLACE in his life. Can't you see that?"
 
-We walked underneath their window and before another comment Renee yelled up for Andrew. From the second floor Jack's sleepy face poked out, and sleepier voice yelled down "Yeah he's here. Come up!". Jack's girlfriend, a squirrelly girl named Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
+We walked underneath their window and before another protest Renee yelled up for Andrew. From the second floor Jack's sleepy face poked out, and sleepier voice yelled down "Yeah he's here. Come up!". Jack's girlfriend, a squirrelly girl named Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
 
 Andy's apartment was a desolate. It was a single huge room he lived in with Jack and Prof. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low. Anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight. It was a bit hard to imagine the place designed for anything but a mess. Littered on the floor were Prof's coffee mugs and cappuccino cups. Jack's paints were next to them with beer bottles, cigarette trays complete with ash, nails and chipped wood. Signs of Andrew were everywhere but his main manifest was a pile of philosophy and spiritual books. The lighting, as with all of the lighting within the industrial area we lived in, was a depressing florescent.
 
@@ -35,7 +32,7 @@ Jack also covered the walls in masses of text and melting heads. Quotes from Bur
 
 Behind us Prof's shadow danced loudly against one of the curtains as he rummaged through a box of tools.
 
-Andrew sat on the floor, rolling a joint on a crate. He licked his fingers and pressed them against the thin paper. His sockets were deep in his face, naturally born that way. He always looked either sad, indifferent or angry. Renee explained previously that he probably always felt like he was missing something and never found it. That something was probably his unborn twin, dead in the womb. He could never forget the memories he never had with his brother. His parents were worried he'd go through the rest of his life with regret. It certainly looked like they were winning their bet.
+These were all horrible distractions that only dug into me more. But an incredible fucking waste of time, Andrew, sat on the floor, rolling a joint on a crate. He licked his fingers and pressed them against the thin paper. His sockets were deep in his face, naturally born that way. He always looked either sad, indifferent or angry. Renee explained previously that he probably always felt like he was missing something and never found it. That something was probably his unborn twin, dead in the womb. He could never forget the memories he never had with his brother. His parents were worried he'd go through the rest of his life with regret. It certainly looked like they were winning their bet.
 
 "So what are you doing these days Andy?" Renee asked him cheerfully.
 
@@ -82,9 +79,6 @@ Renee was talking with Andy excitedly again about nothing in particular, in this
 "She didn't like it." Andy's voice crept back in on top of Renee's.
 
 "You were crazy for doing that! You were crazy. She was pretty crazy too. I'm sure I told I used to wait for her for hours after school for her to pick me up. They worried about me then. She was always running errands."
-
-
-
 
 How he could use a new type of herbal medication. How she's woken up sick with a rash on her face down to her arm, bed struck and unable to go work. Prof brooded in the shadows not saying anything, and I could see a silhouette putting on some black blurry headphones.
 

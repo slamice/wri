@@ -1,3 +1,21 @@
+Later that week I got home to find a notice on my door with Raf apologizing, saying he was sorry but someone came foreward about the apartment zoning and threw us all under the bus. And if it was me then he'd get my ass.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Of course the real deal was the greasy spoon that was closest when you wake up. The place was owned by a huge balding man out of the 50's to make it authentically awful, and as white as the toast you ate there as possible. Late breakfast at Bons off Broadway.
 
 If you have seen one greasy spoon then you get the understand completely. But really, you haven't seen them all. There are varying degrees of greasiness, eahc one worse than the next.

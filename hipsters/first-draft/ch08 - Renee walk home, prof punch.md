@@ -8,7 +8,7 @@ I really wanted any of it to mean anything. It tried to make anyof it bleed, but
 
 "I don't carry them in my pocket anymore."
 
-"I guess that makes sense." she said, slightly backhanded with a chuckle.
+"I guess that makes sense, I gave them to you to carry." she said, slightly backhanded with a chuckle.
 
 "Have you tried," I spoke slowly, approaching the jab tenderly, "actually buying something with money you earned?"
 
@@ -17,6 +17,10 @@ She decided not to respond and we continued in silence. We could feel the deep d
 "What's this supposed to be now?" She asked.
 
 ~ mood lightens slowly ~
+
+---------
+
+((They hold hands.))
 
 ---------
 
@@ -71,13 +75,13 @@ But Prof marched on, standing up taller now, shoulders straight. Prof slowly fad
 
 Renee told me to shut up. Prof turned a corner and escaped from us. Renee whispered, "You know, you deserve that."
 
-A second shock overcame me, "What?!" I shot her a hard look, but it couldn't penetrate anything.
+A second shock overcame me, "What?!" I shot her a hard look, but it didn't penetrate anything.
 
 "You know why. He's right, he's a better person than you. You're wrong about so many things but you just don't see it. You're not a nice guy, you need to know that." Her words stood in the air, dancing and stomping hard on my head, then crashed a car into it, sending it hurtling off a cliff. In angry awe I mulled these words over in my mouth like a baby's challenge and finally started caring enough to hate her.
 
 "Are you for real?! Is this real life? Do you understand what just fucking happened here?! Do you _understand_?"
 
-"PERFECTLY. EVERYTHING IS _FUCKING_ CLEAR. Look at _me_, I've overcome so much. He's right." And suddenly she marched home in what I only assumed was some kind of twisted convinced frustration. I stood there in shock.
+"PERFECTLY. EVERYTHING IS _FUCKING_ CLEAR. Look at _me_, I've overcome so much. He's right." And suddenly she marched bakc to the apartment in what I only assumed was some kind of twisted convinced frustration. I stood there in shock.
 
 "You think you're a fucking Pariah? You think you're prudent?"
 
@@ -87,14 +91,56 @@ A second shock overcame me, "What?!" I shot her a hard look, but it couldn't pen
 
 "PRUDENT?!" I pronounced slowly in disbelief.
 
-
-
 "COME _ON_" She ushered, "COME the fuck _ON_. Let's go _home_."
 
+I didn't move, and she was half a block down until she looked back at me and stopped. We waited and watched eachother for a while. I remember being pissed beyond any pissed I could be. We stared at eachother, and Renee started to cry.
+
+"What the fuck is wrong with you?"
+
+I said nothing. My face I knew was screwed up pretty bad. I closed my eyes and started to breathe in, then out, trying to relax.
+
+"You think your bullshit meditation and praying sometimes is helping you? It's all full of shit. Even a fucking monk begs for money, he's full of shit."
+
+
+
+
+
+
+
+
+
+
+"I fucking love you!" She started crying. I was pretty sure everyone who lived in teh deserted warehouses heard us.
+
+
+
+
+
+
+
+"You can pick up the dishes tomorrow morning when they're all in peices in the parking lot." 
+
+
+
+Turned out to be a short night. The sun was starting to rise up. Someone dropped a rose into the sky and the hues started trickling in.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ==============
-
-
-
 
 
 "You don't get your stuff. You don't get your stupid dishes that you never even used."

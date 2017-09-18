@@ -19,9 +19,6 @@ So then there were parties. And then there was us. Shoved up against the outside
 I decided on my black ((skinny)) jeans that night. The kind your knees get cold in but you don't notice after a while. Made sure the (('dark', because he's telling it)) black jacket was up to par. It was pretty cold with all that. My body shifter in discomfort, I kept fidgeting past my usual number of fidgets. Looking, feeling dumb and horny.
 
 
-For all it was worth I was pretty calm then. The last few years were longer than I imagined. Longer than my childhood even. I swear. It's a big claim, I know.
-
-
 -----
 
 You know me enough to know I didn't smoke that night, or any night then. It's not like I was trying to be a saint or anything. It felt like a sad thing to do. I tink it's a depressant, actually. And yea I tried it. I smoked on and off for a few months. Renee did too, Renee did it a lot. We'd go somewhere and we'd literaly have to budget for coffee and cigarettes. All the time. And it ate away at my budget. and yellow fingers and teeth and all that cliche stuff. You don't notice it when you do it but when you're watching it you notice it more. But that stuff I only started noticing it recently though. You only get it when you do it for so long anyway.
@@ -163,6 +160,13 @@ I scanned through the crowds casually. The lights were dim and confused, sprayin
 
 What was popular possibly eons ago started to play again. We danced a few jigs and tried to steal a few dance moves from our surroundings. We shuffled left and right and looked around us.
 
+"Where's Renee?"
+
+"She couldn't make it tonight, she has mono."
+
+"Sorry to hear that."
+
+To me Mono sounded like teh most convenient disease to get yourslef out of anything. You sit in bed until you are awake. I've known a few people who claimed to have it then sat around all day.
 
 ---------
 

@@ -11,6 +11,7 @@ Wants to show he's a smart person, thoughtful.
 
 
 
+(((Make shrugging have a more prominent yet still subtle meaning, giving up on someone == shrugging)))
 
 
 
