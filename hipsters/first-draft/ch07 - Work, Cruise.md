@@ -1,3 +1,5 @@
+Chapter 7
+
 Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl from the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
 Alone, I threw away the other ticket and went to the Prof ((Some refernece to dock?)) on a Wednesday after work. A plastic Leigh was draped over my head, as if it were knighting me before stepping aboard. I walked slowly onto the yacht, a bit cautious, perhaps overly so, but one can never be too sure can they? I couldn't help but be excited though. I could see the city now from so many angles.
@@ -106,7 +108,7 @@ She stood, silent and confused, leaning against a thick subway beam. "Ok, yea th
 
 "Why naut why naut..." she teased, as I half helped her up the steps.
 
-We went to a diner and we barely chatted about nothing. he head rolled around as she sobered up, all over the table and against the booth. She started bored and forced a few laughs, then eventually real ones.
+We went to a diner and barely chatted about nothing. Her head rolled around as she sobered up, all over the table and against the booth. She started bored and forced a few laughs, then eventually real ones.
 
 We bought two coffees in a random greek diner and looked at eachother. Her long nose and her straight dark hair betrayed her bloodshot eyes. Her skin looked cold, but I wasn't about to touch it yet.
 
@@ -120,7 +122,7 @@ She looked down at her coffee and then up, smiling at me. Her smile reached thro
 
 So an hour later she was much better, but while we were still tired, we walked down small twisted streets. We found a stoop and rested there before it became awkward.
 
-She told me more about her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she she aimed for New York. She flailed and writhed until she perched on a branch at a hedgefund as a junior accountant. She's been friends with New York all her life.
+She told me more about her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she aimed for New York. She flailed and writhed until she perched on a branch at a hedgefund as a junior accountant. She's been friends with New York all her life.
 
 At that point I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling.
 

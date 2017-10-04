@@ -1,0 +1,79 @@
+CHAPTER 4
+
+Every other day I woke up late and shaved, tapping my razor handle against my hand so it would vomit out hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it. "Fucking tap tap tap. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
+
+Renee was still asleep when I headed out, her hours sat much later into the day than mine. She worked at an aryuvedic clinic deep in a corner of Greenpoint. In between cigarette breaks she'd call or text me about dinner or a movie or gossip. 
+
+We lived above a limo dispatch breaking multiple zoning rules.
+
+
+
+
+Describe the office culture, semi formal.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+The receptionist, also limo dispatcher, was there. Behind that counter was a huge grin, a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She now hobbled busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone 3000km away. It stuck in her pride from then on, adding more weight. She gave me the mail in a heap. "Read 'em and weep!" and laughed hard.
+
+Another week, no notices. The government shrugged and said nothing. They weren't thinking of me, they didn't miss me.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

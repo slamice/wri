@@ -1,10 +1,22 @@
 Hidden Cities
 
+----------
+
+Three magical things:
+- Magic glue taht morphs to the same matrial that surrounds it, needs to be only a few inches apart
+- Knives sharper than diamond
+- Material making the inside bigger than it is on the outside
 
 
 
 
 
+
+
+
+
+
+----------
 
 Maybe bad guy whispering in the woods
 

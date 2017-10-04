@@ -1,16 +1,10 @@
-I think I walked the length and breadth of manhattan. Well, at least the nicer parts.
-
-Cowboy rollerskater in central park. 
-
-So late at night, I tried to look back at Manhattan from the bridge. But I was flung on the far rightmost track, and I couldn't see much of anything. Only a few bright windows against a dark black granite backdrop, maybe some water somewhere. I sat for minutes, the train even stopped once. But the bridge's beams blocked and only glimmers of light shined through. We eventually went into a tunnel. New York was too full of itself.
-
-
+CHAPTER 5
 
 A few days later Selina virtually hit me up for a coffee ((headache)) that night. "Hello fellow human!" She cheerfully gleed at me through the phone. Selina didn't think "you guys" made any feministic sense, so she opted for "Hello kindly people" and "Greetings fellow homosapiens."
 
 "What's up?"
 
-"You should come out." she whispered, "I'm at Cup O' Joe."
+"You should come out." she whispered, "I'm at Cup O'Joe."
 
 "At the coffee shop?"
 
@@ -24,7 +18,7 @@ A few days later Selina virtually hit me up for a coffee ((headache)) that night
 
 And I hung up.
 
-It sure was better than a night with Renee and an eigthies Romcom. I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
+It sure was better than a night with Renee and an eigthies Romcom. I sacked on a pair of jeans, ignoring her critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
 
 "You never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
 
@@ -34,11 +28,11 @@ It sure was better than a night with Renee and an eigthies Romcom. I sacked on a
 
 "Please not again. Please."
 
-"Can you please get me an iced latte then?"
+"Can you get me a latte then? French roast."
 
 "Sure."
 
-I couldn't and still can't count the number of times I walked up and down these streets. I could point to where I found five dollars in change, where various throw up was spewed. Constructions laid out, miserably distorted. An oven left to starve on the side of the road, not before they stuffed it with empty bottles surprisingly not stolen to be recycled yet.
+I couldn't and still can't count the number of times I walked up and down those streets. I could point to where I found five dollars in change, where various throw up was spewed. Constructions laid out, miserably distorted. An oven left to starve on the side of the road, not before they stuffed it with empty bottles yet to be recycled.
 
 I remember that night distinctly because it was like any other night. The cold tried to creep into my jacket, into my pants. The down and out bars hid in the shadows of construction. Cool as they were, they served mac and cheese types of things but little else. There were no windows so I couldn't see the people potentially dying from such a fire hazard inside. The two sushi places on the way I passed were idly populated. A bit further along, the projects were trying to project on to me, non discreet and brooding. The people who lived there almost all had projects. Brutal two day jobs, brutal childcare for their oh so many children and brutal laziness. Distanced, there were convenient stores far too expensive to be convenient. The arrangement was all a maze of zoning left over from a previous era.
 
@@ -140,6 +134,9 @@ Selina shrugged, "kind of, but wanted to take it easy tonight. Take it easy."
 
 On my way out I ordered Renee's latte. Selina's haze started to brighten up, 
 
+
+((Start to talk about potential marriage to Renee))
+
 The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments that were half finished had already been bought. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. Basterdized Bauhaus. The same sky's they'd be under has been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they needed to do to need to do.
 
 I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. I sipped Renee's latte, the ice melting inside it as my hand warmed it. I looked up and tried to find a star while under all the street lamps.
@@ -150,9 +147,7 @@ But the latte was cold now and getting colder and wondered where it was, so I ha
 
 A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly.
 
--- DAD TALK --
-
-Honestly my mother was just there, and I loved her. But really, we grew apart just like I grew apart from the rest of my family. She was cautious and protective but once I hit a certain age all that stopped. Maybe she figured she'd do what she did, so phrases became stuff like, "do your best." and "Have fun." and "Well whatever you do use a condom." The first two years away from home I took nothing she said in the past or that present seriously because I hated her for reasons I can't explain. And then after that I realized all the lies I made up in my head were just that. So I got over them and we talked intermittently when she reminded me to talk. Now the thought of her sick, even if it wasn't serious, opened a locked box. I wondered how much longer I could stay indifferent.
+Honestly my mother was just there, and I loved her. But really, we grew apart just like I grew apart from the rest of my family. She was cautious and protective but once I hit a certain age all that stopped. Maybe she figured I'd do what she did, so phrases became stuff like, "do your best." and "Have fun." The first two years away from home I took nothing she said in the past or that present seriously because I hated her for reasons I can't explain. And then after that I realized all the lies I made up in my head were just that. So I got over them and we talked intermittently when she reminded me to talk. Now the thought of her sick, even if it wasn't serious, opened a locked box. I wondered how much longer I could stay indifferent.
 
 On my way back I passed by Jack and Andy's apartment and noticed the light was on. A fever of rage suddenly overtook me on my walk back. Who was Andrew. Such a bastard. And suddenly I was in my apartment, sneaking a look at Renee saying Hi, but she didn't look up. I poured her latte into a glass and heated it up. Only half of it filled up the glass. Still she was completely embossed on the bed, engrossed.
 
@@ -270,21 +265,6 @@ Before all of this, Renee barely showed up to anything. There was some kind of m
 
 I knew her ex-lover though. I knew Andrew almost too well. He was so articulate I was almost jealous until I hated him after I found out he sucked. Every live music venue featured him in the audience, and eventually we talked and we stoned until we were down and out all those nights. A person of the world, he persona'ed hard. His persona was gifted in being interested in many things nature until they aggravated him. Nature itself abused the world. Finally he restored through video games.
 
-I met Renee with him when they were together on the subway. We were on our way to a house party and her and Andrew's car were on the other track. She finally showed up with him. I looked in as our cars passed each other, into a floating room of people. It felt evasive and vouyourish. The cars sped on until much later. I only remember her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night.
-
-The party was a ton of leaning. ((Against furniture, walls... That's it.)) The conversations were hefty doses of unreality. We philosophized about who worked where in the city, really, and what that entailed.
-
-"Non profit Radio station Manager"
-
-"An animal shelter"
-
-"In between jobs"
-
-"Art studio"
-
-"..."
-
-""
 
 The words were mostly recollections though. How long had it been since we heard that song, and omg that band is featured in a zine now. After the party we settled in a playground. We took turns slumping in swings, climbing the jungle gym nonchalantly.
 

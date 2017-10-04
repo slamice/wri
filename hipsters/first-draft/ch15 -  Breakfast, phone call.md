@@ -1,20 +1,8 @@
-Later that week I got home to find a notice on my door with Raf apologizing, saying he was sorry but someone came foreward about the apartment zoning and threw us all under the bus. And if it was me then he'd get my ass.
+Her dishes laid in my shelves a few days until I boxed them up and put them outside my door, but Renee never came to take them. Later that week I got home to find a notice on my door with Raf apologizing, saying he was sorry but someone came foreward about the apartment zoning and threw us all under the bus. And if it was me then he'd get my ass.
 
+I didn't think she did it. But my name was the only one on the lease.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+...
 
 Of course the real deal was the greasy spoon that was closest when you wake up. The place was owned by a huge balding man out of the 50's to make it authentically awful, and as white as the toast you ate there as possible. Late breakfast at Bons off Broadway.
 
@@ -58,19 +46,8 @@ Selina looked a bit off and worried, but still smiling. "Honeslty, they haven't 
 
 Who the we was I'll never know. At this point I felt like a painting in Selina's friends lives. A painting of brick colors matching the wall it hung on.
 
-=========
 
-
-
-
-
-
-
-
-
-
-
-
+.....
 
 My phone hummed my brother was calling me. It seemed uneventful at the time. And I sluggishly floundered to pick it up.
 
@@ -195,6 +172,8 @@ I don't know what's scarier If you stay asleep after hearing all of this, or if 
 
 ------------
 
+you know i'm telling this like a story but you remember Dad, at least I hope you don't when you wake up.
+
 I wish I could say that I see the rain coming down hard outside now. That the cold air looks like biting but it just looks like teeth shattering from in here, starving.
 
 
@@ -204,9 +183,6 @@ I wish I could say that I see the rain coming down hard outside now. That the co
 
 
 Maybe I was wasting my time, but now I know I was wasting yours.
-
-
-
 
 
 

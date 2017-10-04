@@ -1,4 +1,4 @@
-Something in the air was broken. It felt banal and burnt to an odorless cinder. I smelt it still somehow, felt it and watched it with my eyes, deadpan. I looked out across the silent empty street. I thought I saw something move, but only thought.
+Something in the air was broken. It felt banal and burnt to an odorless cinder. I smelt it still somehow, felt it and watched it with my eyes, deadpan. Out across the silent empty street, I thought I saw something move, but only thought.
 
 Cars swept by hissing cats. The area was thick with unrestricted access. The venue itself was tucked above two garages. The owners soldered on a roof with a roof, threw old wood in they were too lazy to dump and charged triple the apartment's worth a month. The door got stuck often but there was a skylight so you knew you could always leave. The space itself was huge, boxed and sanded down with sooted corners. The renters hung a sign outside:
 
@@ -15,6 +15,15 @@ So then there were parties. And then there was us. Shoved up against the outside
 "The guy, Matt, in the band."
 
 "Band guy? Yea he's coming." I said.
+
+"What about Renee? Your girlfriend coming out?" Jack said it, but both him and Ryan gave some wicked smiles.
+
+"She's taking it easy tonight, she's got mono."
+
+"Isn't that one of those things you have for the rest of your life?"
+
+"Something you gave her?" Jack pulled out a small bottle and rubbed the lotion into his dotted eczema hands. We all noticed.
+
 
 I decided on my black ((skinny)) jeans that night. The kind your knees get cold in but you don't notice after a while. Made sure the (('dark', because he's telling it)) black jacket was up to par. It was pretty cold with all that. My body shifter in discomfort, I kept fidgeting past my usual number of fidgets. Looking, feeling dumb and horny.
 
@@ -47,7 +56,7 @@ Jack and Ryan were tacked on friends. I met them both in university. Ryan was a 
 
 Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blankly at both of them.
 
-"Hey man can I have one?" Ryan asked.
+(("Hey man can I have one?" Ryan asked.
 
 "You *just* had one." Jack muttered with a cigarette in his mouth.
 
@@ -57,11 +66,11 @@ Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blank
 
 "But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became more pronounced.
 
-"Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan took it and the cigarette.
+"Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan took it and the cigarette.))
 
-My next guess is Matt never shows up. He was usually late and occasionally we'd get pissed at him but we were usually late too. High expectations abound, no one was happy. At least we had cigarettes I don't smoke.
+My next guess was Matt never shows up. He was usually late and occasionally we'd get pissed at him but we were usually late too. High expectations abound, no one was happy. At least we had cigarettes I don't smoke.
 
-We stood around, scratchy and unnerved. We looked like a shitty polaroid. I started to drift from Jack and Ryan there. These two were innocent compared to the hidden gems inside. I invited them out but honestly I didn't know who depressed me more.
+We looked like a shitty polaroid. I started to drift from Jack and Ryan there. I invited them out but honestly I didn't know who depressed me more. These two were innocent compared to the hidden gems inside.
 
 A gaggle of girls approached us from a distant block. They wore black sneakers and various modern 80's memorobilia to critical acclaim of eachother.
 

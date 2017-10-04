@@ -1,8 +1,45 @@
-Ch2. This sets the scene for who his coworkers are, who his gf is, who he is. The cat is a siren. We learn he is tired of his office life, working like a broken machine.
+I think I walked the length and breadth of manhattan. Well, at least the nicer parts.
+
+Cowboy rollerskater in central park. 
+
+So late at night, I tried to look back at Manhattan from the bridge. But I was flung on the far rightmost track, and I couldn't see much of anything. Only a few bright windows against a dark black granite backdrop, maybe some water somewhere. I sat for minutes, the train even stopped once. But the bridge's beams blocked and only glimmers of light shined through. We eventually went into a tunnel. New York was too full of itself.
+
+I debated laundry. "Well, you've got to get done." ((Too lame?))
 
 
+------------------------
 
 
+Most people expect alleys to be dark, and most are, but only the most observant or those who live in alleys know that they can be bright fleetingly. In the mornings or afternoons you can look up and see the bright moving clouds. You can watch them longingly and you can sulk while you watch them. And you can wonder what you drank earlier after you notice the tip of your tongue is burnt.
+
+
+------------------------
+
+
+You know me enough to know I didn't smoke that night, or any night then. It's not like I was trying to be a saint or anything. It felt like a sad thing to do. I tink it's a depressant, actually. And yea I tried it. I smoked on and off for a few months. Renee did too, Renee did it a lot. We'd go somewhere and we'd literally have to budget for coffee and cigarettes. All the time. And it ate away at my budget. and yellow fingers and teeth and all that cliche stuff. You don't notice it when you do it but when you're watching it you notice it more. But that stuff I only started noticing it recently though. You only get it when you do it for so long anyway.
+
+------
+
+A gaggle of girls approached us from a distant block. They wore black sneakers and various modern 80's memorabilia to critical acclaim of each other.
+
+-------
+
+
+It was a grand time to be alone.
+
+
+--------
+
+Tonight was a bizarre switch from the usual rigamarol, a dance party instead of a show instead of はんたい. It was probably _a thing_ I guess.
+
+---------
+
+I made a hard nod at the tapestries girl But she ignored me with a hard ignore.
+
+---------
+
+
+Woork chapter:
 
 The weather sucked. On what exactly wasn't important. There's a whole hidden season people choose to ignore. Its' heavy with musk and wet and dreary. Routines become slogs and everyone feels it. My energy drained, my ambitions shot then. Often around times that I wondered if there was a tear in me. Usually the pain of it disappeared and I could feel like a normal person. around the is season though it howled, mostly in the mornings. It stung and I'd feel the gash all around me, bleeding into the world.
 
@@ -23,7 +60,6 @@ Anything eaten too early in the morning I gagged on. Apples, oranges, toast. The
 
 The sun poked me and the morning met my gaze. It glared a mean hello. The day was bright and cheery and yet profoundly and beautifully mundane. The water pressure in the shower was still way too hard. It sprayed me like an elephant in a zoo, the drops pelted in a rage. My button up was too big for me, like someone threw a blanket on a chair and it just sat there. I wore it anyway.
 
-Everyday I shaved and tapped my razor handle against my hand so it would vomit out the hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it, tiny hair spraying against the sink so early. "No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
 
 The room defined askew. The bag of my socks were under random bits of clothes and books. It was pretty late but the only way to find anything was to start cleaning. Around laid trash bags of clothes and boxes unopened, half opened, opened for business, closed, etc and etc. A thin coat of stuff covered the floor and I tip toed over it. Our apartment was above a shifty limousine dispatch, neighboring a recycling office.
 

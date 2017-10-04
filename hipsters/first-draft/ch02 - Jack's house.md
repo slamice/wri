@@ -1,4 +1,49 @@
-Ch2. 
+CHAPTER 2
+
+I met Renee with him when they were still dating eachother. It was on the subway. We came from different directions, We were on our way to a house party and her and Andrew's car were on the other track. She finally showed up with him. I looked in as our cars passed each other, into a floating room of people. It felt evasive and vouyourish. The cars sped on until much later. I only remember her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night.
+
+The party was a ton of leaning. ((Against furniture, walls... That's it.)) The conversations were hefty doses of unreality. We philosophized about who worked where in the city, really, and what that entailed.
+
+"Non profit Radio station Manager"
+
+"An animal shelter"
+
+"In between jobs"
+
+"Art studio"
+
+"..."
+
+""
+
+
+
+
+
+Through some sick friendly incest he ended up living on our block. We both had an in with a friend of a friend who worked for the landlord hseet welding.
+
+Gets struck in face by a teenage gang, had to move away
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 Renee and I were walking back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we haven't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
 
@@ -12,6 +57,25 @@ Renee and I were walking back to our makeshift apartment when we saw a light was
 
 "Yea but that's old! That was ages ago. I mean he used to get really mad but he's getting in a better place. He's moving to a BETTER PLACE in his life. Can't you see that?"
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 We walked underneath their window and before another protest Renee yelled up for Andrew. From the second floor Jack's sleepy face poked out, and sleepier voice yelled down "Yeah he's here. Come up!". Jack's girlfriend, a squirrelly girl named Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
 
 Andy's apartment was a desolate. It was a single huge room he lived in with Jack and Prof. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low. Anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight. It was a bit hard to imagine the place designed for anything but a mess. Littered on the floor were Prof's coffee mugs and cappuccino cups. Jack's paints were next to them with beer bottles, cigarette trays complete with ash, nails and chipped wood. Signs of Andrew were everywhere but his main manifest was a pile of philosophy and spiritual books. The lighting, as with all of the lighting within the industrial area we lived in, was a depressing florescent.
@@ -20,7 +84,7 @@ There was barely a kitchen thrown off to the side. A tossed lopsided fridge in a
 
 There was art. Jack's work lined the walls and floor underneath. Lots of paintings. A desert with a naked woman standing by a cactus, a mesh of naked women spewing out of a drain. A pair of boobs floating in the sky. Different chairs were painted various hues, one had a tv glued to its seat with a portrait of a seagull. These things came to Jack casually, painted with pastels and cigarette smoke. I hadn't seen Jack's latest art in a while. 
 
-"Which one do you like?" Jack rubbed his nose.
+"Which one do you like?" Jack scratched at his hands, a bit dry and peeling.
 
 "Where do your ideas come from?" I asked.
 
@@ -48,7 +112,9 @@ He was obviously very uncomfortable. The marijuana smoke trailed up and swirled 
 
 I wondered about what the movie was about. I didn't know much about Ethan and Marley but I met them a few times when they picked Renee up. She knew them through practiced ayahuasca once a month in a forest. They puked the whole night together, calling it purging. Marley painted pictures of flowers and giggled every other word. Ethan was involved in two huge children's productions that made them well off for a while. They both wrote scripts for hollywood that couldn't make it past the noses of producers. But this time it was their movie, probably about something holistic and etherial like Super Yoga.
 
-Jack muttered in, "Yea they had auditions and yeeeeaaaa I can do that." but then he turned his attention to me, "Long time no see, so how's it going?" he patted me on the back, "How've you been, are you still working at the, what... The software thing? place?"
+Jack muttered in, "Yea they had auditions and yeeeeaaaa I can do that." but then he turned his attention to me, "Long time no see, so how's it going?" he patted me on the back, "How've you been?"
+
+"Are you still working at the, what... The software thing? place?" Sarah asked out of nowhere.
 
 "Yea I'm still there."
 
@@ -62,7 +128,7 @@ Jack muttered in, "Yea they had auditions and yeeeeaaaa I can do that." but then
 
 "I guess you can make a lot of good money but it's pretty menial work. I talked to Matt, he's not too into it." and then Jack went on and on.
 
-Jack must have felt the weird tension? How often did this situation occur, lovers of the past and present fight it out with passive aggressive blows. Probably fairly often but still. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone even though the people in it were dying. Andy knew I was Renee's latest best friend supposably. We hadn't talked since. Now Andy was sullen, apathetic at first glance, nothing unusual. But I'm sure it *dug* deep into him.
+Jack must have felt the weird tension? How often did this situation occur, lovers of the past and present fight it out with passive aggressive blows. Probably fairly often but still. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone even though the people in it were dying. Andy knew I was Renee's latest best friend supposably. He was sullen, apathetic at first glance, nothing unusual. But I'm sure it *dug* deep into him.
 
 In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leaf through the records to feel busy.
 
@@ -72,7 +138,7 @@ Renee was talking with Andy excitedly again about nothing in particular, in this
 
 "Yea, I remember her look."
 
-"I never heard this. So what happened he broke in?" Jack intevened. Then I thought I saw Renee give Andy a potential flirt, maybe not living up to its fullest but it was definitely made available. I sat there questioning its authenticity when she answered.
+"I never heard this. So what happened, he broke in?" Jack intevened. Then I thought I saw Renee give Andy a potential flirt, maybe not living up to its fullest but it was definitely made available. I sat there questioning its authenticity when she answered.
 
 "He climbed in through the window because he thought I was asleep but I was out then (doing what?). So he waited in the bathtub because he was ridiculous, not expecting my Mom to come back that weekend and walk through the door. I think she was at some kind of 'start your business' seminar."
 
