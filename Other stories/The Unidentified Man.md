@@ -79,13 +79,13 @@ He looked blankly at me, "No! Can't a guy just have a drink? A drink calms me do
 
 "Listen, sorry. Let's start again. I've just been in a situation before where this happened, I was half joking anyway. Listen, let's start over."
 
-He calmed down, sinking into his seat and his beer. I didn't dare tell him I quit drinking years ago, I didn't dare at that point. I was worried I'd scare teh creature back into the darkness.
+He calmed down, sinking into his seat and his beer. I didn't dare tell him I quit drinking years ago, I didn't dare at that point. I was worried I'd scare the creature back into the darkness.
 
 "It's fine, it's ok. Just like, people don't usually talk like that. Someone made a racial slur at me once. I was digging up some info on my great grandfather, at the library, and someone overheard me. My conversation with the librarian."
 
 He laid out the position of the players with his hands, "And he asked me, 'Senteeza? Are you some kind of Jew? That sounds like a true Jew name.' And I just looked at him in disbelief. What kind of name is a Jew name? So what if I was a Jew, which I am through my great grandmother. I stared at him until he said, 'Are you Jewish?'"
 
-I stared at my bottle. They made the beer a few miles from here, across the river. A local beer. A local man?
+I stared at my bottle. They made that beer a few miles from here, across the river. A local beer. A local man?
 
 
 

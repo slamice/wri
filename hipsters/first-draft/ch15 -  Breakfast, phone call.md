@@ -93,6 +93,12 @@ She went on and on. About how he never lover our mother, or her, or any of us. H
 
 "Yea we did. He's catching the next flight here. He of course offered to take her but I don't know if the hospitals there are any better than the ones here. We're not sure if she can take the plane ride right now anyway. I have to ask are you making good money there?"
 
+
+(((I knelt on the sidewalk in the fetal position. It could have been that people walked by me, dogs, not sure. I was definitely on an island there in front of the sophisticated gentleman's brunch, and I was alone.))
+
+
+
+
 "I'm making ok money."
 
 "We're probably going to need it. Sabra d--"
@@ -122,6 +128,23 @@ pause.
 "Impossible. Goodnight." My voice dampened.
 
 And we hung up.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ===================
 

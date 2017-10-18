@@ -182,3 +182,45 @@ Outside stood the vacant parking lots and warehouses, limos occasionally drive t
 A heard the Chinese lady selling clothes, yelling in the distance "sock sock underwear tanktop!"
 
 After dinner and before I slept I sighed downstairs, but they said nothing came that day. There was no mail.
+
+---------------
+
+
+((I really wanted any of it to mean anything. It tried to make any of it bleed, but it was cold. It was a cold cold world and the hope dies on contact when any asshole mumbles for a light. -elaborate-))
+
+"Do you have one?" Renee asked me.
+
+"I don't carry them in my pocket anymore."
+
+"I guess that makes sense, I gave them to you to carry." she said, slightly backhanded with a chuckle.
+
+"Have you tried," I spoke slowly, approaching the jab tenderly, "actually buying something with money you earned?"
+
+She decided not to respond and we continued in silence. We could feel the deep disdain; a huge cavern. You could make some pretty sweet echoes in there.
+
+"What's this supposed to be now?" She asked.
+
+-----------------
+
+"A statue of words."
+
+"A what?"
+
+"... A figure of speech"
+
+-----------------
+
+"It dawned on me."
+
+"What did?"
+
+"The dawn."
+
+-----------------
+
+ I laid it limp until I remembered the cherry scent that lifted my heart when I was right out of university, looking in bars and back alleys for mystery and intrigue. Looking for a sullen humble life that still had gruff. Bust mostly looking for a tribe, and Renee was my door to that and a bunch of other sexy stuff.
+
+ ----------------
+
+
+ Prof used to live in a house off campus with a few randoms. Equipped with two floors and a basement, it felt massive. He remembered the kitchen. Fruit flies swam endlessly in circles over the sink, milk jugs in the fridge with just a bit of rotting milk skimming the bottom. One roommate had a neglected pug they were always furious at. Because it shat on their beds whenever it could becasue they rarely walked it.
