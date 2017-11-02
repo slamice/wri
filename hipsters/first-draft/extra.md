@@ -224,3 +224,77 @@ She decided not to respond and we continued in silence. We could feel the deep d
 
 
  Prof used to live in a house off campus with a few randoms. Equipped with two floors and a basement, it felt massive. He remembered the kitchen. Fruit flies swam endlessly in circles over the sink, milk jugs in the fridge with just a bit of rotting milk skimming the bottom. One roommate had a neglected pug they were always furious at. Because it shat on their beds whenever it could becasue they rarely walked it.
+
+-----------------
+
+
+(("Hey man can I have one?" Ryan asked.
+
+"You *just* had one." Jack muttered with a cigarette in his mouth.
+
+"So did you..."
+
+"But these are mine? Come on obviously you had a lot."
+
+"But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became more pronounced.
+
+"Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan took it and the cigarette.))
+
+
+------------------
+
+A gaggle of girls approached us from a distant block. They wore black sneakers and various modern 80's memorobilia to critical acclaim of eachother.
+
+One of them I recognized, a quasi acquantince, Gala. Gala's face was a puzzle of cultures put roughly together to make the pieces fit then smoothed out, like the apple. Perhaps mutt parents living in mutt apartments over the score of two decades until she jumped off their restless ambitions to somewhat settle into a New York City alley. She was all smiles whenever I saw her, comfortable. She held a bike next to her, and I stared at her trying to get her attention. Whether she dilbertly ignored me was not debatable, so I called her on it.
+
+"Gala!"
+
+"Oh, Om?" Her mass of wavy hair shook back and standing on guard getting ready to be open for a small conversation. Gala's girls suddenly went quiet, wondering why I interrupted. Jack and Ryan walked themselves over. 
+
+"Hey..." Jack smiled, "it's been a while."
+
+"Hey, how are you guys? I've been good."
+
+"Yea, Gala... May I be so bold to say you look like you're doing well." and he nodded in appreciation to his compliment.
+
+
+
+The other girls stepped back and talked amongst themselves, slightly bored and antsy.
+
+"Do you see Prof anymore?"
+
+"Not really but we talk sometimes, off and on. You came up recently."
+
+I puzzled, "Why?"
+
+"It was when I was broke and I asked you to pick up something from his place."
+
+"I don't but "
+
+---
+
+Someone tried to call me, my brother. I didn't feel like dealing with it. It wasn't a time to deal with it. But it had to be dealt with. Somehow. I took a few steps away from Jack and Ryan sloppiy shcmoozing Gaby and walked to a lean on the wall. I didn't dread what he was going to say, just if I was going to hear it or mishear it. Or if I was prepared to listen. Tons of little fears like that ate away at me, staring at me phone, at the people, at the distant traffic lights a few miles down the road. 
+
+"Hey how's it going?" My brother asked.
+
+"Yea?" I answered.
+
+"Listen I don't know if you're busy."
+
+"I'm not too busy, may be busy in a bit. Why what's up?"
+
+"Did you find anything out about your visa?"
+
+I sighed hard into the phone. I had little patience for it as it was, let a lone my brother bringing this up, and my Dad, and anyone else who cared enough to rub it in my face.
+
+"You will know when I get it. I'll sneak into the chrysler building and go to the top with and hold the top spike thing with one hand and shake it at the world."
+
+"Chrysler building? What's that anyway?"
+
+"I'm guessing it would be the least guarded one. Anyway, nevermind. I don't have it."
+
+"It's kind of important if you want to come back."
+
+"Is there a point to this?"
+
+---

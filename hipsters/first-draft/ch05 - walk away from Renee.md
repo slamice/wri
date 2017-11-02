@@ -151,7 +151,9 @@ Honestly my mother was just there, and I loved her. But really, we grew apart ju
 
 On my way back I passed by Jack and Andy's apartment and noticed the light was on. A fever of rage suddenly overtook me on my walk back. Who was Andrew. Such a bastard. And suddenly I was in my apartment, sneaking a look at Renee saying Hi, but she didn't look up. I poured her latte into a glass and heated it up. Only half of it filled up the glass. Still she was completely embossed on the bed, engrossed.
 
-I immediately went back out, making sure the cat didn't escape. Just around the corner, under our bedroom window, I tilted Renee's forgotten latte and dumped it in slow motion. The stream made a quick splash and settled in the cracks of concrete. Once the glass was fully empty, I lurched back up the stairs to the apartment.
+"can you turn on the laundry again? I forgot to take out the clothes so they might have mold on them."
+
+I immediately went back out, making sure the cat didn't escape. Just around the corner, under our bedroom window, I tilted Renee's forgotten latte dumping it in slow motion. The stream made a quick splash and settled in the cracks of concrete. Once the glass was fully empty, I lurched back up the stairs to the apartment.
 
 
 

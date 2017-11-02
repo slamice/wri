@@ -72,7 +72,7 @@ But suddenly a minute later we heard him yell and and we turned around. Admitted
 
 Then, "I talked to Gala, do you remember my ex-girlfriend?" he yelled at the top of his lungs, "and three years ago, THREE YEARS AGO, you took what was mine." His body flailed and shook with anger. Prof pointed his finger hard at me. "She asked you for a fucking letter, a letter. They sent it to ME, do you fucking remember?!"
 
-I was thoroughly confused. Renee's eyes were wide open at the pair of us. I barely remembered Gala. Girly, thick accented, lost look in her eyes. Prof woo'ed her by leaving a note for her in an internet cafe, "You make me want to be better one day, I could be so awesome with you." She wasn't thoroughly disgusted and they began dating off and on.
+I was thoroughly confused. Renee's eyes were wide open at the pair of us.
 
 I tried to think back, three years ago. Visiting Prof's house at any time was very uneventful. I thought for a moment, "No, I don't th--"
 

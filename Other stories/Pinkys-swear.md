@@ -8,7 +8,7 @@ The mourners stood in groups. Some surrounded his mother's casket, some a flower
  
 His family, former rivals and the rest of these horrible people Pinky knew from years past said their condolences to him. Their apologies lingered in his ears as he weaved through the crowd, nodding. He didn't say a word, nor will he, he mused. A few people like his aunt, his cousin, his old neighbor all tried to engage him in a conversation but to no avail. His silence went on until he reached his father.
  
-The rock that Pinky remembered as his father's face was molten down then frozen again. The years were not kind to him, perhaps even a bit abusive. Pinky and his father exchanged only a few select words anyway. They exhausted all the rest of them in shouts growing up. His father's sentences were hard, shallow and grief stricken. He took them in numb wanting to finish the ordeal. Pinky's words were firmly consoling, dotted with a 'sir'.
+The rock that Pinky remembered as his father's face was molten down. The years were not kind to him, perhaps even a bit abusive. Pinky and his father exchanged only a few select words anyway. They exhausted all the rest of them in shouts growing up. His father's sentences were hard, shallow and grief stricken. He took them in numb wanting to finish the ordeal. Pinky's words were firmly consoling, dotted with a 'sir'.
  
 He walked to a seat in front of where the procession was to begin and sat, adjusting to a complacent and confident stature. The necessity of it all was slightly discomforting, even he had to admit. But not to anyone, even himself. Still, Pinky's mother's funeral cast a long and abysmal shadow on him. It was enough to at least knock on the door of his insecurities.
  
@@ -118,7 +118,7 @@ Finally Pinky got his footing, and managed to pry the brunette off his shoulder,
  
 The swear echoed the garden, running through it gallantly like an olympic triumph. Pinky suddenly realized what he unleashed, and to his horror the wrinkles and aghasts on people's faces were petrified, making them appear more prominent. Some people's mouths were upended in wide o's coupled with glaring eyes. Everyone stood stone white for a moment. Pinky's world stood still. A twisted ode hung above them all.
  
-Sensing a familiar presence, Pinky knew before even looking that his aunt was staring right through him. Into his exasperated face he saw her shock. The family! Our Town! Pinky's humility! His words dumped all of those into oblivion, and he stared down at them as they fell, mouth agape. He reached out, but his his hands were too far greased with sweat. So they only strained through his fingers.
+Sensing a familiar presence, Pinky knew before even looking that his aunt was staring right through him. Into his exasperated face he saw her shock. The family! Our Town! Pinky's humility! His swear dumped all of those into oblivion, and he stared down at them as they fell, mouth agape. He reached out, but his his hands were too far greased with sweat. So they only strained through his fingers.
  
 His father stepped up behind the formed crowd, slowly. He was distilled in an agony only a parent could know, ashamed and betrayed, having just watched Pinky cast aside all his life lessons. "Why, son?!" He barely said, overstruck by grief. Pinky tried to mouth something, but it only appeared as an imaginative gesture. The many shocked hating eyes froze those words and nailed them deep down his gullet.
  
@@ -128,7 +128,7 @@ Right behind them though, was his high school class queuing up, their ears obvio
  
 Cousins, uncles, family friends, teachers, butchers, shopkeepers, mailmen, carnival game touters. The town's parade of humility battered at him, their stares flogging him, one blow after the other.
  
-And then, even in death, his mother appeared before him exactly as if she were alive. She wore a particularly ugly dress with its own brand of horror. Unfashionable even in death, it made him even more depressed. Her body was frail, but stressed like her face, writhing in agony of disappointment. The look on her face was enough to melt him. "How could you..." the ghost whispered silently to the still air, then evaporated before him.
+And then, even in death, his mother appeared before him exactly as if she were alive. She wore a particularly ugly dress with its own brand of horror. Unfashionable even in death, it made him even more depressed. Her body was frail, but stressed like her face, writhing in agony of disappointment. The look on her face was enough to melt him. "How could you..." the ghost whispered silently to the still air, then evaporated.
  
 **
  

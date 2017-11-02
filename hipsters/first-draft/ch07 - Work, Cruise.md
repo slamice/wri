@@ -2,7 +2,7 @@ Chapter 7
 
 Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl from the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
-Alone, I threw away the other ticket and went to the Prof ((Some refernece to dock?)) on a Wednesday after work. A plastic Leigh was draped over my head, as if it were knighting me before stepping aboard. I walked slowly onto the yacht, a bit cautious, perhaps overly so, but one can never be too sure can they? I couldn't help but be excited though. I could see the city now from so many angles.
+Alone, I threw away the other ticket and went to the dock ((Some refernece to dock?)) on a Wednesday after work. Someone knighted me with a plastic leigh on my head as I stepped aboard.
 
 The older men and women had tattoos covering their biceps and thighs, tired of the idle chatter strategy. Their expressions and the color in their faces both ran, drained from conversing a life of tans and cocktails. The tiny younger crowd was vivid, each member giggling but unsure. They wrestled with basic facts, looking out over at the city and neighborhood waters. The buildings sipped the sky and the customer's plastic alcohol cups sipped them. There was a bit more to it but I wasn't paying attention.
 
@@ -78,9 +78,9 @@ While on the platform, I turned around and the Jewish bird smiled at him, head a
 
 She took a pause, ignoring me, and stuttered, "Th-there were a few of those, yea."
 
-I thought for a bit, "I mean there were some that were just, I don't know, like, 'in general' people. But there are always a few gems." And I gestured to her, throwing a flirt. But I forgot who I was, who Renee was for just that second. Suddenly the was an accident. Immediately my face embarrassed with my eyes looking away.
+I thought for a bit, "I mean there were some that were just, I don't know, like, 'in general' people. But there are always a few gems." And I gestured to her, throwing a flirt. But I forgot who I was, who Renee was for just that second. Suddenly it was an accident. Immediately my face embarrassed forcing my eyes to look away.
 
-We rode the train with a few other direly bored riders. They wore their experiences as if like they were shaken or beaten up. All of them were doing laundry, wearing the shirt they wear on the days they do laundry. I threw a few glances at the crowd, then snuch a few back at the bird.
+We rode the train with a few other direly bored riders. They wore their experiences as if like they were shaken or beaten up. All of them must have been waiting for the dryersbecause they wore the clothes they wore on laundry days. I threw a few glances at the crowd, then snuch a few back at the bird.
 
 "I didn't talk too much. You werked a... Sha-me technologies? SHA-ke? La-ke?" She pronounced slowly, stuttering, wavering like a rag on a rustled laundry line (clothespin).
 
@@ -88,13 +88,11 @@ We rode the train with a few other direly bored riders. They wore their experien
 
 She smiled wearily, "Yea I'm going to my brother's this weekend. We always fight over the car, but I'm getting it this time," she lifted her index finger high up above her nose, "I made sure of that."
 
-The train shook something off, and as it wavered the bird almost fell into me. I held her balance and got the last scent of her fading perfume. I held her there for a few seconds as she muttered a tiny appreciation and her webby red eyes smiled into mine. The train stopped and she got off chucking a goodbye.
-
----------- Plot change, Om leaves with Bird --------
+The train shook something off, and as it wavered the bird almost fell into me. I held her balance and got the last scent of her fading perfume. For a few seconds we held onto eachother's stiff shoulders. She muttered a tiny appreciation and her webby red eyes smiled into mine. The train stopped and she got off chucking a goodbye.
 
 But before the doors closed my chest tightened in a mess of guilt and nerves. I stepped out behind her and said "where are you going?"
 
-"I'm going to my apartment." She slurred and wobbled on her legs. She looked at my face and squinted like she was trying to find an object in a painting.
+"I'm going to my apartment." She slurred and wobbled. She looked at my face and squinted like she was trying to find an object in a painting.
 
 "How about we go for a coffee or something?"
 
@@ -108,23 +106,33 @@ She stood, silent and confused, leaning against a thick subway beam. "Ok, yea th
 
 "Why naut why naut..." she teased, as I half helped her up the steps.
 
-We went to a diner and barely chatted about nothing. Her head rolled around as she sobered up, all over the table and against the booth. She started bored and forced a few laughs, then eventually real ones.
-
-We bought two coffees in a random greek diner and looked at eachother. Her long nose and her straight dark hair betrayed her bloodshot eyes. Her skin looked cold, but I wasn't about to touch it yet.
+We bought two coffees in a random greek diner and looked at eachother. Her head rolled around as she sobered up, all over the table and against the booth. She started bored and forced laughs, then eventually real ones. Her long nose and her straight dark hair betrayed her dead eyes.
 
 "You work for a hedgefund."
 
-"I work for a hedgefund" she replied.
+"I work for a hedgefund" she grimaced.
 
 "How do you like it?"
 
-She looked down at her coffee and then up, smiling at me. Her smile reached through my mouth deep into my throat, and clutched my chest further.
+"It was all part of the plan."
 
-So an hour later she was much better, but while we were still tired, we walked down small twisted streets. We found a stoop and rested there before it became awkward.
+"Your life plan?"
 
-She told me more about her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she aimed for New York. She flailed and writhed until she perched on a branch at a hedgefund as a junior accountant. She's been friends with New York all her life.
+"My parents were fickle and wanted to abort me. So I decided to work at a hedgefund before I was born, hoping they'd catch wind of it."
 
-At that point I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling.
+It was ok but I didn't laugh, she loudly sipped her coffee. "It's about SURVIVAL." she growled, "Are you surviving?"
+
+It was a good question mostly because I wasn't sure, but she got back to it.
+
+
+
+She looked down at her coffee and then up. Her smile reached through my mouth deep into my throat and clutched my chest further. 
+
+She told me more. About her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she aimed for New York. She flailed and writhed until she perched on a branch at a hedgefund as a junior accountant. She's been friends with New York all her life.
+
+So an hour later she was much better, but while we were still tired, we walked down small twisted streets. We found a stoop and rested there before it became too awkward.
+
+At that point I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling. She took them out and messed my hair.
 
 "No fun" she puckered her lips and fell back a bit. "Where's your girlfriend?"
 
@@ -138,7 +146,11 @@ With too little hesitation (((make this less obvious))), "I don't have one."
 
 "I don't know didn't I te-, told you twice already."
 
-Pangs of guilt rapped with a crowbar or something against my stomach walls, and I felt them ringing. They were thick, heavy and hollow. Full of airy worry. They plumed inside, but I tried to use them to my advantage to fuel my intentions.
+A crowbar rapped the pangs of guilt rapped against my stomach walls, and I felt them ringing. They were thick, heavy and hollow. Full of airy worry. They plumed inside, but I tried to use the excitement to my advantage to fuel my intentions.
+
+"You want to know my name?"
+
+"No." She said.
 
 We were half asleep though, and after we kissed a few times I gave her a fake number which she lazily swore she'd remember and didn't look back.
 

@@ -16,6 +16,8 @@ So then there were parties. And then there was us. Shoved up against the outside
 
 "Band guy? Yea he's coming." I said.
 
+My next guess was Matt never shows up. He was usually late and occasionally we'd get pissed at him but we were usually late too. High expectations abound, no one was happy. At least we had cigarettes I didn't smoke.
+
 "What about Renee? Your girlfriend coming out?" Jack said it, but both him and Ryan gave some wicked smiles.
 
 "She's taking it easy tonight, she's got mono."
@@ -24,138 +26,66 @@ So then there were parties. And then there was us. Shoved up against the outside
 
 "Something you gave her?" Jack pulled out a small bottle and rubbed the lotion into his dotted eczema hands. We all noticed.
 
-
-I decided on my black ((skinny)) jeans that night. The kind your knees get cold in but you don't notice after a while. Made sure the (('dark', because he's telling it)) black jacket was up to par. It was pretty cold with all that. My body shifter in discomfort, I kept fidgeting past my usual number of fidgets. Looking, feeling dumb and horny.
-
-
------
-
-You know me enough to know I didn't smoke that night, or any night then. It's not like I was trying to be a saint or anything. It felt like a sad thing to do. I tink it's a depressant, actually. And yea I tried it. I smoked on and off for a few months. Renee did too, Renee did it a lot. We'd go somewhere and we'd literaly have to budget for coffee and cigarettes. All the time. And it ate away at my budget. and yellow fingers and teeth and all that cliche stuff. You don't notice it when you do it but when you're watching it you notice it more. But that stuff I only started noticing it recently though. You only get it when you do it for so long anyway.
-
------
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-------
+To me Mono sounded like the most convenient disease to get yourslef out of anything. You sit in bed until you're awake to sit in bed.
 
 Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marijuana for eternity. As for Jack, various college degrees tried to swoop down on him, but he was great at avoiding them. Eventually he gravitated towards a bachelors in philosophy and did nothing with it. He sported shoulder length hair, was often seen chittering occasionally wore no shoes. Jack reigned in his own world of canvases featuring surreal modern nude art. He was a pole in every way, quite a lanky questionable sort.
 
-Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blankly at both of them.
-
-(("Hey man can I have one?" Ryan asked.
-
-"You *just* had one." Jack muttered with a cigarette in his mouth.
-
-"So did you..."
-
-"But these are mine? Come on obviously you had a lot."
-
-"But *one* cigarette man. One," Ryan opened his dear deer eyes in the headlights style. His puppy face became more pronounced.
-
-"Ok, but you bummed the last one off me, you owe me two now." And Jack gave Ryan a peace sign. Ryan took it and the cigarette.))
-
-My next guess was Matt never shows up. He was usually late and occasionally we'd get pissed at him but we were usually late too. High expectations abound, no one was happy. At least we had cigarettes I don't smoke.
-
 We looked like a shitty polaroid. I started to drift from Jack and Ryan there. I invited them out but honestly I didn't know who depressed me more. These two were innocent compared to the hidden gems inside.
 
-A gaggle of girls approached us from a distant block. They wore black sneakers and various modern 80's memorobilia to critical acclaim of eachother.
-
-One of them I recognized, a quasi acquantince, Gala. Gala's face was a puzzle of cultures put roughly together to make the pieces fit then smoothed out, like the apple. Perhaps mutt parents living in mutt apartments over the score of two decades until she jumped off their restless ambitions to somewhat settle into a New York City alley. She was all smiles whenever I saw her, comfortable. She held a bike next to her, and I stared at her trying to get her attention. Whether she dilbertly ignored me was not debatable, so I called her on it.
-
-"Gala!"
-
-"Oh, Om?" Her mass of wavy hair shook back and standing on guard getting ready to be open for a small conversation. Gala's girls suddenly went quiet, wondering why I interrupted. Jack and Ryan walked themselves over. 
-
-"Hey..." Jack smiled, "it's been a while."
-
-"Hey, how are you guys? I've been good."
-
-"Yea, Gala... May I be so bold to say you look like you're doing well." and he nodded in appreciation to his compliment.
+Jack pulled out his lighter for the 3rd time and lit a cigarette. I looked blankly at both of them.
 
 
 
-The other girls stepped back and talked amongst themselves, slightly bored and antsy.
 
-"Do you see Prof anymore?"
 
-"Not really but we talk sometimes, off and on. You came up recently."
 
-I puzzled, "Why?"
 
-"It was when I was broke and I asked you to pick up something from his place."
 
-"I don't but "
 
----
 
-Someone tried to call me, my brother. I didn't feel like dealing with it. It wasn't a time to deal with it. But it had to be dealt with. Somehow. I took a few steps away from Jack and Ryan sloppiy shcmoozing Gaby and walked to a lean on the wall. I didn't dread what he was going to say, just if I was going to hear it or mishear it. Or if I was prepared to listen. Tons of little fears like that ate away at me, staring at me phone, at the people, at the distant traffic lights a few miles down the road. 
 
-"Hey how's it going?" My brother asked.
 
-"Yea?" I answered.
 
-"Listen I don't know if you're busy."
 
-"I'm not too busy, may be busy in a bit. Why what's up?"
 
-"Did you find anything out about your visa?"
 
-I sighed hard into the phone. I had little patience for it as it was, let a lone my brother bringing this up, and my Dad, and anyone else who cared enough to rub it in my face.
+Phone call
 
-"You will know when I get it. I'll sneak into the chrysler building and go to the top with and hold the top spike thing with one hand and shake it at the world."
 
-"Chrysler building? What's that anyway?"
 
-"I'm guessing it would be the least guarded one. Anyway, nevermind. I don't have it."
 
-"It's kind of important if you want to come back."
 
-"Is there a point to this?"
 
----
+
+
+
+
+
+
+
 
 
 We were there for another 20 minutes. They went in for a bit to check it out, but I could tell the two of them were getting finicky. Jack finished his cigarette in a few minutes and, "but seriously man I'm gonna bail. I'm really sorry, but I've got this thing with Sarah tonight and it's like you know me I'm sorry." His sentence bowed, shuffled and shrugged.
 
 "It's not a big deal, you don't have to apologize. I'll see you later though, like another night."
 
-"Really sorry I can't right now."  And he slowly walked off waving, with Ryan bumbling and lagging behind him whispering a "me too." Matt never showed up either.
-
-I revisited it because of Gala.
-
-------
+"Really sorry I can't right now." And he slowly walked off waving, with Ryan bumbling and lagging behind him whispering a "me too." Matt never showed up either.
 
 It was a grand time to be alone.
 
-How a show usually played out is posters went up in skate shops, coffee shops, really expensive barbershops. Each of these shops had only 3 items on their menus, those sort of places. Doors at 8, starts at 9. People know it really starts at 10. Bands keep waiting for their drinks and drunks. They go on at 11 or 11:30. It ends at 4am after the fourth band, but the police break it up at 3am. If the show ended earlier (at least by midnight) then fools would dance. Tonight was a bizarre switch from the usual rigamarol, a dance party instead of a show instead of はんたい. It was probably _a thing_ I guess.
+How a show usually played out is posters went up in skate shops, coffee shops, really expensive barbershops. Each of these had only 3 items on their menus, those sorts of places. Doors at 8, started at 9. People knew it really started at 10. Bands keep waiting for their drinks and drunks. They go on at 11 or 11:30. It ends at 4am after the fourth band, but the police break it up at 3am. If the show ended earlier (at least by midnight) then fools would dance. Tonight was a bizarre switch from the usual rigamarol, a dance party. It was probably _a thing_ I guess.
 
-And since it wasn't that kind of show though, we didn't technically really have to wait for anyone. It was 90's Dance night and that's a guaranteed win. Everyone there was an angry teenager ((then, ~in the 90's~)) wanting to dye some highlights into their memories. Then we were back in the future. But instead we had 60's pop remakes we forgot about on the radio. Mix that with rap and they're in vogue again. It was one night only until the next 90's dance party five months from then.
+And since it wasn't that kind of show though, we didn't technically really have to wait for anyone. It was 90's Dance night and that's a guaranteed win. Everyone there was an angry teenager wanting to dye some highlights into their memories. But instead we had 60's pop remakes we forgot about on the radio. Mix that with rap and they're in vogue again. It was one night only until the next 90's dance party five months from then.
 
 By now people stupided towards the door, a few already drinking, a few more warming up with headbands. Some beards were abound, a few lit up.
 
-I flew in profusely like an uncaged canary. Past suit vests. Shirts with "savior" and "moron" emboldened in front of crowds. Some bumped into me accidentally and intentionally. A few jeered at nothing then laughed.
+I took a breath then flew in profusely like an uncaged canary. Past suit vests. Shirts with "savior" and "moron" emboldened in front of crowds. Some bumped into me accidentally and intentionally. A few jeered at nothing then laughed.
 
 The party was a pagan dance. 90's theme be damned. Someone threw up the 60's, 70's, 90's (but mostly the eighties) onto some far and not finely aged wasted teenage bodies. Everyone was clad with chababyness. The dance floor was surrounded with quotation marks. Fashion was ripe with faux-paus chic and undeniable clashing that somehow made the word "tacky" look tame. Two were dancing the robot like humans. Straight out of Wonderland were Alices in all colors of the rainbow. A ghostbuster did a violent shuffle near a spinster, backpack jigging and all.
 
 Many weirds and beards shot each other, the digital polaroids barely drying between takes. Mouths were open, strung out on jargon, cheap beer and dance music. Some girls made a few soft-core poses, each holding a meaningless subliminal message.
 
 I scanned through the crowds casually. The lights were dim and confused, spraying in every other direction. I recognized a few passing faces in passing.  A few more prominent and active members ignored me. I made a hard nod at one girl made tapestries. Finally Selina waded into the crowd. I caught fleeting glimpses of Selina's roommate Adrian and her periodic boyfriend. They were lost in a few ways, most prominently in dancing.
-
------
 
 "What's up and yo?" Selina and I pounded hands and laughed. She donned light flannel and a grey cap.
 
@@ -174,11 +104,6 @@ What was popular possibly eons ago started to play again. We danced a few jigs a
 "She couldn't make it tonight, she has mono."
 
 "Sorry to hear that."
-
-To me Mono sounded like teh most convenient disease to get yourslef out of anything. You sit in bed until you are awake. I've known a few people who claimed to have it then sat around all day.
-
----------
-
 
 About 20 minutes later Selina's friend Adrian formed out of thin air and pulled Selina by the arm miming a smoker. I followed them outside, and the cold air hit us once again.
 
@@ -281,9 +206,39 @@ He ignored me briefly, but then breathed out without looking at me "about half a
 
 "I've been tired before I even got here." I chuckled truthfully, but it was impossible to know if he was listening. He didn't look at me yet or ever again and left it at that. He walked away straight faced, taking his bloodshot eyes with him. I mulled that over in my head, and I only heard silence above the muttering people and the droning music.
 
-Parties like these were brutally exhausting without something substantial to dull me. Weed was usually the norm but light drinking was another option I took up. I never overindulged, but inhaled just enough to feel like it was working. Two beers were enough for me that night.
+Parties like these were brutally exhausting without something substantial to dull me. Weed was usually the norm but light drinking was another option I took up. I never overindulged, but inhaled just enough to feel like it was working. 
 
-So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a native indian prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked cars. A couple, if they were that legitimately, startled me with their discreet argument as I passed by a random car.
+On my way back from the kitchen someone motioned me over. Her large brown hair teased out curly at the end. She had an incredibly beautiful smile was brighter than that kitchen could have ever hoped to be. She was still wearing her trenchcoat, an army greenjacket and some shorts. Our hug smelled like liquorice and was just as strong.
+
+"Hey Gala."
+
+"Hey."
+
+Think lost look but radiant. Prof, another loose friend and Jack's roommate, woo'ed her by leaving a note for her in an internet cafe, "You make me want to be better one day, I could be so awesome with you."  Prof gloated about it afterwards like that's all it took. She wasn't thoroughly disgusted and they began dating off and on.
+
+She confirmed she was still silk screening since the last party I talked to her at a few weeks before. 
+
+"Prof around?"
+
+"I don't know is he?"
+
+"Maybe, I don't know."
+
+She bit her lip in pretend frustration. She was trying to ask me something, she could have asked anything of me really and I would have gladly followed through.
+
+"You going to see him anytime soon? I hear he's living with Jack now."
+
+"Well, can I ask a favor?"
+
+"A favor. You want me to do something for him?"
+
+"No, we're, not really talking right now. Haven't been for a while. It's why I need my mail from him. My last cheque went to his address, I wanted to know if you went by you could pick it up for me."
+
+"I don't know where you live now."
+
+She opened her purse and took out a ballpoint penning the back of my hand with her number. "If you do go, just call me and I'll swing by wherever. I'm not sure what to do at this point." Her breathe grazed my face as I looked into her grannysmith green eyes. ANd I said I'd see what I could do. We drifted shortly after that.
+
+So I left Selina at the party and I walked home. My steps were slow and my direction was mostly aimless. I counted the buildings I passed and the people who stood outside the few clubs that remained open. I passed a prostitute who puffed up her boobs into the hole of her v-neck. I passed by the many overnight parked cars. A couple, if they were that legitimately, startled me with their discreet argument as I passed by a random car.
 
 I was sketched out, my hands were in my pockets, my right gripping my keys and flipping through them.
 

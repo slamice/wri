@@ -45,7 +45,7 @@ Gets struck in face by a teenage gang, had to move away
 
 
 
-Renee and I were walking back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we haven't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
+A week or two after the party Renee and I were walking back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we haven't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
 
 "We should at least stop by to visit them."
 
@@ -131,6 +131,8 @@ Jack muttered in, "Yea they had auditions and yeeeeaaaa I can do that." but then
 Jack must have felt the weird tension? How often did this situation occur, lovers of the past and present fight it out with passive aggressive blows. Probably fairly often but still. Andy and I hadn't talked in months. Our last conversation, typical of Andy, was how the universe was expanding but could barely accommodate anyone even though the people in it were dying. Andy knew I was Renee's latest best friend supposably. He was sullen, apathetic at first glance, nothing unusual. But I'm sure it *dug* deep into him.
 
 In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leaf through the records to feel busy.
+
+A pile of brochures and mail were stacked near the records too, and I peeked at them while I thought the others were busy with the nothing they were doing ((did)). Under some final sales and subscriptions was one with Gala's name on it. I folded it and stole it quickly into my back pocket and continued to rummage through Ataria Teenage Riot and The Microphones.
 
 Renee was talking with Andy excitedly again about nothing in particular, in this case her mother.
 

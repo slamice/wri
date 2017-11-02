@@ -8,7 +8,7 @@ Much before then he fled alone with a million people on a boat, but could never 
 
 Samir's body exhausted. Today and everyday he labored around the city disguised as a normal person within Midtown. He travelled hundreds of blocks for a reason; he was lucky enough to get work and knew it. His days were spent hidden behind salad bars breaking sweats through lunch rushes. Later, he panted over pants in a laundromat. Particularly hairy, every day the sweat clung to his back until dark and finally let go. One long wet pet.
 
-Everyday he rode the train but recognized no one. And no one recognized him back.
+Everyday he rode but recognized no one. And no one recognized him back.
 
 The conductor coughed in, and Samir assumed he was bored because he pronounced the train stops delicately with a joking coo. Every station name and _next stops_ were getting a few chucklettes from passengers. "Nereid Avenue" was announced next with a quiet whine.
 
@@ -113,8 +113,6 @@ When his stomach felt hunger pangs and his eyes opened he saw only a single pers
 "No one forcing you ta stay here. You can ge' off anytahm."
 
 The conductor breathed out something unpronounceable as they slowed to a stop. The lady got up pushing past Samir without another word. A rush of cold air gushed in Samir's face. Between huge white pillars a sign read "Алекса́ндровский сад". He saw her hobble off as the doors slid closed, bobbling bravely away on the bright cold concrete. Her darkness contrasted the sea of white, looking more lonesome on the platform as he sped away. A single period on a clear page.
-
-Samir wasn't sure anymore if there was anyone driving.
 
 He sat for another hour while the train stopped at places which meant nothing to him. Each time a door opened a new bland painting revealed itself. Frustrated, he ran his hand through his hair weighing his choices. The train will never go back. Never.
 

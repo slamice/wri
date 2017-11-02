@@ -1,4 +1,15 @@
-Huck Out West
+Huck Out West - Robert Coover:
+
+Take away was style. Coover really captured the style of speaking from Huck Finn. The plot is an ongoing neverending trollop.
+
+
+
+
+
+
+The War of Art: Break Through the Blocks and Win Your Inner Creative Battles - Steven Pressfield
+
+The Course of Love - Alain de Botton
 
 You Get So Alone at Times That it Just Makes Sense
 
@@ -21,3 +32,13 @@ Total Leadership: Be a Better Leader, Have a Richer Life - Stewart D. Friedman
 The Grand Weaver - Ravi Zacharias
 
 The Glass Castle - Jeannette Walls
+
+The Architecture of Happiness - Alain de Botton
+
+Crossing to Safety - Wallace Stegner
+
+Bäume. Betrachtungen und Gedichte - Hermann Hesse
+
+Steppenwolf - Hermann Hesse
+
+Siddhartha - Hermann Hesse

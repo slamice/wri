@@ -8,7 +8,6 @@ He goes to a Dance party
 to breakfast
 to work
 to a concert
-he writes letters to Taylor Adams on his life and loneliness
 plays a concert
 he gets drunk
 He turns down marrying Renee
@@ -20,11 +19,10 @@ Jack
 - Makes art
 - Adds to the story with his nonchallant persona. He is very well part of the machine and as with everyone else, completely indifferent. You can imagine how gross he is.
 
-Dock:
+Prof:
 - Angry philosopher
 - Works as a cook and does odd jobs
-- Thinks he is a rock God
-- Doesn't understand him and finds a reason to try to destroy him
+- Thinks he is a God of knowledge
 
 Andy:
 - Very rough guy
@@ -42,3 +40,5 @@ Selina:
 Adrian:
 - Coffee shop girl
 - Loves to be embedded in hipster culture and the center of attention
+
+Mik:
