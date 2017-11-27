@@ -1,56 +1,56 @@
 Chapter 12
 
-	Mik's office was cubed off in a corner with designer clout and magic. Truly a proud achievement of corporate culture on the march of progress. One Friday morning he called me in to be an obstruction.
+Mik's office was cubed off in a corner with designer clout and magic. Truly a proud achievement of corporate culture on the march of progress. One Friday morning he called me in to be an obstruction.
 
-	We chatted about Mik's family and work gossip, and the morning light brightened our conversation with happy notes. It was closely followed by coffees and teas and toast and jam and kids laughing and subtle nuances. All of it was going down a long disgusting wholesome drain.
+We chatted about Mik's family and work gossip, and the morning light brightened our conversation with happy notes. It was closely followed by coffees and teas and toast and jam and kids laughing and subtle nuances. All of it was going down a long disgusting wholesome drain.
 
-	"Mind closing the door for a second?"
+"Mind closing the door for a second?"
 
-	Quickly all his jokes vanished, scurrying scared into all nooks of the room then out the door before it shut. Mik's skin somehow paled further, an incredible feat for a native Belgian. His eyes grew sunk in and hollowed out. His stare told me You Need to Love What You Do. YNTWYD.
+Quickly all his jokes vanished, scurrying scared into all nooks of the room then out the door before it shut. Mik's skin somehow paled further, an incredible feat for a native Belgian. His eyes grew sunk in and hollowed out. His stare told me You Need to Love What You Do. YNTWYD.
 
-	"Maybe we should talk about you."
+"Maybe we should talk about you."
 
-	"I know I can do this." I forced a timid smile to my lips. I practiced it in the mirror a few times in case a day like that would come, but it failed me.
+"I know I can do this." I forced a timid smile to my lips. I practiced it in the mirror a few times in case a day like that would come, but it failed me.
 
-	"The longer you take to figure that out the more time you're wasting. And not just your time." He was staring at me dead on, I was so surprised by it I barely noticed his shoulder shrug. He smiled back at me unapologetically. I wondered if he enjoyed our entire talk earlier revealing itself to be a sham.
+"The longer you take to figure that out the more time you're wasting. And not just your time." He was staring at me dead on, I was so surprised by it I barely noticed his shoulder shrug. He smiled back at me unapologetically. I wondered if he enjoyed our entire talk earlier revealing itself to be a sham.
 
-	"How about we give it a month? That's plenty of time right? We can talk then."
+"How about we give it a month? That's plenty of time right? We can talk then."
 
-	I took a deep look out the window, and again he smiled, "a month, right? Let's see."
+I took a deep look out the window, and again he smiled, "a month, right? Let's see."
 
-	Walking back to my desk, my chest heaved a sigh. All the holed jeans and lattes the world chugged out were thrown to the floor. The company's pathetic cups and free snacks waded down a stream. They were tasteless garbage. Nauseous, my anxieties played me as the words and symbols danced the rest of the day around my screen. Only then did I notice the background; a picture of an intimidating mountain top.
+Walking back to my desk, my chest heaved a sigh. All the holed jeans and lattes the world chugged out were thrown to the floor. The company's pathetic cups and free snacks waded down a stream. They were tasteless garbage. Nauseous, my anxieties played me as the words and symbols danced the rest of the day around my screen. Only then did I notice the background; a picture of an intimidating mountain top.
 
-	In the office bathroom after a tasteless lunch. The mirror was speckled with dust and bits of floss aftermath. A headache stirred up, my mind reeled it in slowly until it nestled snug right behind my immediate thoughts.
+In the office bathroom after a tasteless lunch. The mirror was speckled with dust and bits of floss aftermath. A headache stirred up, my mind reeled it in slowly until it nestled snug right behind my immediate thoughts.
 
-	I waved at the faucet to spray out a tiny cold shower. Each drop threw itself dying on my hands, rolling dead down the drain. Maybe I'd dilute my shock with Michael, he wouldn't understand but he'd listen. That's not what happened, anyway.
+I waved at the faucet to spray out a tiny cold shower. Each drop threw itself dying on my hands, rolling dead down the drain. Maybe I'd dilute my shock with Michael, he wouldn't understand but he'd listen. That's not what happened, anyway.
 
-	A coffee run excuse could work, but when I approached his desk he was hunched over, in such a deep foreboding mood that it made me guess his age again. His fingers heavily smashed down each key to a black & white screen messed with text. It was a clear sign of frustration to remove all the syntactical sugar, the rainbow of colors that highlighted special parts of the code to aid in development. His workplace was stripped completely to a bare nothing at all to make things cleaner and run faster. I then noticed, besides his jacket, piles of notes thrown out in some desperate plea to start over.
+A coffee run excuse could work, but when I approached his desk he was hunched over, in such a deep foreboding mood that it made me guess his age again. His fingers heavily smashed down each key to a black & white screen messed with text. It was a clear sign of frustration to remove all the syntactical sugar, the rainbow of colors that highlighted special parts of the code to aid in development. His workplace was stripped completely to a bare nothing at all to make things cleaner and run faster. I then noticed, besides his jacket, piles of notes thrown out in some desperate plea to start over.
 
-	I was seconds away from tapping him on either shoulder but, in a sudden rage, he erected himself furiously to the ceiling and tore the laptop from its cords. He slammed it on the desk again and again, spitting out fuckword after fuckword. A few pieces of the machine and his curses flew to the floor, and neighboring cubicle-ers hid behind their walls, peeking. He walked out miserable right by me to the exit. His laptop lay in a mildly unpleasant electronic heap, a box with a broken frame.
+I was seconds away from tapping him on either shoulder but, in a sudden rage, he erected himself furiously to the ceiling and tore the laptop from its cords. He slammed it on the desk again and again, spitting out fuckword after fuckword. A few pieces of the machine and his curses flew to the floor, and neighboring cubicle-ers hid behind their walls, peeking. He walked out miserable right by me to the exit. His laptop lay in a mildly unpleasant electronic heap, a box with a broken frame.
 
-	 We all stared at his leave in confusion. I thought briefly about following him with the crowd but no one else did. The entire office simply looked at eachother, mulling over the scene. Slowly the sounds of typing started up, and they forgot.
+ We all stared at his leave in confusion. I thought briefly about following him with the crowd but no one else did. The entire office simply looked at eachother, mulling over the scene. Slowly the sounds of typing started up, and they forgot.
 
-	I gave him a few minutes then found him outside, looking up at the sky with what was probably his second cigarette. "How bad was it?" He spoke quietly, smoke danced above his shaking hand.
+I gave him a few minutes then found him outside, looking up at the sky with what was probably his second cigarette. "How bad was it?" He spoke quietly, smoke danced above his shaking hand.
 
-	"It was basically like watching a one sided fight."
+"It was basically like watching a one sided fight."
 
-	"I'm resigning obviously."
+"I'm resigning obviously."
 
-	"For what?"
+"For what?"
 
-	"For what."
+"For what."
 
-	We lay (leaned) against the concrete and watched the people rush by, our hearts hanging in our throats. I wondered what those people wanted? The lady with the stroller, an angry lawyer, a skateboarder as they disappeared behind corners into oblivion. And then again a thousand others appeared in their place.
+We lay (leaned) against the concrete and watched the people rush by, our hearts hanging in our throats. I wondered what those people wanted? The lady with the stroller, an angry lawyer, a skateboarder as they disappeared behind corners into oblivion. And then again a thousand others appeared in their place.
 
-	"Maybe," hmm... "Maybe you have to redefine what winning means?"
+"Maybe," hmm... "Maybe you have to redefine what winning means?"
 
-	His eyes finally met mine, a long look that got longer, "Winning doesn't mean anything anymore."
+His eyes finally met mine, a long look that got longer, "Winning doesn't mean anything anymore."
 
-	"What do you want to do?"
+"What do you want to do?"
 
-	He breathed out heavily and I mimicked him.
+He breathed out heavily and I mimicked him.
 
-	"I _didn't want_ to change Om. But I gave up a piece of myself to be here. I had no choice but, maybe it was a mistake."
+"I _didn't want_ to change Om. But I gave up a piece of myself to be here. I had no choice but, maybe it was a mistake."
 
 	The rest of the day slogged. Two weeks later Michael was gone.
 

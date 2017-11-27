@@ -35,17 +35,17 @@ He also decided to take up the challenge of smoking which he practiced twice a d
 
 "A buy in. It means free food and a ride around Liberty island for whoever wants to hear lectures on how great it'll be to pay hundreds of dollars a month to a gym they won't go to."
 
-Michael itched his beard, "I think I've got to take care of my sister's kid that night."
+Michael itched his beard, "I think I've got to take care of my kid that night."
 
-"A free cruise. It's a free something. Think about it. I don't want to go alone." 
+"You have to take care of your kids every night. It's a free cruise, a free something. Think about it. I don't want to go alone." 
 
-"I'll go then."
+"You're not taking your girl?"
 
+"She won't go."
 
+"That's kind of weird isn't it? Turning down a free cruise?"
 
-
-
-
+"Let me know what you decide."
 
 
 
