@@ -8,6 +8,21 @@ Take away was style. Coover really captured the style of speaking from Huck Finn
 
 
 
+
+
+
+
+My Name is Red - Orhan Pamuk, Erdağ M. Göknar
+
+
+Paddy Clarke Ha Ha Ha - Roddy Doyle
+
+The Way of the World – Nicolas Bouvie
+
+A High Wind in Jamaica - Richard Hughes
+
+Out of Africa - Karen Blixen
+
 The New York Trilogy - Paul Auster
 
 Man and His Symbols - Carl Gustav Jung

@@ -7,7 +7,7 @@ A light beard because he's too lazy to shave most of the time
 Olive colored skin
 Looks 'cute', not neccessarily good looking
 hands are dry and itchy in the winter. They bleed from eczema.
-Hair is kept in a fashionable cut, something that cost him close to 50 dollars. It's borderline hipster.
+Hair is kept in a fashionable cut, something that cost him close to 50 dollars. It's completely hipster.
 
 
 Body looks:
@@ -21,17 +21,16 @@ Clothes:
 - When he goes to work he wears his light v-neck sweater and black pants.
 
 
+
 Beliefs:
 - He's into how he looks, fashionable and a bit vain.
 - He's lazy and self-centered.
 - He is vaguely muslim and doesn't pray much. He wants to be more Zen, perhaps with meditation.
 - Trying to determine his direction.
 
-
-
-
-
-
+Weaknesses:
+- Lust
+- Fitting in
 
 What changes him:
-- 
+- The world he tries to fit in to rejects him

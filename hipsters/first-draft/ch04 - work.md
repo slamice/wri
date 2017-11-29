@@ -10,7 +10,7 @@ Before work I crept down there to the receptionist. She bore a velodrome of over
 
 She gave me the mail in a heap. "Read 'em and weep!" she laughed hard.
 
-Another week. The government shrugged and said nothing. They weren't thinking of me, they didn't miss me.
+Another week and no visa. The government shrugged and said nothing. They weren't thinking of me, they didn't miss me.
 
 
 
@@ -57,10 +57,9 @@ Michael itched his beard, "I think I've got to take care of my kid that night."
 
 
 
-boss
+I felt the clock eat away at us diligently as we ran around trying to ignore the bitemarks.
 
-
-The clock ate away at us diligently as we ran around trying to ignore it.
+Explaining why my work was lackluster is pretty difficult. What did I want out of it? I went to school to do it, a determination to "succeed". But what I really wanted was to live the way I wanted to live. To be free from the work and grind each of these cogs assaulted on each other. SO I worked, and project timelines slipped, untli I was knee deep in requests and chages to our project that I didn't related to.
 
 
 

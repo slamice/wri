@@ -94,9 +94,18 @@ Dawa: The entire system is wrong!
 
 Travis: It's Matt's Fault.
 
-Dawa: Matt left the company!
+Dawa: Matt left the company! I left the company!
 
 Travis: Well, technically it's Matt's fault.
+
+================
+
+~ Narrator: And then all the way
+
+Travis: We're gonna build an army...
+
+Films frontend engineers quietly working for 20 seconds
+
 
 ================
 

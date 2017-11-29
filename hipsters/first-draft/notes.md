@@ -9,7 +9,9 @@ Need to introduce Gala here for letter.
 
 2nd:
 
-Important to meet Andrew and take letter from Prof to set ending punch. Set upi Jack as an artist, will have a gallery showing eventually (say when?)
+Set up Renee dynamic
+
+Important to meet Andrew and take letter from Prof to set ending punch. Set up Jack as an artist, will have a gallery showing eventually on his birthday (say when?)
 
 3rd:
 

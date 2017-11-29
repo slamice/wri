@@ -15,4 +15,6 @@ But the ant stopped, clearing its throat,
 
 Notes:
 
-You guys, I just C((K))an't
+You guys, thanks for hearing my rant
+
+But, right now, I just C((K))an't

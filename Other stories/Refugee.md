@@ -2,7 +2,7 @@ The real reason she left was the bullet in the chest. It wasn't fatal but when s
 
 I rewrote her resume a few times. She refugeed for months in Boston as a receptionist right after a short stint hiding in Pakistan. He visa status shifted a few times.
 
-She ended up in Washington D.C. working . She bunked with an Armenian
+She ended up in Washington D.C. working. She bunked with an Armenian
 
 "Listen, I think Friday is better for me. I have lots of work today."
 

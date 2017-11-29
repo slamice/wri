@@ -1,8 +1,20 @@
 CHAPTER 2
 
-I met Renee with him when they were still dating eachother. It was on the subway. We came from different directions, We were on our way to a house party and her and Andrew's car were on the other track. She finally showed up with him. I looked in as our cars passed each other, into a floating room of people. It felt evasive and vouyourish. The cars sped on until much later. I only remember her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night.
+Renee never went to those parties anymore. Thre was a time when you'd see her out, my guess was when her and Andrew were having tougher times with eachother. The times that tapered towards the end.
 
-The party was a ton of leaning. ((Against furniture, walls... That's it.)) The conversations were hefty doses of unreality. We philosophized about who worked where in the city, really, and what that entailed.
+
+
+
+A year before I stared out my subway train window. Riding through the unlit New York underground was like dropping yourself in a hole. It was all black beams and creatures under the cover of darkness ((maybe make description fit better to Om's character and personality here, better wording for metaphor)). They were the only thing visible until we miraculously emerged into civilization. All the riders pretended this was normal. 
+
+
+At one point the tracks merged together. You could see another train traveleing through the ether drifting towards you. No one made the effort of spying on the person in the other car lest they be mistakenfor a vouyer creep or perv. But I looked and recognized Andrew and the girl with him as we floated next to eachother for a few seconds. We were both headed to the same party. Her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night. She took a quick glance through the glass back at me before the train ripped itself back onto a different further track. I decided to meet them at the party instead of the next station, so I made a slow retreat.
+
+That curl in her lip caught me, and what must have been a shirt she silk screened herself brazened with "Youngtitled" (("Zentitled")). The air of her control over the conversation with Andrew intrigued me. The curl in her post conversation smile, sure the glint in her eye and whatever. I wondered how lucky Andrew was or how determined Renee was to find a taller guy.
+
+
+
+In a random flat in eat Bushwick laid a party with a ton of leaning. ((Against furniture, walls... That's it.)) The conversations were hefty doses of unreality. We philosophized about who worked where in the city, really, and what that entailed.
 
 "Non profit Radio station Manager"
 
@@ -14,7 +26,27 @@ The party was a ton of leaning. ((Against furniture, walls... That's it.)) The c
 
 "..."
 
-""
+These weren't answers the answerers appeared to support. Because the words crept out of their mouths slowly. Some leaked liek drool embarassingly, others crawled down like spiders once a lip flap was open. Most were unamused by their words, happy to have divulged it and talk about how small their apartment rooms were in attics and kind ((pitying?)) peoples' comfortable couches.
+
+Andrew approached me and while I wondered who he knew, he bemused me over a few philosophies on life he was saving to relay on somebody. His girl came over, introduced herself and her post conversation smile, and we discussed the facts.
+
+"So how long have you lived here?" She asked ((with a genuine routine in her voice)).
+
+"It's been six years. I got my diploma and am working now in a public setting."
+
+"You like the states?"
+
+"I feel like I've been here all my life." Was a relaxing revelation. Unlike many it wasn't difficult to have gotten here, especially with a work visa, but nicer to forget the war I hated talking about. You know it well, I'm sure. It was fulll of brave idiots and cowards. Fear was boredom. I forget it all the time, easier since I wasn't fully in it but my parents felt it on me.
+
+
+
+
+
+
+
+
+
+
 
 
 
