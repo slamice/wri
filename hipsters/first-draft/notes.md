@@ -29,7 +29,6 @@ Go on a long walk without Renee, set up Renee dynamic.
 
 1. Renee is a user, uses Om (maybe uses the indian "Om"?) as an excuse
 2. Suspects holding citizenship over his head.
-3. 
 
 6th:
 

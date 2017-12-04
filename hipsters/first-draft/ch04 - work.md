@@ -85,8 +85,6 @@ Explaining why my work was lackluster is pretty difficult. What did I want out o
 
 
 
-
-
 On the platform was a performer dressed in a full suit playing drums. He sang reggae as he played. I didn't know him but that man had troubles and all that I'm sure. Otherwise he wouldn't play Jamaican music in the subway. But watching him closely, his eyes were loose and unsettled staring every which way, I was unsure how he could play calming music. ((I wondered if he was climbing out of his hole or further in it.)) A friend of mine form university learned how to play the marimba in Zimbabwe. I asked her what thier songs were about since the high notes sounded so chipper. But they were all depressing songs, abuot mourning and death. Maybe this Jamacican man was winging it.
 
 

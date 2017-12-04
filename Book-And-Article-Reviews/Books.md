@@ -2,6 +2,7 @@ Huck Out West - Robert Coover:
 
 Take away was style. Coover really captured the style of speaking from Huck Finn. The plot is an ongoing neverending trollop. Very plot propelled narrative.
 
+Character development: Huck did simply have a natural born tendency to 
 
 
 
@@ -11,9 +12,9 @@ Take away was style. Coover really captured the style of speaking from Huck Finn
 
 
 
+The Conscience of a Liberal - Paul Krugman
 
 My Name is Red - Orhan Pamuk, Erdağ M. Göknar
-
 
 Paddy Clarke Ha Ha Ha - Roddy Doyle
 
