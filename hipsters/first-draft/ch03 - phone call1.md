@@ -22,11 +22,15 @@ He coughed some static into the phone then replied quite loudly, "Hey son! Long 
 
 I could hear my Dad breathe heavy into the phone, which is weird because he never jogged.
 
-
-
 "Do you want to talk to your mother?"
 
 "I kind of have to go though I'm busy right now."
 
-I nodded in the right places and waited.
+"I see son. You are busy."
+
+"I'll call her later seriously. You can't imagine what it's like here."
+
+"Ok, well let us know son, we are waiting."
+
+I nodded in the right places and waited. A few I love you's were exchanged, and we hung up. I hung up first.
 

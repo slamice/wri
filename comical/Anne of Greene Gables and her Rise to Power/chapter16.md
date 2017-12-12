@@ -1,3 +1,19 @@
+- Descriptions of places
+
+- Check out more parodies
+
+
+
+
+
+
+
+
+
+
+
+
+
 Chapter 16. Diana Is Invited to Tea with Tragic Results
 
 Anne stared the summer sun down and now collected the rotting foliage, the trees fallen yellow tears shed from the weather's mirth to the earth. The Fall began, one Anne lest best forget.

@@ -38,7 +38,32 @@ Andrew approached me and while I wondered who he knew, he bemused me over a few 
 
 "I feel like I've been here all my life." Was a relaxing revelation. Unlike many it wasn't difficult to have gotten here, especially with a work visa, but nicer to forget the war I hated talking about. You know it well, I'm sure. You recall it was full of brave idiots and cowards. Fear was boredom. I forget it all the time, easier since I wasn't fully in it but my parents felt it on me so they were happy for me to leave.
 
-That lip curl was a three parter, because her smile came together like a jigsaw puzzle as we talked, each piece dropping in slowly.
+That lip curl was a three parter, because her smile came together like a jigsaw puzzle as we talked, each piece trying to fit itself in. 
+
+She rolled up her sleeves and I asked "Is that a birthmark on your arm?"
+
+"No it's a bruise."
+
+"How did you get that?"
+
+"I got it through living life. It's a life mark. You get it through experience, not when you're being born."
+
+
+
+
+
+
+
+After she broke up with Andy plus a week or two, we started taking these long walks. Walks across Brooklyn. On them she dumped everything she knew on me. Not her childhood memories and memoir, not exactly. Not her entire life. Carefully curated battles and mysterions that circled her victimhood. She lived off dollar vegetables she bought in chinatown for months, cockroaches crawling on her lips at night in her closet room when she slept, her father never loved her, etc. At the time I thought it bizarre to divulge such secrets, but only later realized they were to be taken as evidence, someone had finally come to save her from it all. It was flattery and pity. 
+
+I didn't want to admit needing her. She was beautiful, was struggling regardless of how, and had been through hard to harder times.
+
+
+A mutual acquintance of hers, Jacob, worked for a shifty landlord owning a row of warehouses with offices above each of them. The rent was cheap and the walks weren't far from the transit. So together a month or two in to dates her lease was up and she moved in with me. It was quick but, there was a prevailing loneliness in my life. My attic apartment then, looking out on sidewalks where every night shadow creatures invaded and reminded me of the crime per neighborhood ratios. They took my aside and tried to reason with me. I'd lived through worse but the decision was obvious in the moment.
+
+So Jacob helped us out. We were cornered off on the edge of Bushwick. A few blocks away were high rises and cafe's where the rich purged their money. But we didn't want to afford a high rise, couldn't anyway. We ended up living above a limo dispatch breaking multiple zoning laws. Our mail was to be delivered to their office no one the wiser. 
+
+Unfortunately shortly after Jacob ignored saying hello to a harrassing high school gang, so they took offense and fractured his face with a rock. His entire philosophy of life shifted after they put a metal plate in cheek. After re-examining his existence he moved to a ranch in the mountains, leaving Jack, Prof and eventually Andy the keys to a huge skylighted room littered with sheet metal.
 
 
 
@@ -49,23 +74,6 @@ That lip curl was a three parter, because her smile came together like a jigsaw 
 
 
 
-
-
-
-
-
-Through some sick friendly incest he ended up living on our block. We both had an in with a friend of a friend who worked for the landlord hseet welding.
-
-Gets struck in face by a teenage gang, had to move away
-
-"Is that a birthmark on your arm?"
-
-
-
-
-
-
-After she broke up with Andy plus a week or two, we started these ong walks. Walks across Brooklyn. On them she dumped everything she knew on me. Not her childhood memories and memoir, not exactly. Not her entire life. Looking back I realized they were carefully curated battles and mysterions that circled her victimhood. She lived off dollar vegetables she bought in chinatown for months, cockroaches crawling on her lips at night in her closet room when she slept, her father never loved her, etc. At the time I thought it bizarre to divulge such secrets, but only later realized they were to be taken as evidence of her victimhood, someone had finally come to save her from it all.
 
 
 
@@ -166,21 +174,21 @@ Jack must have felt the weird tension? How often did this situation occur, lover
 
 In the corner were a few Kerouac novels Jack was fond of. Next to those were records piled on the ground. Glancing at the titles, they were mostly 80's new wave or early 90's American noise rock. Their jackets were worn and tired. I started to leaf through the records to feel busy.
 
-A pile of brochures and mail were stacked near the records too, and I peeked at them while I thought the others were busy with the nothing they were doing ((did)). Under some final sales and subscriptions was one with Gala's name on it. I folded it and stole it quickly into my back pocket and continued to rummage through Ataria Teenage Riot and The Microphones.
+A pile of brochures and mail were stacked near the records too, and I peeked at them while I thought the others were busy with the nothing they were doing ((did)). Under some final sales and subscriptions was one with Gala's name on it. I folded it and stole it quickly into my back pocket and continued to rummage through Camper Van Beehtoven and The Microphones.
 
 Renee was talking with Andy excitedly again about nothing in particular, in this case her mother.
 
-"She's still there in her house. Do you remember when you snuck in to wait for me?"
+"- and she's still at that house. Do you remember when you snuck in to wait for me?"
 
 "Yea, I remember her look."
 
 "I never heard this. So what happened, he broke in?" Jack intevened. Then I thought I saw Renee give Andy a potential flirt, maybe not living up to its fullest but it was definitely made available. I sat there questioning its authenticity when she answered.
 
-"He climbed in through the window because he thought I was asleep but I was out then (doing what?). So he waited in the bathtub because he was ridiculous, not expecting my Mom to come back that weekend and walk through the door. I think she was at some kind of 'start your business' seminar."
+"He climbed in through the window because he thought I was asleep but I was out then getting cigarettes. So he waited in the bathtub because he was ridiculous, not expecting my Mom to come back that weekend and walk through the door. I think she was at some kind of 'start your business' seminar."
 
 "She didn't like it." Andy's voice crept back in on top of Renee's.
 
-"You were crazy for doing that! You were crazy. She was pretty crazy too. I'm sure I told I used to wait for her for hours after school for her to pick me up. They worried about me then. She was always running errands."
+"You were crazy for doing that! You were crazy. She was pretty crazy too. I'm sure I told I used to wait for her for hours after school for her to pick me up. People worried about me then. She was always running errands."
 
 How he could use a new type of herbal medication. How she's woken up sick with a rash on her face down to her arm, bed struck and unable to go work. Prof brooded in the shadows not saying anything, and I could see a silhouette putting on some black blurry headphones.
 
