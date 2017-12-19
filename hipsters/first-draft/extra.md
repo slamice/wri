@@ -298,3 +298,20 @@ I sighed hard into the phone. I had little patience for it as it was, let a lone
 "Is there a point to this?"
 
 ---
+
+
+She would complain sometimes of chest pain,
+
+"Heart problems maybe." I smiled at her, "but let's be honest, who doesn't have problems with their heart.
+
+
+
+
+
+
+
+------
+
+The novel is about the loneliness we create for ourselves and what we aspire to do in our lives. A man us stuck between a world he thinks he wants and responsibility.
+
+We will make matsutake gohan to try them first. If the texture is good enough.

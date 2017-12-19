@@ -1,14 +1,10 @@
 CHAPTER 2
 
-Renee never went to those parties anymore. There was a time when you'd see her out, my guess was when her and Andrew were having tougher times with eachother. The times that tapered towards the end.
+Renee never went to those parties anymore. There was a time when you'd see her out, my guess was when her and Andrew were having rougher and tougher times with eachother. The times that tapered towards the end were like her emerging past spectre status into a sort of lime light. She didn't exude beauty but she held tightly onto her confidence. Her personality ruled conversations and she had great hair.
 
+Because two year prior I stared out my subway train window. Riding through the unlit New York underground was like dropping yourself in a hole. It was all black beams and creatures under the cover of darkness ((maybe make description fit better to Om's character and personality here, better wording for metaphor)). They were the only thing visible until we miraculously emerged into civilization. If the train stuttered and took longer than a ten minute wait, we'd panic inside. Those with appointments would glance at the time every other moment, we'd fret and there'd be plenty of fidgeting. And then we'd move on, as if the conductor thought it was necessary.
 
-
-
-Two year prior I stared out my subway train window. Riding through the unlit New York underground was like dropping yourself in a hole. It was all black beams and creatures under the cover of darkness ((maybe make description fit better to Om's character and personality here, better wording for metaphor)). They were the only thing visible until we miraculously emerged into civilization. If the train stuttered and took longer than a ten minute wait, we'd panic inside. Those with appointments would glance at the time every other moment, we'd fret and there'd be plenty of fidgeting. ANd then we'd move on, as if the conductor thought it was necessary.
-
-
-At one point the tracks merged together. You could see another train traveleing through the ether drifting towards you. No one made the effort of spying on the person in the other car lest they be mistakenfor a vouyer creep or perv. But I looked and recognized Andrew and the girl with him as we floated next to eachother for a few seconds. We were both headed to the same party. Her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night. She took a quick glance through the glass back at me before the train ripped itself back onto a different further track. I decided to meet them at the party instead of the next station, so I made a slow retreat.
+At one point the tracks merged together. I could see another train traveleing through the ether drifting towards me. No one made the effort of spying on the person in the other car lest they be mistakenfor a vouyer creep or perv. But I looked and recognized Andrew and the girl with him as we floated next to eachother for a few seconds. We were both headed to the same party. Her tiny mouth laughing in between sentences of pursed lips. I even saw her teeth that night. She took a quick glance through the glass back at me before the train ripped itself back onto a different further track. I decided to meet them at the party instead of the next station, so I made a slow retreat.
 
 That curl in her lip caught me, and what must have been a shirt she silk screened herself brazened with "Youngtitled" (("Zentitled")). The air of her control over the conversation with Andrew intrigued me. The curl in her post conversation smile, sure the glint in her eye and whatever. I wondered how lucky Andrew was or how determined Renee was to find a taller guy.
 
@@ -59,35 +55,17 @@ After she broke up with Andy plus a week or two, we started taking these long wa
 I didn't want to admit needing her. She was beautiful, was struggling regardless of how, and had been through hard to harder times.
 
 
+
+
+
+
 A mutual acquintance of hers, Jacob, worked for a shifty landlord owning a row of warehouses with offices above each of them. The rent was cheap and the walks weren't far from the transit. So together a month or two in to dates her lease was up and she moved in with me. It was quick but, there was a prevailing loneliness in my life. My attic apartment then, looking out on sidewalks where every night shadow creatures invaded and reminded me of the crime per neighborhood ratios. They took my aside and tried to reason with me. I'd lived through worse but the decision was obvious in the moment.
 
 So Jacob helped us out. We were cornered off on the edge of Bushwick. A few blocks away were high rises and cafe's where the rich purged their money. But we didn't want to afford a high rise, couldn't anyway. We ended up living above a limo dispatch breaking multiple zoning laws. Our mail was to be delivered to their office no one the wiser. 
 
-Unfortunately shortly after Jacob ignored saying hello to a harrassing high school gang, so they took offense and fractured his face with a rock. His entire philosophy of life shifted after they put a metal plate in cheek. After re-examining his existence he moved to a ranch in the mountains, leaving Jack, Prof and eventually Andy the keys to a huge skylighted room littered with sheet metal.
+Unfortunately shortly after Jacob ignored saying hello to a harrassing high school gang they took offense and fractured his face with a rock. His entire philosophy of life shifted after doctors put a metal plate in his cheek. He re-examinined his existence and moved to a ranch in the mountains leaving Jack, Prof and eventually Andy the keys to a huge skylighted room littered with sheet metal.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-A week or two after the party Renee and I were walking back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we haven't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
+Renee and I walked back to our makeshift apartment when we saw a light was on ahead of us. Since we moved in we hadn't visited Jack and his friends. I hadn't seen him since the dance party. He lived with Andy and Prof. If you're wondering then yes, Prof is not his real name. He had one that was slightly more embarassing but fairly uninteresting.
 
 "We should at least stop by to visit them."
 
@@ -99,26 +77,9 @@ A week or two after the party Renee and I were walking back to our makeshift apa
 
 "Yea but that's old! That was ages ago. I mean he used to get really mad but he's getting in a better place. He's moving to a BETTER PLACE in his life. Can't you see that?"
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 We walked underneath their window and before another protest Renee yelled up for Andrew. From the second floor Jack's sleepy face poked out, and sleepier voice yelled down "Yeah he's here. Come up!". Jack's girlfriend, a squirrelly girl named Sarah came down to open the door, her hair a bushel and her front teeth just slightly bucked.
+
+I could have walked off but Gala tapped me on my shoulder and reminded me she needed me. She was hungry and cold, shivering in a fraying sweater. So I followed them up holding a blank face in front of my own. The wooden stairs creaked as we carefully up them.
 
 Andy's apartment was a desolate. It was a single huge room he lived in with Jack and Prof. Each of the three bedrooms were quarantined off with shower curtains. The ceiling was low. Anyone taller than 6 feet could only stand upright in the very middle of the apartment under one of two windows, the skylight. It was a bit hard to imagine the place designed for anything but a mess. Littered on the floor were Prof's coffee mugs and cappuccino cups. Jack's paints were next to them with beer bottles, cigarette trays complete with ash, nails and chipped wood. Signs of Andrew were everywhere but his main manifest was a pile of philosophy and spiritual books. The lighting, as with all of the lighting within the industrial area we lived in, was a depressing florescent.
 
@@ -205,3 +166,37 @@ After about twenty minutes of this, I signaled to Renee I was leaving. She waved
 "He's a part of my life. You have to accept that. I've known him for so long."
 
 And she tried to bring me back, "Hey! Come on! Don't worry of course I still love you. I'm with _you_ now! Come on!" I made a shut up smile. We walked back slowly in silence to the limo office, the only sound were Renee's inner thighs rubbing against each other wearing down her jeans.
+
+"I'm going to the store for a bit. By the guitar shop."
+
+"Can you get me cigarettes?"
+
+"I'm not buying you cigarettes."
+
+"Why not?"
+
+"Don't you have enough?"
+
+She was defiant "Hey I'm cutting back. Why are you watching me so close anyway? Shouldn't you be worried about yourself? You're just bones Om. How about you eat more?"
+
+I shut the door and tredged off, signalling Gala. To my surprise she agreed to come immediately since she was only minutes from my area. We agreed to meet down a few streets near an alley a few families of crows owned, far enough from the general direction of our friends and enemies.
+
+Who I saw under the light was a different person though. Gala's face lit the the corner and held a tenderness I hadn't noticed before.
+
+"You got the money?" I smiled.
+
+Her horrible imitation of a shady hooligan said "Yea I got your money if you got the stuff" and she laughed. I saw Her teeth you'd see them with every hard laugh, her mouth opening wide like an aligator's so you'd see them all. Perfect pearls.
+
+"You living with anyone right now?"
+
+"Yea I'm bunking with a friend. You know Ming?"
+
+She looked at me waiting for an answer because the implicit no wasn't enough. I made her wait to watch her a bit longer. "How long is this fight with Prof gonna last, or is it quits?"
+
+"I'd rather not talk about that." And her joy crawled back inside herself, but her  blush remained on her cheeks.
+
+"I really hope you enjoy the eighty seven or so dollars in change from the unemployment office." I dared. She looked down the empty street and her shoulders fell. ((Om thinks she's acting but she may not be acting, his interpretation. Lots like this to make more obvious in subtle ways)).
+
+I reached into my jacket and suddenly Gala was a careful watcher. The hand to my jacket, hand to the envelope, to her hand, to my face. She sounded out thank you in a voice so sincere it must have been practiced.
+
+Then she drifted off over the warehouses barely missing the streetlight. She floated above the east river, over the spiked concrete, her angel wings almost catching on a flag pole, back into the sky where she came from. My chest unfroze inhaling the winter back in, and I marched single-file back to my apartment a new slave.

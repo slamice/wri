@@ -20,7 +20,13 @@ He coughed some static into the phone then replied quite loudly, "Hey son! Long 
 
 "Enjoying it, is that the question? It's hard here."
 
-I could hear my Dad breathe heavy into the phone, which is weird because he never jogged.
+I could hear my Dad breathe heavy into the phone, a bit out of breathe. Which was weird because he never exercised.
+
+"Did you run or something Dad?"
+
+"Yes son, I did run. I'm always running everywhere getting things for the family."
+
+
 
 "Do you want to talk to your mother?"
 

@@ -120,7 +120,7 @@ An eyebrow raised a chuckle, "then why order coffee?"
 
 "A latte is thicker so it'll keep me warmer."
 
-I drank it as my head slowly began to hurt. The milk was heavy and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness woulc be there to weigh down the rest of my day.
+I drank it as my head slowly began to hurt. The milk was heavy and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness would be there to weigh down the rest of my day.
 
 "Adrian's not working tonight looks like."
 
@@ -130,7 +130,13 @@ I drank it as my head slowly began to hurt. The milk was heavy and felt heavy go
 
 "You don't want to go? I'd totally be up for it."
 
-Selina shrugged, "kind of, but wanted to take it easy tonight. Take it easy."
+I shrugged, "kind of, but wanted to take it easy tonight. Take it easy."
+
+((heart problems, kind of important part here, move to another section?))
+
+Selina coughed and clutched her chest. Her fits were minor asthma leftover from her childhood. "So annyoing..."
+
+"Heart problems maybe, not dangerous at all." I smiled at her, "let's be honest, who doesn't have problems with their heart?"
 
 On my way out I ordered Renee's latte. Selina's haze started to brighten up, 
 

@@ -2,7 +2,7 @@ Huck Out West - Robert Coover:
 
 Take away was style. Coover really captured the style of speaking from Huck Finn. The plot is an ongoing neverending trollop. Very plot propelled narrative.
 
-Character development: Huck did simply have a natural born tendency to 
+Character development: Huck did simply have a natural born tendency to do good. The only thinghe grew to hate was moderinzing capitalistic people, cowboys... True cowboys.
 
 
 
@@ -11,6 +11,31 @@ Character development: Huck did simply have a natural born tendency to
 
 
 
+
+
+
+
+
+
+
+
+
+
+It's Ok Not to Share and Other Renegade Rules for Raising Competent and Compassionate Kids - Heather Shumaker
+
+The Sense of an Ending - Julian Barnes
+
+Eleven Kinds of Loneliness - Richard Yates
+
+Revolutionary Road - Richard Yates
+
+Admirable Evasions: How Psychology Undermines Morality - Theodore Dalrymple
+
+The Mathematical Theory of Communication - Claude Shannon, Warren Weaver
+
+Thérèse Raquin - Émile Zola
+
+Short stories by Charles Bukowski
 
 The Conscience of a Liberal - Paul Krugman
 

@@ -13,8 +13,12 @@ Another week and no visa. The government shrugged and said nothing. They weren't
 
 
 
+On the subway train
+
+The hues on a winter subway are all the variations of black you can imagine. The people transform into them but they're all really the same still. The bizarre silence mingled with coughs and low groans, the sniffles.
 
 
+As we headed up I look down at the stairs to avoid watching the climbing asses dancing in front of me.
 
 There were so many people heading to work ((still)) they blocked the light out completely until I got out. The army of commuters dispersed and I followed my usual route to our 43rd street office and found a hulking Michael out front with a stub between his fingers.
 
