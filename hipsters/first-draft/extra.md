@@ -315,3 +315,83 @@ She would complain sometimes of chest pain,
 The novel is about the loneliness we create for ourselves and what we aspire to do in our lives. A man us stuck between a world he thinks he wants and responsibility.
 
 We will make matsutake gohan to try them first. If the texture is good enough.
+
+
+===================
+
+I remembered the letter then, stuck to the back of my jean's pocket. It felt wet with sweat. 
+
+
+
+
+
+
+I'm sorry mom. Sometimes I forget myself.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+=============
+
+Not sure what you expect. You're probably exhausted(( I'm sure)). I can't imagine, honestly. Maybe it's selfish, I thought about it. But I'm so tired. Maybe not as much but, I'm tired. I'm so tired.
+
+=============
+
+I told you because I'm not sure you will wake up. Not for me. Not for now.
+
+------------
+
+I don't know what's scarier If you stay asleep after hearing all of this, or if you wake up?
+
+------------
+
+you know i'm telling this like a story but you remember Dad, at least I hope you don't when you wake up.
+
+I wish I could say that I see the rain coming down hard outside now. That the cold air looks like biting but it just looks like teeth shattering from in here, starving.
+
+
+
+
+
+
+
+Maybe I was wasting my time, but now I know I was wasting yours.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+---------------
+
+
+The anger gathered up inside me to scream. But to who? To what? There are no answers here. It was an abandoning. I succumbed to these fucking shitty people while my mother lay dying abandoned by my father. You can blame all teh world at that point. You can point your finger in the air and wish everyone including God dead and you'd be the sanest person of every passer by. But those rules don't apply to everyone, only to your sad sorry lonely self. What a fucking hypocrite.

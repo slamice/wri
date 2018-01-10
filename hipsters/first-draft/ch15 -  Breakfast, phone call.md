@@ -129,9 +129,13 @@ pause.
 
 And we hung up.
 
+At some point in the phone call my stomach to the brim with heaviness and my mouth was very dry. 
 
+No holding back. No end and no coming back. A tight noose around my neck. I squated down on the sidewalk feeling a few hot tears roll down, absently watching the people stroll by absent in their own heads as was I in mine. My face was beet red and dry.
 
+Eventually Selina wondered why I was gone for almost half an hour and came out. She blocked the sun and stared at me while the deaf weirds and beards trotted behind her.
 
+I stared back at her and shook my head. My nose was cold.
 
 
 
@@ -146,16 +150,13 @@ And we hung up.
 
 
 
-===================
 
-I remembered the letter then, stuck to the back of my jean's pocket. It felt wet with sweat. 
 
 
 
 
 
 
-I'm sorry mom. Sometimes I forget myself.
 
 
 
@@ -168,59 +169,6 @@ I'm sorry mom. Sometimes I forget myself.
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-=============
-
-Not sure what you expect. You're probably exhausted(( I'm sure)). I can't imagine, honestly. Maybe it's selfish, I thought about it. But I'm so tired. Maybe not as much but, I'm tired. I'm so tired.
-
-=============
-
-I told you because I'm not sure you will wake up. Not for me. Not for now.
-
-------------
-
-I don't know what's scarier If you stay asleep after hearing all of this, or if you wake up?
-
-------------
-
-you know i'm telling this like a story but you remember Dad, at least I hope you don't when you wake up.
-
-I wish I could say that I see the rain coming down hard outside now. That the cold air looks like biting but it just looks like teeth shattering from in here, starving.
-
-
-
-
-
-
-
-Maybe I was wasting my time, but now I know I was wasting yours.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
----------------
 
 
 

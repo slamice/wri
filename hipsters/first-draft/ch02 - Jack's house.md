@@ -199,4 +199,4 @@ She looked at me waiting for an answer because the implicit no wasn't enough. I 
 
 I reached into my jacket and suddenly Gala was a careful watcher. The hand to my jacket, hand to the envelope, to her hand, to my face. She sounded out thank you in a voice so sincere it must have been practiced.
 
-Then she drifted off over the warehouses barely missing the streetlight. She floated above the east river, over the spiked concrete, her angel wings almost catching on a flag pole, back into the sky where she came from. My chest unfroze inhaling the winter back in, and I marched single-file back to my apartment a new slave.
+Then she drifted off over the warehouses barely missing the streetlight. She floated above the east river, over the spiked concrete, her angel wings almost catching on a flag pole, back into the sky where she came from. I held my breathe until she was gone from sight, then inhaled the winter back in, marching single-file back to my apartment a new slave.

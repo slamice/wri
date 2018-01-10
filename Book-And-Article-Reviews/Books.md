@@ -2,7 +2,9 @@ Huck Out West - Robert Coover:
 
 Take away was style. Coover really captured the style of speaking from Huck Finn. The plot is an ongoing neverending trollop. Very plot propelled narrative.
 
-Character development: Huck did simply have a natural born tendency to do good. The only thinghe grew to hate was moderinzing capitalistic people, cowboys... True cowboys.
+Character development: Huck did simply have a natural born tendency to do good. The only thing he grew to hate was moderinzing capitalistic people, cowboys... True cowboys.
+
+100 years of solitude - Gabriel García Márquez:
 
 
 
@@ -16,10 +18,21 @@ Character development: Huck did simply have a natural born tendency to do good. 
 
 
 
+The Conquest of Happiness - Bertrand Russell, Daniel C. Dennett
 
+Models of My Life - Herbert A. Simon
 
+It's Ok Not to Share and Other Renegade Rules for Raising Competent and Compassionate Kids - Heather Shumaker
 
+The No Asshole Rule - Robert I. Sutton
 
+God and the Philosophers: The Reconciliation of Faith and Reason - Thomas V. Morris
+
+All Art is Propaganda: Critical Essays - George Orwell, George Packer, Keith Gessen
+
+Proust Was a Neuroscientist - Jonah Lehre
+
+A Writer's Book of Days: A Spirited Companion & Lively Muse for the Writing Life - Judy Reeves
 
 It's Ok Not to Share and Other Renegade Rules for Raising Competent and Compassionate Kids - Heather Shumaker
 

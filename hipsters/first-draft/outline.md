@@ -91,6 +91,7 @@ Gabby:
 
 
 
+We recognize 
 
 
 
@@ -100,8 +101,8 @@ Gabby:
 
 
 
-
-
+- Idea is Om digs his own grave.
+- Mother's condition echoes his descent, moral element of story
 
 
 

@@ -4,3 +4,8 @@ I think in his unwritten rules was one clause completely overwritten. One of his
 
  I was crying so much the snot was drooling all the way to the floor, likcin gthe ground collecting dirt.
 
+---------------
+
+About rumors, attitudes:
+- How they influence people ultimately.
+- 
