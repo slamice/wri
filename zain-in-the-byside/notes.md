@@ -7,6 +7,28 @@ Three magical things:
 - Knives sharper than diamond
 - Material making the inside bigger than it is on the outside
 
+------------
+
+Zain and the by side
+
+Zain
+
+
+Zain's parents
+Zain's uncle
+Nyc mayor
+Mr. Husk
+Mr. Husk daughter
+By side mayor
+Stuff in book:
+Three lane street bustling
+Upside down walking with trolleys in the middle
+Eating extinct animals
+
+
+
+
+
 
 
 
@@ -308,8 +330,9 @@ Zain tries to runaway, falling down trap doors.
 
 
 
+------------
 
-
+"We have people dying in the streets! For no reason! They're just walking, to work or wherever, and suddenly they're dead in a grave."
 
 
 

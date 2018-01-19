@@ -18,6 +18,14 @@ Character development: Huck did simply have a natural born tendency to do good. 
 
 
 
+The Social Animal: The Hidden Sources of Love, Character, and Achievement - David Brooks
+
+Mount Analogue - René Daumal
+
+How to Read a Book - by Mortimer J. Adler
+
+Pre-Suasion: A Revolutionary Way to Influence and Persuade - Robert B. Cialdini
+
 The Conquest of Happiness - Bertrand Russell, Daniel C. Dennett
 
 Models of My Life - Herbert A. Simon
