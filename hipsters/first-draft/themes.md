@@ -11,3 +11,9 @@ Demons are still around while you're singing.
 - Taking accountability is imporant. Choosing to be smarter then you are, ignorance, priveledge, or self loathing just digs a deeper hole for yourself.
 
 - Cannot escape your past, need to face it to resolve it.
+
+
+
+==========================
+
+One of the main themes is wasted water. Water pours down drains unused, lost within seconds. Reflects lost chances and situations.

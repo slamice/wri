@@ -40,6 +40,33 @@ Samir questioned his sanity. Maybe they were going back, back to the end of the 
 
 For hours they travelled down the only direction the train knew in a hurry, practically leaping across the runway. The conductor's voice grew harder and harder to understand, not from teh static but from teh bronounciations. Samir began to give up when it announced "Cowcaddens" and "Ibrox".
 
+==================
+
+One of the car doors opened, and it was an authority. The policeman was standing in his clothes, stopped at the beginning of the doors and talked above the quiet crowd.
+
+"Alright everyone checking tickets. Checking tickets. Everyone have theirs out."
+
+People shuffled through their pockets, fishing out all kinds of things from their jackets and pants. Some pulled out metro cards like Samir's. Others pulled out tickets Samir didn't recognize. The officer went through them in glances. He brought the ticket right up to his face then flicked it back at the rider.
+
+Samir handed him his ticket as he passed by. The officer was about tomove on but then yelled back at Smair, "Where are you going?"
+
+"241 street."
+
+"Let's see your papers, buddy."
+
+"Papers?"
+
+"Your passport? Something that allows you to be here traveleing all over the place."
+
+Samir hands him a newspaper
+
+Officer reads it eating it with a sandwhich, some of it drips on his paper. He crunches it up and throws it away.
+
+"Ok sure"
+
+
+==================
+
 A rhythm formed whenever the doors flew open and closed, while the newly arriving singles and families grew paler and then darker then paler again. What was animated just before smiling faces, laughs, banal chats and even kisses were replaced seconds later when the train massaged all from existence. Everyone fell under the spell. The Spanish family remained seated and the lady remained in the corner, reading a newspaper that materialized out of her bag a moment ago.
 
 Eventually the tunnel lights grew lighter again. Samir slumped in his seat as they flushed deeper into the tunnel. Once they emerged, the walls were cleaner than any station he'd seen in New York or anywhere. The receiver twinkled out a few bright sounds, a clear low solemn voice pronounced "Valcarca" in an accent. The Spanish family got out excitedly while a few small crowds parked themselves orderly on seats and in corners.

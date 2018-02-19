@@ -28,7 +28,9 @@ A coffee run excuse could work, but when I approached his desk he was hunched ov
 
 I was seconds away from tapping him on either shoulder but, in a sudden rage, he erected himself furiously to the ceiling and tore the laptop from its cords. He slammed it on the desk again and again, spitting out fuckword after fuckword. A few pieces of the machine and his curses flew to the floor, and neighboring cubicle-ers hid behind their walls, peeking. He walked out miserable right by me to the exit. His laptop lay in a mildly unpleasant electronic heap, a box with a broken frame.
 
- We all stared at his leave in confusion. I thought briefly about following him with the crowd but no one else did. The entire office simply looked at eachother, mulling over the scene. Slowly the sounds of typing started up, and they forgot.
+He stod over it all, defeated and tried.
+
+We all stared at his leave in confusion. I thought briefly about following him with the crowd but no one else did. The entire office simply looked at eachother, mulling over the scene. Slowly the sounds of typing started up, and they forgot.
 
 I gave him a few minutes then found him outside, looking up at the sky with what was probably his second cigarette. "How bad was it?" He spoke quietly, smoke danced above his shaking hand.
 
@@ -52,19 +54,21 @@ He breathed out heavily and I mimicked him.
 
 "I _didn't want_ to change Om. But I gave up a piece of myself to be here. I had no choice but, maybe it was a mistake."
 
-	The rest of the day slogged. Two weeks later Michael was gone.
+((I could tell the way he smashed his laptop that it also took a chunk out of him.))
 
-	...
+The rest of the day slogged. Two weeks later Michael was gone.
 
-	That weekend Renee walked to a park for a wedding and towed me along. The bride to be worked with Renee briefly relabeling expired medicine. They had coffee a few times and she slipped in an invitation. We were familiar with everyone else going too, not all by name but barely by face. They were extras in parties either of us frequented.
+...
 
-	Saturday early winter weather nipped at us while afternoon traffic kept us company on our way there. As we began to we walk we began to enjoy our silence. Unfortunately halfway there she reached for my hand and held it firmly, as if anticipating a jailbreak.
+That weekend Renee walked to a park for a wedding and towed me along. The bride to be worked with Renee briefly relabeling expired medicine. They had coffee a few times and she slipped in an invitation. We were familiar with everyone else going too, not all by name but barely by face. They were extras in parties either of us frequented.
 
-	The ceremony took place in a small park by swings and bocce fields but just far enough to avoid interrupting a game. There were enough picnic tables for the thirty or so of us. The food waited patiently under plastic, but the people were already antsy at the half an hour late laggers.
+Saturday early winter weather nipped at us while afternoon traffic kept us company on our way there. As we began to we walk we began to enjoy our silence. Unfortunately halfway there she reached for my hand and held it firmly, as if anticipating a jailbreak.
 
-	We could see a few of the elders wore suits but most knew better. Renee's ladybug skirt leggings bunched at her knees. I wore a casual button up with rolled up sleeves, but only because I forgot one of the buttons were missing.
+The ceremony took place in a small park by swings and bocce fields but just far enough to avoid interrupting a game. There were enough picnic tables for the thirty or so of us. The food waited patiently under plastic, but the people were already antsy at the half an hour late laggers.
 
-	The bride's parents were fidgeting. Her mother's spidery brooch slowly ate at her black shirt jacket, but she didn't notice because her nose was pulled shamelessly so high up to the sky by a fish hook. She shook, smiling and distraught for her daughter. Her face and wrinkled forehead plush was on thick. Her father was just as decorated. He was too distracted counting the unmet expectations around him. I felt a kinship grow towards him throughout the day.
+We could see a few of the elders wore suits but most knew better. Renee's ladybug skirt leggings bunched at her knees. I wore a casual button up with rolled up sleeves, but only because I forgot one of the buttons were missing.
+
+The bride's parents were fidgeting. Her mother's spidery brooch slowly ate at her black shirt jacket, but she didn't notice because her nose was pulled shamelessly so high up to the sky by a fish hook. She shook, smiling and distraught for her daughter. Her face and wrinkled forehead plush was on thick. Her father was just as decorated. He was too distracted counting the unmet expectations around him. I felt a kinship grow towards him throughout the day.
 
 	The modern couple bore exact resemblance to each other holistically. They met on a boat to Governors Island eight years ago. Their dreams together were spent in cafes, camping and back in her French hometown. She accentuated every mutilated English word and he drank them all in, a bit dripping into his beard. 
 

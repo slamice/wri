@@ -84,7 +84,7 @@ I leaned against a wall wit my back to it. My eyes closed and imagined my Dad on
 
 At about that time I paced myself slower trying to time how late I'd be. I remember going in a haze, the buildings around me didn't exist as I stared at the ground or nothing. That's when I lifted a penny off the world and put the grimy thing in my pocket. This was money on the ground, pure value. Over the years I made quite a heap. Probably around sixty dollars. The change was all in a small jar. I never really felt I needed it though. It's the one thing I don't leave someone. Because no one wants the small, immediate minute pennies.
 
-It was late but the dark cafe was still pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played risk in corners.
+It was late but the dark cafe was still pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played risk in corners. Each table had a giant pinecone on it.
 
 Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
 
@@ -137,6 +137,12 @@ I shrugged, "kind of, but wanted to take it easy tonight. Take it easy."
 Selina coughed and clutched her chest. Her fits were minor asthma leftover from her childhood. "So annyoing..."
 
 "Heart problems maybe, not dangerous at all." I smiled at her, "let's be honest, who doesn't have problems with their heart?"
+
+"My mom is no exception." I said casually.
+
+"Oh my god is your mom ok? I don't know anything about your mom."
+
+"She's fine, they think it's something small ((would he say benign?)). Nothing to be worried about. ((why mention it then?))"
 
 On my way out I ordered Renee's latte. Selina's haze started to brighten up, 
 

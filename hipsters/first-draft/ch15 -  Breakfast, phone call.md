@@ -51,7 +51,7 @@ Who the we was I'll never know. At this point I felt like a painting in Selina's
 
 My phone hummed my brother was calling me. It seemed uneventful at the time. And I sluggishly floundered to pick it up.
 
-"Hey. I said."
+"Hey Ilias." I said.
 
 "Hey" he said back.
 
@@ -85,9 +85,9 @@ I hesitated, "A note."
 
 My older sister piped up, her voice grew louder and eventually my brother put her on speaker "He's basically selfish. It's probably the most selfish thing you can do. What does he figure? He's a damn coward."
 
-She went on and on. About how he never lover our mother, or her, or any of us. How he worked all the time and his porn habit and his flirting and the fights he and her had. I seriously tried to pay attention to her this time, but my mind trailed off. First it debated reality, then sat wondering what to do.
+She went on and on. About how he never lover our mother, or her, or any of us. How he worked all the time and his porn habit and his flirting and the fights he and her had. I seriously tried to pay attention to her this time, but my mind trailed off. First it debated reality, then sat wondering what to do. During a silence Ilias took the chance and grabbed back the phone.
 
-"We asked the doctor how long she'll be here. They said they could send her home in a week or two but she'll have to come back again."
+"We asked the doctor how long she'll be here. They said they could send her home in a week or two or a month or two, tehy don't know. But she'll have to come back again."
 
 "You talk to Uncle ((Armenian name))?"
 

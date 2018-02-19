@@ -40,3 +40,4 @@ I could hear my Dad breathe heavy into the phone, a bit out of breathe. Which wa
 
 I nodded in the right places and waited. A few I love you's were exchanged, and we hung up. I hung up first.
 
+Mom, heart problem.

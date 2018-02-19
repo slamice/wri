@@ -1,3 +1,34 @@
+
+He felt he had little in common with her but that look, the one she made when she stared at him. He could match it. And that they knew how alone they were in the world and it was a solemn feeling. They shared that and they could lie against each other and not say a word, holding hands even, facing oblivion. And that was it.
+
+-----
+
+He didn't know if she was like that with anyone else. But tried to forget she was any different. He tried to ward off thoughts of what her sex with her husband was like with her.
+
+
+
+-----
+
+She bundled herself up under her hat and knit boots.
+
+As they walked back from Times Square she held his arm. He felt her small breast wedged up against his arm through their jackets. She stared at the ground. Her smile was distant but somehow made her cuter instead of lost.
+
+He tried not to stare at her too long in case she noticed. His heart kept telling him she was beautiful. She never noticed though, busy with her phone, busy with her thoughts of work, of the next day.
+
+"I miss you" he whispered.
+
+"Me too." she whistled out, her voice was wound up tight on a string.
+
+-------
+
+He got in the subway and it whisked him far into queens. Someone sat opposite to him. A beautiful curly haired blonde with leg warmers and a soft shy skin tone. They didn't talk and never met each other again.
+
+
+
+
+-------------------------------------------------------------
+-------------------------------------------------------------
+
 He remembered her dormitory bed was simple, minimalist and empty ((except for us)).  A towel covered the entire thing and then a thin sheet on top of that.It's where they lied thinking, a few times even holding hands. Her hand was warm and was the softest thing in his mind. Nothing else in teh room mattered really, it was mostly empty. With them on the bed, fully clothed, contemplating life, the future and their relationship to the world for the first time every time again and again. She was as lost as he was as she was as he was.
 
 Her ex-boyfriend then was a popular topic. Another time She found two tickets to a movie, a bad one, in his wallet when he went back to Korea.

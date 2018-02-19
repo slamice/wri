@@ -42,7 +42,7 @@ She rolled up her sleeves and I asked "Is that a birthmark on your arm?"
 
 "How did you get that?"
 
-"I got it through living life. It's a life mark. You get it through experience, not when you're being born."
+"I got it through living life. It's a lifemark, not a birthmark. You get it through experience, not when you're being born."
 
 
 
@@ -196,6 +196,11 @@ She looked at me waiting for an answer because the implicit no wasn't enough. I 
 "I'd rather not talk about that." And her joy crawled back inside herself, but her  blush remained on her cheeks.
 
 "I really hope you enjoy the eighty seven or so dollars in change from the unemployment office." I dared. She looked down the empty street and her shoulders fell. ((Om thinks she's acting but she may not be acting, his interpretation. Lots like this to make more obvious in subtle ways)).
+
+"Eigthy dollars can't by me anything, but it's the thought that counts."
+
+
+
 
 I reached into my jacket and suddenly Gala was a careful watcher. The hand to my jacket, hand to the envelope, to her hand, to my face. She sounded out thank you in a voice so sincere it must have been practiced.
 
