@@ -1,24 +1,48 @@
-Huck Out West - Robert Coover:
+Connected: The Surprising Power of Our Social Networks and How They Shape Our Lives - Nicholas A. Christakis, James H. Fowler
 
-Take away was style. Coover really captured the style of speaking from Huck Finn. The plot is an ongoing neverending trollop. Very plot propelled narrative.
+Too Loud a Solitude - Bohumil Hrabal
 
-Character development: Huck did simply have a natural born tendency to do good. The only thing he grew to hate was moderinzing capitalistic people, cowboys... True cowboys.
+War is a racket 
 
-100 years of solitude - Gabriel García Márquez:
+Listen Liberal 
 
+A Writer's Book of Days: A Spirited Companion & Lively Muse for the Writing Life - Judy Reeves
 
+Notes if a native won - James Baldwin
 
+Thinking about Thinking - Antony Flew
 
+An Illustrated Book of Bad Arguments - Ali Almossawi, Alejandro Giraldo
 
+A Treatise of Human Nature - David Hum
 
+The Forsyte Saga - John Galsworthy
 
+Travels with Charley: In Search of America - John Steinbeck
 
+Elmer Gantry - Sinclair Lewis
 
+The Remains of the Day - Kazuo Ishiguro
 
+Late Fragments: Everything I Want to Tell You (About This Magnificent Life) - Kate Gross
 
+Common as Air: Revolution, Art, and Ownership - Lewis Hyde
 
+The Occupy Handbook - Janet Byrn
+
+Cormac McCarthy - All the Pretty Horses
+
+The Age of Reason - Jean-Paul Sartr
+
+Blood Meridian - Cormac McCarthy
+
+How to Create a Mind: The Secret of Human Thought Revealed - Ray Kurzweil
+
+The Name of the Wind - Patrick Rothfuss
 
 The Social Animal: The Hidden Sources of Love, Character, and Achievement - David Brooks
+
+All Art Is Propaganda - George Orwell
 
 Mount Analogue - René Daumal
 
