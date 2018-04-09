@@ -16,3 +16,7 @@ The only thing he had from his grandmother, which was her father's ruler. It was
 -----
 
 His window didn't face teh street but an alley that he never saw anyone in. It was between his building and his neighbor's. Just a dark grey empty court with nothing inside.
+
+------
+
+The BySide is poor because so much money goes into concealing, spying and maintenance. Tearing down old buildings doesn't help them.

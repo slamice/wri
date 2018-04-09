@@ -6,7 +6,7 @@ The burly one came up to him, "You're the new kid right?"
 
 "Yea I'm new."
 
-"I'm Davey." The kid said, and took Zain's hand to shake it. Zain watched teh shake and said "Hi," a bit blankly. He thought it was his first friend so far.
+"I'm Davey." The kid said, and took Zain's hand to shake it. Zain watched the shake and said "Hi," a bit blankly. He thought it was his first friend so far.
 
 "Zain, do you like dogs?" The kid with the afro said.
 
@@ -30,25 +30,43 @@ Zain looked at the dog. The two kids looked at him silently.
 
 The dog didn't look too big, but it eyed him cautiously. The burly kid pulled up a part of the gate and Zain slipped through slowly, now in the alley. He crept over to the leash, and the dog sat there as still as a board, but looking a bit more anxious.
 
+Zain looked back, and both of them had their arms crossed. The afro kid said "Come on, are you gonna help us get him or not?"
+
 He was a few feet away when the dog jumped up at him, it's teeth gnashing with shrieking loud barks that made Zain fall back in horror.
 
-The two kids behind him were laughing until a voice called out "HEY!" A voice screamed.
+The two kids behind him were laughing until a voice called out "HEY!".
 
 "Run!" Yelled the afro kid, and the two ran out of sight.
 
-The man saw Zain just getting out of the fence and grabbed him by the collar, "Who the damn are you?" The man peered at him. He was waering a sleeveless t-shirt with thick hair sprouting all over his body and was balding.
+The man saw Zain just getting out of the fence and grabbed him by the collar, "Who the damn are you?" The man peered at him. He was waering a sleeveless t-shirt with thick hair sprouting all over his body except for his head, which was balding.
 
-"What are you doing with my dog?!"
+"What are you doing with my dog?!" He yelled again.
 
-Zain tried to squirm away, "two kids said that was thier dog."
+Zain tried to squirm away, "those two kids said that was thier dog."
 
-"They damn wish it was their dog!" The man shouted, "He'll tear you up, you have to have a deathwish to be going in there and visit him."
+"They damn wish it was their dog!" The man shouted, "He'll tear you up, you have to have a deathwish to be going in there and visit Burger."
 
-Zain said nothing, he just slumped his shoiulders and the man frowned at him. "Get out of here! If I see you trying to steal my dog again you're gonna regret it in a few different ways."
+Zain said nothing, he just slumped his shoiulders and the man frowned at him. "Get out of here! If I see you trying to steal my dog again you're gonna regret it in a few different ways. Burger eats human burgers."
 
+Zain got to his feet and saw the two kids around the corner.
 
+"How was that funny?" Zain asked.
 
+"You just get what's coming to you. You're new so we have to teach you the neighborhood."
 
+"I don't need a tour from you."
+
+The burly kid came up to Zain adn cracked his knuckles. He was a foot taller than him.
+
+"You mess with us you'll be messing with the whole neighborhood, if you're still standing." said the afro kid.
+
+Zain looked at both of them. "Whatever, screw you guys."
+
+"Don't you have to go work at your laundrymat with your Mom?" The afro kid shouted at Zain as he was entering his building.
+
+Zain looked back befoe he entered his building, "yea don't boethr coming by, we can't wash out the stains in your underwear."
+
+He saw the burly kid begin to chase after him, but Zain ducked and ran up the stairs.
 
 
 

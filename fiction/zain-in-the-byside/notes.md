@@ -538,3 +538,68 @@ They try to make space work everywhere.
 
 
 E.g. Stairs as table also as neighbour's stairs (walks upside down)
+
+------------
+
+
+Dodos are smaller because they acclimated to environment.
+
+-------
+
+"What am I supposed to do?" Zain yelled at Mr. Husk.
+
+"Maybe what you're not (supposed to do)" me. Husk rushed off.
+
+
+------
+
+Steam punk bike
+
+https://wordlesstech.com/russian-steampunk-bike/
+
+------
+
+"The truth is we don't want to hide. But I think they like us hidden, and want to keep us that way." Josslyn wiped her goggles with an aged handkerchief.
+
+"Buried." Husk said solemnly while picking the lock, "Like we were. Like we are."
+
+-------
+
+
+
+-------
+
+A series of cranks clacked and gears spun as they got thrown off on a platform deep inside a huge building. The perpetrator brandished a hole in the wall Andes ran through it. Josslyn, Zain and husk were on his tail, and while husk sealed the entrance Zain realized they were inside Macy's.
+
+---------
+
+"Give me the British kid and 
+
+--------
+
+Characters:
+- Zain
+- Zain's father
+- Zain's mother
+- Zain's uncle
+- In Husk
+- Josslyn
+- mayor
+- mayors assistant
+- mail guy (a woman maybe?)
+- 
+
+
+--------
+
+"How can you live like this?"
+
+"A lot of practice." Josslyn sighed, "there are a lot of things that are hard. We get real sunlight through mirrors on the outskirts. Most of our meals are bland. Two pairs of clothes. But dad makes it bearable."
+
+She glanced at her house's walls "I have a lot of watches and clocks too." She smiled.
+
+
+
+
+---
+Some stores only knobs. Others handles.
