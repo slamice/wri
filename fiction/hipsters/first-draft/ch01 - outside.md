@@ -6,7 +6,7 @@ Cars swept by hissing cats. The area was thick with unrestricted access. The ven
 
 You've never been there. It was pretty obvious 'The Woods' wasn't going to last much longer than eight or so months. Three thousands of dollars of rent every 30 days was high budgeted even for the 6 renters, especially when the only real job any of them held was barely. At the end of each month they worried, sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
 
-So then there were parties. And then there was us. Shoved up against the outside brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon. I tried to keep eye contact with every person who walked in, until they noticed me and I looked away.
+So then there were parties. And then there was us. Shoved up and rotting (()) against the outside brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon. I tried to keep eye contact with every person who walked in, until they noticed me and I looked away.
 
 "You think Matt'll come?" Jack asked.
 

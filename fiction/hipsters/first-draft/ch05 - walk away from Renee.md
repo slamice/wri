@@ -137,7 +137,7 @@ I tried to change the subject, "I'm getting worried about my visa."
 
 "Because I'm suffering here. It's just so beauracratic. It's been a year and..."))
 
-"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against the world."
+"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it."
 
 "We exist." she said dryly.
 

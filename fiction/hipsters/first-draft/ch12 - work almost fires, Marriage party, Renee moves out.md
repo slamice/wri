@@ -28,7 +28,7 @@ A coffee run excuse could work, but when I approached his desk he was hunched ov
 
 I was seconds away from tapping him on either shoulder but, in a sudden rage, he erected himself furiously to the ceiling and tore the laptop from its cords. He slammed it on the desk again and again, spitting out fuckword after fuckword. A few pieces of the machine and his curses flew to the floor, and neighboring cubicle-ers hid behind their walls, peeking. He walked out miserable right by me to the exit. His laptop lay in a mildly unpleasant electronic heap, a box with a broken frame.
 
-He stod over it all, defeated and tried.
+He stood over it all, defeated and tried.
 
 We all stared at his leave in confusion. I thought briefly about following him with the crowd but no one else did. The entire office simply looked at eachother, mulling over the scene. Slowly the sounds of typing started up, and they forgot.
 

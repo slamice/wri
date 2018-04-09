@@ -1,8 +1,12 @@
 Connected: The Surprising Power of Our Social Networks and How They Shape Our Lives - Nicholas A. Christakis, James H. Fowler
 
-Too Loud a Solitude - Bohumil Hrabal
+A writer's life
 
-War is a racket 
+Scratch: Writers, Money, and the Art of Making a Living - Manjula Martin
+
+Total Leadership: Be a Better Leader, Have a Richer Life - Stewart D. Friedman
+
+Pete Hamill - Forever
 
 Listen Liberal 
 
