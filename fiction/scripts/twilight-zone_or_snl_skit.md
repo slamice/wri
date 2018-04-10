@@ -1,0 +1,1 @@
+Man is interviewed by a recording but thinks it's a real person remote
