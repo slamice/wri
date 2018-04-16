@@ -1,6 +1,29 @@
+
+
+
+
+
+Peace Education: How We Come to Love and Hate War - Nel Noddings
+
+The Name of the Rose - Umberto Eco
+
+Invisible Ink: A Practical Guide to Building Stories That Resonate - Brian McDonald
+
+Book of Sands and Shakespeare's memory - Borges
+
+The Art of Thinking Clearly - Rolf Dobell
+
+Stoner - John Williams
+
+Death of Napolean - Simon Leys
+
 Connected: The Surprising Power of Our Social Networks and How They Shape Our Lives - Nicholas A. Christakis, James H. Fowler
 
-A writer's life
+The Memory Palace - Mira Bartók
+
+Library: An Unquiet History - Matthew Battles
+
+A writer's life - Gay Talese
 
 Scratch: Writers, Money, and the Art of Making a Living - Manjula Martin
 
