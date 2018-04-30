@@ -3,6 +3,16 @@
 
 
 
+
+
+
+
+Bleakhouse - Charles Dickens
+
+Varieties of Disturbance - Lydia Davis
+
+People's History of the United States - Howard Zinn
+
 Peace Education: How We Come to Love and Hate War - Nel Noddings
 
 The Name of the Rose - Umberto Eco
@@ -158,6 +168,9 @@ Eats, Shoots & Leaves: The Zero Tolerance Approach to Punctuation - Lynne Truss
 Scratch: Writers, Money, and the Art of Making a Living - Manjula Martin
 
 Capitalist Realism: Is There No Alternative? - Mark Fisher
+
+
+Capital in the Twenty-First Century - Thomas Piketty, Arthur Goldhammer
 
 Oblomov - Ivan Goncharov, David Magarshac
 

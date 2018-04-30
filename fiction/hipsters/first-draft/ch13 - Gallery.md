@@ -47,7 +47,11 @@ The pang in my gut worried me, but it seemed common place recently. "Why is he s
 
 "Everything is awkward" I puttered.
 
-Behind Jack was his corner I recognized some of Jack's staple pieces. And next to those was tiny black writing on little white plaques. Each of them were numbered "Untitled"s.
+"What happened though?" His eyes seemed starved, "it seemed like you were getting along well together." He was rubbing his hands, the webbing between his fingers were scratched raw with spots of blood.
+
+"Everything is awkward. Everything." I said, not hiding the fact that I was watching them as they shook.
+
+Behind Jack was his corner, and I recognized some of his staple pieces. And next to those was tiny black writing on little white plaques. Each of them were numbered "Untitled"s.
 
 "He discovered me in .... Gave me my drugs, qualudes."
 
@@ -61,9 +65,9 @@ The man in the corner, humbled with a blazer, spoke to a few beret'd critics ((c
 
 "His work reflects contemporary contemporaries. The inner space of this one... If Monroe Montague was here, actually in front of us, trying to communicate his theory of art in motion, he'd be obsolete. He'd be mute. He'd be doing a sign language dance. All you have to do is look at this masterpiece and it'll tell you everything you need to know about it. I wish he were ((was? Because of speech?)) still alive, I'd want Jack and him to meet eachother and duke it out. This is history. I swear it."
 
-No one said anything for a few as they shouldn't have. Someone raised their glasses to that and a few clapped. Thye knew who he was, it was obvious. He marketed well, we was Jack's proud pimp.
+No one said anything for a few as they shouldn't have. Someone raised their glasses to that and a few clapped. They knew who he was, it was obvious. He marketed well, he was Jack's proud pimp.
 
-The naked women still spewed out of a drain. They still spewed out of a drain. ((wasted art))
+The naked women still spewed out of a faucet. ((wasted art))
 
 
 --------------------
@@ -106,7 +110,9 @@ Gala stared at me quite violently pouting to pity me. She was pitying another ha
 
 "You're a good friend."
 
-Our stares were let go into space. The monsters were loose and we walked away from eachother. It was impossible to know what she was thinking, and even she didn't know I'm sure. A bland taste started setting in my mouth, and I left the gallery forgetting my hat.
+Our stares were let go into space where the ether ((not real?))swallowed them up dutifully.
+
+The lost monsters were loose and we walked away from eachother. It was impossible to know what she was thinking, and even she didn't know I'm sure. A bland taste started setting in my mouth, and I left the gallery forgetting my hat.
 
 ----------------
 

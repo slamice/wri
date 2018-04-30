@@ -1,0 +1,1 @@
+People at first hiking up their ice cream prices, then giving all their ice cream away.

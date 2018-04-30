@@ -2,7 +2,7 @@ Chapter 7
 
 Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl from the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
-Alone, I threw away the other ticket and went to the dock ((Some refernece to dock?)) on a Wednesday after work. Someone knighted me with a plastic leigh on my head as I stepped aboard.
+Alone, I threw away the other ticket and went to the dock on a Wednesday after work. Someone knighted me with a plastic leigh on my head as I stepped aboard.
 
 The older men and women had tattoos covering their biceps and thighs, tired of the idle chatter strategy. Their expressions and the color in their faces both ran, drained from conversing a life of tans and cocktails. The tiny younger crowd was vivid, each member giggling but unsure. They wrestled with basic facts, looking out over at the city and neighborhood waters. The buildings sipped the sky and the customer's plastic alcohol cups sipped them. There was a bit more to it but I wasn't paying attention.
 
@@ -10,7 +10,7 @@ A very tan woman turned towards me who looked like someone I barely worked with.
 
 The ship ebbed toward the ocean, toward a few islands we were set out to discover superficially. People snapped photos and looked pretty, vacant. It wasn't awkward so much as it was limiting. Past the pineapple sandwiches and fruit rice, once the tiny paper umbrellas unfolded and the rum soaked brownies flowed, people opened up. The bartender popped his collar and gave me an endless flow of cranberry apple juice.
 
-The two girls from Tallahassee working as designers at a robot company. The heavily buff tattooed developer from Texas who shunned beef after growing up on a pig farm. The two African event coordinators who together came upon a nude beach by accident. Besides shallow descriptions, I didn't find out any other details about their jobs. Even the inviters were seldom found, checking in with people to make sure they were still on the boat. The ship's aimless bobbing to no goal was perfect for us. Our mild conversations took all our attention from the cityscape view and ground it to dust.
+The two girls from Tallahassee working as designers at a robot company. The heavily buff tattooed developer from Texas who shunned beef after growing up on a pig farm. The two African event coordinators who together came upon a nude beach by accident. Besides shallow descriptions, I didn't find out any other details about their jobs. Even the inviters were seldom found, only checking in with people to make sure they were still on the boat. The ship's aimless bobbing to no goal was perfect for us. Our mild conversations took all our attention from the cityscape view and ground it to dust.
 
 An Italian and Jewish pair of girls were huddled in one corner of the boat, discussing their ex boyfriends, their ex boyfriend's dogs and architecture.
 
@@ -24,7 +24,7 @@ The Italian girl chattered away an unrelated reply at full force, the other sipp
 
 I approached. "Are you Italian? I'm Italian." She stared. The sun went down earlier and besides her eyes it got too dark to tell her expression, but you could feel her beaming violently.
 
-"No." I yelled over the growing chats around us. "Do you think I would fit in better if I did?" The Jewish girl flit her head up suddenly to look at me, like a bird, and then away.
+"No." I yelled over the growing chats around us. "Do you think I would fit in better if I did?" The Jewish girl flit her head up suddenly to look at me, like a bird, and then her head flew away.
 
 "I don't know I don't exactly fit it, like I'm not married yet all my family is married I work at a big company and lots of people just bail on you... During work too, people don't even notice. My whole department, you know," pause, a comment towards the bird "I mean did you see Tony? I've been working past eight all week and he's said nothing. I don't really get how he even has his job. The other day, see... He's never filled out Jonas's accountant forms WE ALL did can you believe _that_?"
 
@@ -80,7 +80,7 @@ She took a pause, ignoring me, and stuttered, "Th-there were a few of those, yea
 
 I thought for a bit, "I mean there were some that were just, I don't know, like, 'in general' people. But there are always a few gems." And I gestured to her, throwing a flirt. But I forgot who I was, who Renee was for just that second. Suddenly it was an accident. Immediately my face embarrassed forcing my eyes to look away.
 
-We rode the train with a few other direly bored riders. They wore their experiences as if like they were shaken or beaten up. All of them must have been waiting for the dryersbecause they wore the clothes they wore on laundry days. I threw a few glances at the crowd, then snuch a few back at the bird.
+We rode the train with a few other direly bored riders. They wore their experiences as if like they were shaken or beaten up. All of them must have been waiting for the dryers because they wore the clothes they wore on laundry days. I threw a few glances at the crowd, then snuch a few back at the bird.
 
 "I didn't talk too much. You werked a... Sha-me technologies? SHA-ke? La-ke?" She pronounced slowly, stuttering, wavering like a rag on a rustled laundry line (clothespin).
 
@@ -124,15 +124,13 @@ It was ok but I didn't laugh, she loudly sipped her coffee. "It's about SURVIVAL
 
 It was a good question mostly because I wasn't sure, but she got back to it.
 
-
-
 She looked down at her coffee and then up. Her smile reached through my mouth deep into my throat and clutched my chest further. 
 
-She told me more. About her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she aimed for New York. She flailed and writhed until she perched on a branch at a hedgefund as a junior accountant. She's been friends with New York all her life.
+She told me more. About her brother, about her life on long island and when she went to Italy and Austria. New York City was an obvious option, she aimed for New York. She flailed and writhed until she perched on a junior accountant branch. She's been friends with New York all her life.
 
 So an hour later she was much better, but while we were still tired, we walked down small twisted streets. We found a stoop and rested there before it became too awkward.
 
-At that point I said I wasn't ticklish either, but she reached around my stomach almost fully into my pants and I felt her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling. She took them out and messed my hair.
+At that point I said I wasn't ticklish either, but she reached around my stomach and almost fully into my pants feeling her fingers graze my pubic hair. She continued searching for a twinge or a wince, but I offered her nothing. Her hand was warm and her body leaned on me while I smelled her drunk coffee breathe and hair. She was fully entrenched in finding what wasn't there, any sort of feeling. She took them out and messed my hair.
 
 "No fun" she puckered her lips and fell back a bit. "Where's your girlfriend?"
 
