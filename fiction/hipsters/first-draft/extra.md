@@ -191,6 +191,16 @@ After dinner and before I slept I sighed downstairs, but they said nothing came 
 
 ---------------
 
+I think I was the only person in the crowd not to have a band member who was my friend. At one point in the night three of one of the performer's roommates came to see one the bands and left immediately.
+
+
+
+
+
+
+
+
+----------
 
 ((I really wanted any of it to mean anything. It tried to make any of it bleed, but it was cold. It was a cold cold world and the hope dies on contact when any asshole mumbles for a light. -elaborate-))
 
@@ -401,3 +411,11 @@ Maybe I was wasting my time, but now I know I was wasting yours.
 
 
 The anger gathered up inside me to scream. But to who? To what? There are no answers here. It was an abandoning. I succumbed to these fucking shitty people while my mother lay dying abandoned by my father. You can blame all teh world at that point. You can point your finger in the air and wish everyone including God dead and you'd be the sanest person of every passer by. But those rules don't apply to everyone, only to your sad sorry lonely self. What a fucking hypocrite.
+
+
+----------------
+
+
+"Tell me we settled everything."
+
+Selina looked a bit off and worried, but still smiling. "Honeslty, they haven't gotten back to me. I mean initially it was good, but I haven't heard from their manager in over a week. Maybe if we talk to the band. I wouldn't get our hopes up Om. Our propisition was flimsy. We can continue to give it a shot though." Her mouth twisted, waiting for my reaction. "

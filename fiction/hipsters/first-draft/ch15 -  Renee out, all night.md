@@ -63,7 +63,7 @@ I didn't think she did it. But my name was the only one on the lease.
 
 Of course the real deal was the greasy spoon that was closest when you woke up. The place was owned by a huge balding man out of the 50's to make it authentically awful, and as white as the toast you ate there as possible. Late breakfast at Bons off Broadway.
 
-If you have seen one greasy spoon then you get the understand completely. But really, you haven't seen them all. There are varying degrees of greasiness, eahc one worse than the next.
+If you have seen one greasy spoon then you get the understand completely. But really, you haven't seen them all. There are varying degrees of greasiness, each one worse than the next.
 
 Bons on Broadway, for example, was a legendary diner with high school students and high school student imitators. It was amazing what people would eat. Breakfast there was all day, so realistically people are in there around 11 or noon.
 
@@ -75,7 +75,7 @@ While waiting for food you may take on the following roles:
 
 The food had two eggs swimming in oil, with fried frozen hash browns. That experience was $2.99... So about $3.15 with tax.
 
-We went there at 11am, and of course it was crowded because everyone woke up at 10:54am and staggered down form their beds.
+We went there at 11am, and of course it was crowded because everyone woke up at 10:54am and staggered down from their beds.
 
 I ventured past the line and saw Selina sitting with some of her fellow doo-dads, but no Adrian on site. Selina opened her arms and people gruffled various half assed hellos. She saved me a seat as I listened to their relationship issues patiently.
 
@@ -89,7 +89,7 @@ Selina turned to me and we kept our voices low.
 
 "I thought you'd be taking it a bit harder."
 
-"Things get put into perspective. Exchanges are made. Peices are picked up and then they fall. The drawl is long and slow. And suddenly the submarine surfaces. And teh coast is damn clear. And suddenly it's empty and I can masturbate and dance while I clean and it's a clean apartment!"
+"Things get put into perspective. Exchanges are made. Peices are picked up and then they fall. The drawl is long and slow. And suddenly the submarine surfaces. And the coast is damn clear. And suddenly it's empty and I can masturbate and dance while I clean and it's a clean apartment!"
 
 "Mental masturbation." Selina corrects me.
 
@@ -97,9 +97,7 @@ Selina turned to me and we kept our voices low.
 
 "Not mantal. Anyone can."
 
-"Absolutely anyone, I agree. High fives and all. She's gone. A waste of time flushed. I wasted so much time Selina. Just in general. I can't wait for this tour. Tell me we settled everything."
-
-Selina looked a bit off and worried, but still smiling. "Honeslty, they haven't gotten back to me. I mean initially it was good, but I haven't heard from their manager in over a week. Maybe if we talk to the band. I wouldn't get our hopes up Om. Our propisition was flimsy. We can continue to give it a shot though." Her mouth twisted, waiting for my reaction. "I'm super happy for you. Also this means we'll see you more!"
+"Absolutely anyone, I agree. High fives and all. She's gone. A waste of time flushed. I wasted so much time Selina. Just in general. I can't wait for this tour. "I'm super happy for you. Also this means we'll see you more!"
 
 Who the we was I'll never know. At this point I felt like a painting in Selina's friends lives. A painting of brick colors matching the wall it hung on.
 
@@ -164,7 +162,7 @@ She went on and on. About how he never lover our mother, or her, or any of us. H
 
 "You can't come back?" he asked.
 
-There was a long nasty pause then.
+There was a long nasty pause then. At some point in the phone call my stomach to the brim with heaviness and my mouth was very dry.
 
 "It really sucks you're not here Omar." ((Nothing you can do to come back?))
 
@@ -174,7 +172,7 @@ pause.
 
 "We wish you were here too. We're stronger together."
 
-pause.
+Pause.
 
 "We're both tired. We're going to go to sleep and come back here tomorrow."
 
@@ -185,8 +183,6 @@ pause.
 "Impossible. Goodnight." My voice dampened.
 
 And we hung up.
-
-At some point in the phone call my stomach to the brim with heaviness and my mouth was very dry. 
 
 No holding back. No end and no coming back. A tight noose around my neck. I squated down on the sidewalk feeling a few hot tears roll down, absently watching the people stroll by absent in their own heads as was I in mine. My face was beet red and dry.
 

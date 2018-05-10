@@ -2,10 +2,14 @@
 
 
 
+Sport: A Biological, Philosophical, and Cultural Perspective
+ - Jay Schulkin
 
+The Little Book of Common Sense Investing: The Only Way to Guarantee Your Fair Share of Stock Market Returns - John C. Bogle
 
+The Life-Changing Magic of Tidying Up: The Japanese Art of Decluttering and Organizing - Marie Kondō
 
-
+History as Mystery - Michael Parenti
 
 Bleakhouse - Charles Dickens
 
