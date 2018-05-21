@@ -65,7 +65,7 @@ Selina's eyes were at half mast with a very visible hazy red in their corners "I
 
 "Yea she's not feeling too well tonight."
 
-"Oh what's wrong?"
+"Oh, what's wrong?"
 
 "Well we don't know exactly but her mono is acting up again." I shifted in my seat uncomfortably. Our conversation breaks were laggy but not substantial.
 
@@ -89,7 +89,7 @@ I drank it as my head slowly began to hurt. The milk was heavy and felt heavy go
 
 "She's really good. You don't want to go? I'd totally be up for it."
 
-I shrugged, "kind of, but just wanted to take it easy tonight. Take it easy. I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
+I shrugged, "Kind of, but just wanted to take it easy tonight. Take it easy. I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
 
 ((heart problems, kind of important part here, move to another section?))
 
@@ -137,9 +137,7 @@ I tried to change the subject, "I'm getting worried about my visa."
 
 "Because I'm suffering here. It's just so beauracratic. It's been a year and..."))
 
-"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it."
-
-"We exist." she said dryly.
+"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it. We exist." she said dryly.
 
 
 
@@ -163,9 +161,30 @@ I tried to change the subject, "I'm getting worried about my visa."
 
 The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments that were half finished had already been bought. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. Basterdized Bauhaus. The same sky's they'd be under has been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they needed to do to need to do.
 
+Before I moved I heard the city did something to you. The city that was the interest. But I'd walked miles around it, in it, through it and I found nothing. I found concrete with garages or delis on every other corner. 
+
+But what makes a city? People. What were the people doing on the sixty seventh floor, what happened in the basement on the third Wednesday night of every month. What opened, what closed, who was creating something beautiful. But I'm not sure I found any people with anything. It was many nights where I walked the streets with people holding up their umbrellas, all of them going in trickles on small streets or busting out of subways on the main ones spewing into the street. I watched the rain water go down the drain. Sometimes it overflowed but it all went down the drain. The point was lost.
+
+
+I thought about it a lot. There is no counterpart to 'lonely'. It's implied that a person is naturally with other people. And in loneliness, there is a problem. Because no one is naturally lonely. 
+
+I realized when people get out of the city, like when I was hiking Qurnat as Sawda, the comfort is not that you are alone. Because the nature is there, you feel you aren't alone. You are small but you are not alone. There is always a comfort deep down that you are part of it, and they get out to remember that, whether they realize it or not. And there are no drains.
+
 I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. I sipped Renee's latte, the ice melting inside it as my hand warmed it. I looked up and tried to find a star while under the street lamps. But they glared far too much.
 
 A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

@@ -4,7 +4,7 @@ Cars swept by hissing cats. The area was thick with unrestricted access. The ven
 
 "Guitar lessons? Dance space rental? Warm bodies? Call us."
 
-You've never been there. It was pretty obvious 'The Woods' wasn't going to last much longer than eight or so months. Three thousands of dollars of rent every 30 days was high budgeted even for the 6 renters, especially when the only real job any of them held was barely. At the end of each month they worried, sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
+It was pretty obvious 'The Woods' wasn't going to last much longer than eight or so months. Three thousands of dollars of rent every 30 days was high budgeted even for the 6 renters, especially when the only real job any of them held was barely. At the end of each month they worried, sweatily fumbling. Keeping themselves in check and sober was key, but no amount of coffee or cigarettes could hold back the day the rent was due.
 
 So then there were parties. And then there was us. Shoved up and rotting (()) against the outside brick wall as if hung on it, the three of us watched couples and triples go inside. We were determined to be a desperate plea for attention and as nonchalant about it as possible. It was 10 o'clock, waiting for the show to start, probably soon. I tried to keep eye contact with every person who walked in, until they noticed me and I looked away.
 
@@ -28,7 +28,7 @@ My next guess was Matt never shows up. He was usually late and occasionally we'd
 
 To me Mono sounded like the most convenient disease to get yourslef out of anything. You sit in bed until you're awake to sit in bed.
 
-Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A+ student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marijuana for eternity. As for Jack, various college degrees tried to swoop down on him, but he was great at avoiding them. Eventually he gravitated towards a bachelors in philosophy and did nothing with it. He sported shoulder length hair, was often seen chittering occasionally wore no shoes. Jack reigned in his own world of canvases featuring surreal modern nude art. He was a pole in every way, quite a lanky questionable sort.
+Jack and Ryan were tacked on friends. I met them both in university. Ryan was a straight A plus student until college grabbed him by the collar and shoved him into a lazy comma. He remained high on marijuana for eternity. As for Jack, various college degrees tried to swoop down on him, but he was great at avoiding them. Eventually he gravitated towards a bachelors in philosophy and did nothing with it. He sported shoulder length hair, was often seen chittering occasionally wore no shoes. Jack reigned in his own world of canvases featuring surreal modern nude art. He was a pole in every way, quite a lanky questionable sort.
 
 We looked like a shitty polaroid. I started to drift from Jack and Ryan there. I invited them out but honestly I didn't know who depressed me more. These two were innocent compared to the hidden gems inside.
 

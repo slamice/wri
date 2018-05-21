@@ -2,6 +2,37 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Enemies of Promise - Cyril Connolly
+
+The Case Against Education: Why the Education System Is a Waste of Time and Money - Bryan Caplan
+
+As I Lay Dying - William Faulkner
+
+Remainder - Tom McCarthy
+
+The Way We Never Were: American Families and the Nostalgia Trap - Stephanie Coontz
+
 Sport: A Biological, Philosophical, and Cultural Perspective
  - Jay Schulkin
 
