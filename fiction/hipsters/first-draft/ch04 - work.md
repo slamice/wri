@@ -62,7 +62,7 @@ Mik, the man who hired me, came from a long line of Belgian fashioners, doctors 
 
 
 
-
+I asked Michael once why he worked. He told me casually, "It's de-evolution. We've reached our peak, dancing in space and stuff. We've reached our peak instead of riding horses, fighting wars or grinding things... To sit. The last step is imminent, that we don't even leave our houses and do nothing. We're almost there. We're all apart of it." He smiled at me but I lookedthrough it regretting the question.
 
 
 

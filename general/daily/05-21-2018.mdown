@@ -1,4 +1,4 @@
-TODO tomorrow 05-22:
+TODO tomorrow 05-21:
 
 - Finish story on Billable Travel in insights
 - Clean up Zain pigeon with mayor chapter

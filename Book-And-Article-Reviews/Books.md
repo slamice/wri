@@ -21,7 +21,11 @@
 
 
 
+The Lonely City: Adventures in the Art of Being Alone - Olivia Laing
 
+The Island of Dr. Moreau - H.G. Wells
+
+Man's Search for Meaning - Viktor E. Frankl
 
 Enemies of Promise - Cyril Connolly
 
