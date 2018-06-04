@@ -18,13 +18,13 @@ As we headed up I look down at the stairs to avoid watching the climbing asses d
 
 He was an interesting case. At six foot five he was bound to represent something, which he did. The man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion javelin thrower, so he decided to move on to a different challenge behind a desk punching keys. ((maybe a boxer?))
 
-He also decided to take up the challenge of smoking which he practiced twice daily.
+He also decided to take up the challenge of smoking, practicing twice daily.
 
 "Hey Om."
 
 "There's a gym cruise." I told him.
 
-"I know about the cruise. What does that mean."
+"Gym cruise?"
 
 "The gym is advertising a buy in. It means free food and a ride around Liberty island for whoever wants to hear a lecture on how great it'll be to pay hundreds of dollars a month to a gym they won't go to."
 
@@ -40,29 +40,22 @@ Michael itched his beard, "I think I've got to take care of my kid that night."
 
 "Let me know what you decide."
 
+Mik, the man who hired me, came from a long line of Belgian fashioners, doctors and big businessers. I was straight out of college, interviewing a few days before my graduation. He made me my first offer and I gladly accepted it.
+
+
+
+
+
+
+
+
 I could mention the Dans and Stans of the office but they stuck out in no particular way. Each with their 'own sense of humor', identical patents pending. The only thing I felt there then was the clock eating away at us diligently as we ran around trying to ignore the bitemarks.
 
-Explaining why my work was lackluster is pretty difficult. What did I want out of it? I went to school to do it, a determination to "succeed". But what I really wanted was to live the way I wanted to live. To be free from the work and grind each of these cogs assaulted on each other. So I worked, and project timelines slipped, untli I was knee deep in requests and changes that I didn't relate to.
+Explaining why my work was lackluster is pretty difficult. What did I want out of it? I went to school to do it, a determination to "succeed" ((succeed)). But what I really wanted was to live the way I wanted to live. To be free from the work and grind each of these cogs assaulted on each other. So I worked, and project timelines slipped, untli I was knee deep in requests and changes that I didn't relate to.
 
-Honestly I hated my job. Briefly, we worked on curriculums for school children, and our most recent project was printing paint by numbers pictures in an effort to make them educational.
+Honestly I hated my job. Briefly, we worked on curriculums for school children, and our most recent project was randomly generating educational paint by number pictures.
 
-
-
-
-
-
-
-Mik, the man who hired me, came from a long line of Belgian fashioners, doctors and big businessers. I was straight out of college, interviewing a few days before my graduation. It was my first offer and I gladly accepted it.
-
-
-
-
-
-
-
-
-
-I asked Michael once why he worked. He told me casually, "It's de-evolution. We've reached our peak, dancing in space and stuff. We've reached our peak instead of riding horses, fighting wars or grinding things... To sit. The last step is imminent, that we don't even leave our houses and do nothing. We're almost there. We're all apart of it." He smiled at me but I lookedthrough it regretting the question.
+With Michael as an exception, I didn't find much leeway with my fellow employees. At lunch they'd argue how much of a pain it was to wash dishes. In the day they would scream about how there were no good snacks.In the evening they would try to make excuses for leaving early.
 
 
 
@@ -75,9 +68,28 @@ I asked Michael once why he worked. He told me casually, "It's de-evolution. We'
 
 
 
+I asked Michael once why he worked. 
+
+"You call this work?" He asked me casually.
+
+"What else is it?"
+
+"It's de-evolution. We've reached our peak instead of riding horses, fighting wars or grinding things...  We've reached our peak, dancing in space and stuff. To sit. The last step is imminent, that we don't even leave our houses and do nothing. We're almost there. We're all apart of it." He smiled at me but I regretted the question.
 
 
-On the platform was a performer dressed in a full suit playing drums. He sang reggae as he played. I didn't know him but that man had troubles and all that I'm sure. Otherwise he wouldn't play Jamaican music in the subway. But watching him closely, his eyes were loose and unsettled staring every which way, I was unsure how he could play calming music. ((I wondered if he was climbing out of his hole or further in it.)) A friend of mine form university learned how to play the marimba in Zimbabwe. I asked her what thier songs were about since the high notes sounded so chipper. But they were all depressing songs, abuot mourning and death. Maybe this Jamacican man was winging it.
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

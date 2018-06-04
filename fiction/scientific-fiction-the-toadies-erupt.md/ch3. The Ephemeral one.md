@@ -1,4 +1,4 @@
-The Ephemerent One arrived to her interview with a few minutes to spare. They led her into an office and seated her, and she gladly accepted a glass of cold water.
+The Ephemeral One arrived to her interview with a few minutes to spare. They led her into an office and seated her, and she gladly accepted a glass of cold water.
 
 
 
@@ -22,7 +22,7 @@ The Ephemerent One arrived to her interview with a few minutes to spare. They le
 
 
 
-The Ephemerent One came home to find a note stapled to her door. She was puzzled why the landlord would damage an apartment's door, but then was even more puzzled when the notice said she had to be out in three weeks.
+The Ephemeral One came home to find a note stapled to her door. She was puzzled why the landlord would damage an apartment's door, but then was even more puzzled when the notice said she had to be out in three weeks.
 
 She immediately called him up.
 

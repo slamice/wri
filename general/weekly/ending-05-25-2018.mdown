@@ -1,0 +1,16 @@
+todo:
+- 1500 words
+- Submit to contest
+- Mike's app
+
+
+
+
+
+did:
+
+- 1500 words (DONE)
+- Submit to contest (NOT DONE)
+- Mike's app (NOT DONE)
+- 2x gym (DONE)
+- Reply to jenny about ABA (DONE)

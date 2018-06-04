@@ -15,11 +15,11 @@
 
 
 
+How to Think About Exercise - Damon Young
 
+The Little Book of Letting Go: A Revolutionary 30-Day Program to Cleanse Your Mind, Lift Your Spirit and Replenish Your Soul - Hugh Prathe
 
-
-
-
+The Mind of God - Paul Davies
 
 The Lonely City: Adventures in the Art of Being Alone - Olivia Laing
 
@@ -109,8 +109,6 @@ The Occupy Handbook - Janet Byrn
 Cormac McCarthy - All the Pretty Horses
 
 The Age of Reason - Jean-Paul Sartr
-
-Blood Meridian - Cormac McCarthy
 
 How to Create a Mind: The Secret of Human Thought Revealed - Ray Kurzweil
 

@@ -17,4 +17,4 @@ Lows:
 - Lots of work on cost and meta
 
 Improve:
-- Zain imporving bathroom stuff
+- Zain improving bathroom stuff

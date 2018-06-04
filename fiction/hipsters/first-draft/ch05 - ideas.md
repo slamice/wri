@@ -1,0 +1,285 @@
+Time drags on. He shuffles his feet, wondering how he got here. He recalls his family, how his mother hated Lebanon and how his father loved it. Also how his brothers were there. Then moved him happily overseas. The feeling he gets when he arrives at college is freedom, and he begins drinking. He meets Ryan in his dorm.
+
+Om feels disengaged and tired. The point of the chapter is to show how Om has whittled down. Apart from band practice and work, he stays home. He goes to bed earlier but wakes up the same time everyday. He hates thinking about the past but does it anyway. He remembers his silent parents. He recalls how much he hated highschool. He feels lonely. Selina is in the area and he meets up with her once. Coffee cup scene.
+
+-------------------------------
+
+That guy had to call me. Selina's Adrian's Steve's guy. I found myself pacing in my apartment and on subway platforms, like a child waiting for breakfast((analogy?)). I knew how to feel when they accepted. Even just an American tour would be great. I'd never been to the west coast. White villa Mexican houses. I'd never been to the midwest. Miles of driving in hot air.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+------------------
+
+I'd drink but both halfs of my family were drunks. Some people say it's just that they were weak. But I can't take it. More than two beers and I'd probably be out. 
+
+---------------------------
+
+Mostly, those days, we kept to ourselves, Renee and I. 
+
+Before all of this, Renee barely showed up to anything. There was some kind of mystery going on. was it drugs? Or her job? Or an incredible literate social circle who read books at home constantly?
+
+I knew her ex-lover though. I knew Andrew almost too well. He was so articulate I was almost jealous until I hated him after I found out he sucked. Every live music venue featured him in the audience, and eventually we talked and we stoned until we were down and out all those nights. A person of the world, he persona'ed hard. His persona was gifted in being interested in many things nature until they aggravated him. Nature itself abused the world. Finally he restored through video games.
+
+
+The words were mostly recollections though. How long had it been since we heard that song, and omg that band is featured in a zine now. After the party we settled in a playground. We took turns slumping in swings, climbing the jungle gym nonchalantly.
+
+At one point it was Andrew, Anaj, Remy, myself, Sarah and Ryan. After a show we wondered apathetically.
+
+Anaj opened, "Hey, do you ever wonder--"
+
+
+
+
+
+
+Later we lived with them, Anaj and Remy. They turned out to be intensely disturbed. They chain smoked incessantly. Their cat coughed on me.
+
+They gave us with food that was actually a bribe.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+------------
+
+It was like any gentrified neighborhood I guess. The lack of
+
+
+
+
+He worked at a coffeeshop we frequented on M--- street. It illuded to being a chain but was not really so.
+
+
+Bookstores were still open, they're still open. Shelves full of slightly off famous books. The inside of the comic vintage one next door was rickety yet ironed out. A clean mess of leafed through comics were wrapped in plastic. Inside were people ready to save us from disasters that never happened, or from each other.
+
+
+She spent most of her time being absent. Be it the drugs she took or the demeanor she appeared to have by not appearing. There was some kind of mystery going on, an incredibly attractive one I was a tiny bit hopeless to find out about.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+When my family used to go on trips they were long ones. Back overseas. They were rare enough because of the money, but they were a plunge into chaos, more chaos than New York was. I was surprised anything besides restaurants functioned. The humidity mugged us.
+
+My family was huge. It's impossible for me to recall any names further related to me than immediate cousins, aunts and uncles. Kisses were showered on me and the food was great.
+
+At one point I was sent to a seiance with my older sister. My aunt became possessed by an angel and touched my hand. She told me, cryptically and in cut up sentences that I would have four children and be divorced, this was my future.
+
+I left there sullen and disturbed. I could no better predict my future than an unsolved mystery, but I knew I'd never be married and never have kids. That's delluding yourself to think that is a good idea.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-------------
+
+
+About then I had a reoccurring dream, one you've probably had. There was a cliff, and it didn't matter if the push from my parents or from ancient bullies, but it all happened
+
+---------
+
+I landed myself in a university far from my parents, or at least far enough to forget about hating them. My feelings about them fluctuated between pounding on things and thankfully being sent here alone as soon as they left after helping me move in.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+The weather was much hotter in L______ because, I don't know it felt humid. We lived in Lebanon until my mom couldn't take it anymore. The traffic, the noise, the exhaust. Sometimes I thought my mother's eyebrow was permanently raised, disavowing all belief in pure chaos. The country didn't feel like it functioned, but moved like a wheel moves. Because it had to.
+
+Until we moved to Canada. My brother, sister and I sighed relief into a vacant apartment.
+
+My father's ear was glued to the phone. During an argument, during the seven day war, during a meal, in bed, even now. The phone was in his pocket twisted and insulted from all the shouting it endured.
+
+
+
+
+
+
+
+
+
+
+
+
+
+------------
+
+Most of the time the buildings don't exist. They disappear and the slow traffic and indifferent expressions toss me a few thoughts to juggle. They hit my face and stick for a bit then fall to the sidewalk.
+
+My family
+
+There's always a neglected penny everywhere. You can see them waiting for nothing, on platforms and sidewalks whistling. I pick every one of them up, whether washed in a sidewalk pool or peppered with black grit. All of them are pocketed, put in a jar and carried back shaking and fumbling on top of each other in desperation.
+
+
+-------------
+
+
+Notable that Om picks up pennies wherever he goes.
+
+
+---------------
+
+
+
+
+A show was playing that night. I customarily sat in the corner, yawning and watching people. I chatted briefly with a few I knew, who I met a few times but never socialized with. Hello. Yea I don't know where she is. She usually works these nights. I shifted and shrugged aimlessly, but slowly.
+
+The room swam in ill lit grafitti. A wood stage with peeling and chipped paint. Everyone there, all of us, we died and died and died. As we waited we died and it was so depressing I wanted to choke the atmosphere. Grab it's throat and kill this mandess and kick the devil out of it. But the devil never surfaces and hides under teh venues slats, our fingernails. So exhausted.
+
+The devil was killing us laughing at us and rolling in our flith but slowly. A lice ((singular for lice?)) sucking our thoughts bathing in dandruff.
+
+Suddenly we stared for a moment at the players as they detuned everything. The loudness quieted for loudness and they broke the air with swears and with the power of absolutely horrible guitar playing. The performers came on and definitely performed somehow. No amount of minimalism saved them, every note individually was scrunched together and thrown away, then smothered with a deaf singer's coughs.
+
+They all loved it.
+
+
+
+
+------------
+
+"Take some of the money that you have, and buy yourself some class. Did you give me advance notice when you fired me?"
+
+
+-------------
+
+
+
+
+
+
+Sometimes I skipped the train. After throwing away work, adding more work, shuffling work, I threw a few goodbyes back as I walked out the door. I walked over the hot sidewalk grills, feeling the damp warm air on some of them and then bland stale air above others. Everyone rushed and stood cramped in subway cars underneath me, all buried together, while I walked above them, free, with air. The walks were usually brisk and clean.
+
+Mostly the streets were useless, famished for something alive as I walked by. Alley after alley was empty save bits of people and trash. But if you'd look closer, and a glimpse into an apartment window with a huge bare breasted lady or a man wambling with his dog made it feel like the blocks had some life. But these people were beaten down a while ago. The night, the polluted ocean of water and hurtful words, the boxes they lived in. The city never sleeps but everyone is always tired.
+
+
+
+
+
+
+
+
+I sometimes forgot the sun existed in New York. It didn't mean as much to me but I felt it should have. I desperately wanted to love it. I wanted to love the bizarre alleys. Sometimes I asked age old shop owners selling nothing but rare instruments, shelves full of trinkets no one bought, thick oily pastries dying to be loved... How they did it everyday and why they did it every single day. There were no smiles behind the whispy beards, behind the grey stubbles or their glazed wrinkled eyes. Some ignored me, but mostly they whispered "I don't know". I don't know.
+
+
+
+
+
+It was pretty silent in the apartment mostly.
+
+The parties turned me off, and I began declining to go to them. Over the course of a few months I slowly started resisting to go out with anyone except band practice with Selina and a few shows sprinkled between them. Work was a chore. I booked it reasonably every chance I got. It was pretty easy with Renee, she barely made it out to dinners with her friends. The nights we stayed home I cooked, always an inviting challenge to cook a dinner with only four ingredients with no spices and somehow make it flavorful.
+
+That apartment grew smaller. I don't remember too much from those days. I guess it was more about _what_ I remembered those days.
+
+I remember my mother's yogurt soup and Khash. The bread carts. The countless electrical wires above the streets. All the skirmishes. My dad, constantly on the phone. The instability. The made up girls. The phone glued to his head. My brother and sister shouting at each other. The final move to Canada. My final move to the US.
+
+
+
+
+
+
+Before I knew it I missed the few months I brushed off, as usual. Not because they meant something, but because I wasted them.

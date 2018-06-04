@@ -70,86 +70,38 @@ We could see a few of the elders wore suits but most knew better. Renee's ladybu
 
 The bride's parents were fidgeting. Her mother's spidery brooch slowly ate at her black shirt jacket, but she didn't notice because her nose was pulled shamelessly so high up to the sky by a fish hook. She shook, smiling and distraught for her daughter. Her face and wrinkled forehead plush was on thick. Her father was just as decorated. He was too distracted counting the unmet expectations around him. I felt a kinship grow towards him throughout the day.
 
-	The modern couple bore exact resemblance to each other holistically. They met on a boat to Governors Island eight years ago. Their dreams together were spent in cafes, camping and back in her French hometown. She accentuated every mutilated English word and he drank them all in, a bit dripping into his beard. 
+The modern couple bore exact resemblance to each other holistically. They met on a boat to Governors Island eight years ago. Their dreams together were spent in cafes, camping and back in her French hometown. She accentuated every mutilated English word and he drank them all in, a bit dripping into his beard. 
 
-	The sun was out and some birds chirped, which was nice but not helping. The priest put down his beer and settled on the podium, which was a stand for bocce players to keep their score. He began his sermon raging socio-political arguments at the church. A few 'likes' and 'hmm's were thrown in for good measure, all the while the couple smiled into each other's faces.
+The sun was out and some birds chirped, which was nice but not helping. The priest put down his beer and settled on the podium, which was a stand for bocce players to keep their score. He began his sermon raging socio-political arguments at the church. A few 'likes' and 'hmm's were thrown in for good measure, all the while the couple smiled into each other's faces.
 
-	"... And on this beautiful day, who can say that they don't fight with all our hearts and souls for one another? Let the floodgates of peace and prosperity open up and crash down on this couple. They're now ready to brave the storm of True Matrimony(TM).
+"... And on this beautiful day, who can say that they don't fight with all our hearts and souls for one another? Let the floodgates of peace and prosperity open up and crash down on this couple. They're now ready to brave the storm of True Matrimony(TM).
 
-	And isn't this matrimony? Isn't this some sweet holy stuff?"
+And isn't this matrimony? Isn't this some sweet holy stuff?"
 
-	I remember the kiss was as passionate as Renee's cold cheek on my shoulder was. Her hand was on my other shoulder. I stayed put but felt worse than being broke. 
+I remember the kiss was as passionate as Renee's cold cheek on my shoulder was. Her hand was on my other shoulder. I stayed put but felt worse than being broke. 
 
-	The ceremony lasted roughly ten minutes. Everyone stood up and whooped as I clapped out a death march. They walked down the artificial aisle while we tossed rice and a few slinkies, then we all headed towards a picnic table full of strawberries, cake and smoked salmon sandwich halves.
+The ceremony lasted roughly ten minutes. Everyone stood up and whooped as I clapped out a death march. They walked down the artificial aisle while we tossed rice and a few slinkies, then we all headed towards a picnic table full of strawberries, cake and smoked salmon sandwich halves.
 
-	But before we made it to the table, a stint of notes called us from across the field. Suddenly, a traveling quartet arrived. No one claimed them for the wedding, but they trailed up to us anyway. Someone laughed earnestly that this was the bride's French gypsy roots bringing some of her history home with solemn symbol crashing and jerky dancing.
+But before we made it to the table, a stint of notes called us from across the field. Suddenly, a traveling quartet arrived. No one claimed them for the wedding, but they trailed up to us anyway. Someone laughed earnestly that this was the bride's French gypsy roots bringing some of her history home with solemn symbol crashing and jerky dancing.
 
-	The oompah loompah band flounced forward and stopped in front of the couple. No one was speechless and we talked over their looks. The band jawed and jeered thick horn drawls and hard drum beats at us. Their ringleader, Thin Man Dan walked out in front of them. I knew him from playing a few shows here and there around Brooklyn. He was a tall pencil head who played tenor sax like a bad gift. The band quieted their harmonies until it was only him playing. He did a jig with a ten second solo free jazz finale. Then finally all tooted their last together as we all clapped profusely at their talents and many berets.
+The oompah loompah band flounced forward and stopped in front of the couple. No one was speechless and we talked over their looks. The band jawed and jeered thick horn drawls and hard drum beats at us. Their ringleader, Thin Man Dan walked out in front of them. I knew him from playing a few shows here and there around Brooklyn. He was a tall pencil head who played tenor sax like a bad gift. The band quieted their harmonies until it was only him playing. He did a jig with a ten second solo free jazz finale. Then finally all tooted their last together as we all clapped profusely at their talents and many berets.
 
-	"Friends!" Thin Man Dan raised his arms. "We don't know you but applaud this hefty wager you're playing with life. We're all for you, and we're gambling just by throwing in our hats," he tipped his dusty top hat off and it landed with a tiny crunch on the grass. A few people glanced at the hat then back at him.
+"Friends!" Thin Man Dan raised his arms. "We don't know you but applaud this hefty wager you're playing with life. We're all for you, and we're gambling just by throwing in our hats," he tipped his dusty top hat off and it landed with a tiny crunch on the grass. A few people glanced at the hat then back at him.
 
-	"Shakespeare once said in a mixed review play" he bellowed, addressing the couple, "'All the world is a stage! You get hitched and life's a bitch!' So please let us all be your audience and see through it that you have a happy ending."
+"Shakespeare once said in a mixed review play" he bellowed, addressing the couple, "'All the world is a stage! You get hitched and life's a bitch!' So please let us all be your audience and see through it that you have a happy ending."
 
-	He lowered his hands and presented them to the couple, "Congratulations!"
+He lowered his hands and presented them to the couple, "Congratulations!"
 
-	Everyone hurled a few hurrahs and they shook hands. The bride's rich parents fluttered back towards the food tables and the younger crowd lazily followed. They began unwrapping the cellophane delicately, commenting on how the fare was fairly better than usual wedding fodder. Some drinks were poured and everyone's brains started lubing up to the middle afternoon.
+Everyone hurled a few hurrahs and they shook hands. The bride's rich parents fluttered back towards the food tables and the younger crowd lazily followed. They began unwrapping the cellophane delicately, commenting on how the fare was fairly better than usual wedding fodder. Some drinks were poured and everyone's brains started lubing up to the middle afternoon.
 
-	Renee started engaging in chipper conversations but I broke off. My heart wasn't into feeling like a trophy hanging limply from a hand. I idled away around the park finally sulking against a tree. My forehead shined and glazed until the sun finally shied away behind the clouds.
+Renee started engaging in chipper conversations but I broke off. My heart wasn't into feeling like a trophy hanging limply from a hand. I idled away around the park finally sulking against a tree. My forehead shined and glazed until the sun finally shied away behind the clouds.
 
-	A game of bocce started up in front of me, and the old Italians were fully charged. They were so animated, men in their eighties breaking sweats yelling at each other over tiny inches. I remember wondering what yelling was for anymore as a familiar feeling gurgled in my stomach.
+A game of bocce started up in front of me, and the old Italians were fully charged. They were so animated, men in their eighties breaking sweats yelling at each other over tiny inches. I remember wondering what yelling was for anymore as a familiar feeling gurgled in my stomach.
 
-	In the near distance I could still see tight jeans and skirts intermingling. One broke off slowly drifting towards me.
+In the near distance I could still see tight jeans and skirts intermingling. One broke off slowly drifting towards me.
 
-	"Hey, whatcha doin there?"
+"Hey, whatcha doin there?"
 
-	I sat silent, watching the dry fall leaves blow between our feet. Finally I looked up into her face, but mostly her hair.
+I sat silent, watching the dry fall leaves blow between our feet. Finally I looked up into her face, but mostly her hair.
 
-	She sequined her words into a fashionable sing song "When are we getting married, Om?"
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-----
-
-That day I stared into Renee's eyes, and her into mine. I wasn't sure what I saw, or was supposed to see. They were like any others, and it wasn't like I could stare into eyes that long anyway. I guess it was a boon, really. When you can stare and no one is offended, or aggravated, or aggitated or uncomfortable. I imagine it used to be that everyone was allowed to stare into the other's eyes until they realized they loved them, meant something to them or weren't dead yet. I stared into Renee's eyes and I watched my fisheyed reflection watching back at me. One thing I didn't expect was to find myself in there, especially since people usually move too much to notice that.
-
-
-
-
-
-
-
-
-
----
-We both knew the answer but were completely ignorant about it.((?))
----
-
-
-
-
-
-
-
-It turned out Renee knew many people here for years. Marty was an ex-boyfriend and former singer of a sellout band now heading North to work in a hemp factory he's a nice guy you'd like him for sure. Another friend she fell out of touch with because of a cold war relationship in their English class in University.
-
-"Evangeline!" Renee exclaimed.
-
-
-
----------
-
-
-
+She sequined her words into a fashionable sing song "When are we getting married, Om?"
