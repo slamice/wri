@@ -1,6 +1,8 @@
 CHAPTER 5
 
-A few nights later Selina virtually hit me up for a coffee. "Hello fellow human!" She cheerfully gleed at me through the phone. Selina didn't think "you guys" made any feministic sense, so she always opted for "Hello kindly people" or "Greetings fellow homosapiens."
+Nights were stay at home nights for Renee more or less. But once a month Renee invited some conspiritors over for a drum circle. A few natives combined with her friends sat around a huge frame drum with their respective clubs. Incense was lit, what sounded like hymnish things were sung. I was invited but kindly excused myself on those nights. It was interesting to find a clean apartment after coming back, at least the living room would be.
+
+Renee had an eigthies romcom on while we picked up clothes. Selina interrupted it virtually with a hit me up for a coffee. "Hello fellow human!" She cheerfully gleed at me through the phone. Selina didn't think "you guys" made any feministic sense, so she always opted for "Hello kindly people" or "Greetings fellow homosapiens."
 
 "Hey."
 
@@ -16,11 +18,9 @@ A few nights later Selina virtually hit me up for a coffee. "Hello fellow human!
 
 "I'll venture there then," and hung up.
 
-Once a month Renee invited some conspiritors over for a drum circle. A few natives combined with her friends and conspirators sat around a huge drum with their respective clubs. Incense was lit, hymnish things were sung. I was invited but kindly excused myself on those nights. It was interesting to find a clean apartment after coming back, at least the living room would be.
+I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
 
-Renee had an eigthies Romcom on while she picked up clothes. I sacked on a pair of jeans, ignoring her critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
-
-"You can't just finish help me out with cleaning?"
+"You can't just leave, finish helping me out with cleaning?"
 
 "I think you have it handled."
 
@@ -32,21 +32,21 @@ Renee had an eigthies Romcom on while she picked up clothes. I sacked on a pair 
 
 "Please not again. Please."
 
-She paused the film for a second "Can you get me a latte then? French roast."
+She paused the film for a second "Can you get me an iced latte then? French roast."
 
 "Sure."
 
-I still can't count the number of times I walked up and down those streets. I could point to where I found five dollars in change, where various throw up was spewed. Construction projects were laid out, miserably distorted around the blocks. I passed an oven was left to starve on the sidewalk, not before they stuffed it with empty bottles yet to be recycled.
+I still can't count the number of times I walked up and down those streets. I could point to where I found ten dollars in change, where various throw up was spewed. Construction projects were laid out, miserably distorted around the blocks. I passed an oven was left to starve on the sidewalk, not before they stuffed it with empty bottles yet to be recycled.
 
 ((I remember that night distinctly because it was like any other night.)) The cold tried to creep into my jacket, into my pants. 
 
 The down and out bars hid in the shadows behind car garages. Cool as they were, they served mac and cheese types of things, beer and little else. There were no windows so I couldn't see the people potentially dying from such a fire hazard inside. The two sushi places on the way I passed were idly populated. A bit further along, the projects were trying to project on to me, non discreet and brooding. The people who lived there almost all had projects. Brutal two day jobs, brutal childcare for their oh so many children and brutal laziness. Distanced, there were convenient stores far too expensive to be convenient. The arrangement was all a maze of zoning left over from a previous era.
 
-A few girls sexed by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. I was disgusted to think so, but hardly guilty. Also there was a native American homeless lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive that someone tried to talk her down to five.
+A few girls sexilyed by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. I was disgusted to think so, but hardly guilty. There was a Native American selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive that someone tried to talk her down to five.
 
 At about that time I paced myself slower trying to time how late I'd be. I remember going in a haze, the buildings around me didn't exist as I stared at the ground or nothing. That's when I lifted a penny off the world and put the grimy thing in my pocket. This was money on the ground, pure value. Over the years I made quite a heap. Probably around sixty dollars. The change was all in a small jar. I never really felt I needed it though. It's the one thing I don't leave someone. Because no one wants the small, immediate minute pennies.
 
-It was late but the dark cafe was still pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played risk in corners. Each table had a giant pinecone on it.
+It was late but the dark cafe was still pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played cards or board games in corners. Each table had a giant pinecone on it.
 
 Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
 
@@ -130,7 +130,7 @@ Both Gala and Selina worked at a soup kitchen together every otehr week. It's ho
 
 On my way out I ordered Renee's latte. ((Selina's haze started to brighten up, ))
 
-I tried to change the subject, "I'm getting worried about my visa."
+It was obviously the wrong topic in every way. I tried to change the subject, "I'm getting worried about my visa."
 
 "Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it. We exist." she said dryly. "It's been a while though?"
 
@@ -144,71 +144,52 @@ I tried to change the subject, "I'm getting worried about my visa."
 
 I looked at Selina, "I think mentally we're not there yet. We both have our reservations."
 
+She nodded again, licked her lips then nodded again. We were done, obviously. I didn't feel like sitting another hour like that. My restlessness took me there, and soon enough took me outside with a wave.
 
+The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments that were half finished had already been bought. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. The Basterdized Bauhaus practically laughing at them, I can almost hear it. The same sky's they'd be under has been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they really needed to do to need to do.
 
+But what makes a city? People. What were the people doing on the sixty seventh floor, what happened in the basement on the third Wednesday night of every month. What opened, what closed, who was creating something beautiful? These were some enlightned mother fuckers, right? That's what I thought. Worldly people. You know before I moved I heard the city did something to you. You know. But what I found concrete with garages or delis on every other corner... I was still there and I didn't find anything.
 
+I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. Renee's latte felt only faintly warm in my hands as I sipped it. I looked up and tried to find a star while under the street lamps but they glared far too much.
 
+Trying to calm down, I hummed a soft sylable in a bass, my eyes still closed, forgetting the world. I could still hear the wind so I tried to shut it out. And the street cars. And the silence. I thought about what I was looking for.
 
-The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments that were half finished had already been bought. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. Basterdized Bauhaus. The same sky's they'd be under has been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they needed to do to need to do.
+A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly. And the latte was cold now and getting colder and wondered where it was, so I had to save it.
 
-Before I moved I heard the city did something to you. The city that was the interest. But I'd walked miles around it, in it, through it and I found nothing. I found concrete with garages or delis on every other corner. 
+Honestly you were just there, and I loved you. But really, we grew apart just like I grew apart. You were cautious and protective and it horrified me for a long time. That's the closest I can give to an explanation.
 
-But what makes a city? People. What were the people doing on the sixty seventh floor, what happened in the basement on the third Wednesday night of every month. What opened, what closed, who was creating something beautiful. But I'm not sure I found any people with anything. It was many nights where I walked the streets with people holding up their umbrellas, all of them going in trickles on small streets or busting out of subways on the main ones spewing into the street. I watched the rain water go down the drain. Sometimes it overflowed but it all went down the drain. The point was lost.
+The straight silent street led me back. The light was on in Jack and Andy's apartment. A fever of rage suddenly surfaced. Who was Andy. Such a bastard. I wanted to tear off his limbs and beat him with them.
 
-
-I thought about it a lot. There is no counterpart to 'lonely'. It's implied that a person is naturally with other people. And in loneliness, there is a problem. Because no one is naturally lonely. 
-
-I realized when people get out of the city, like when I was hiking Qurnat as Sawda, the comfort is not that you are alone. Because the nature is there, you feel you aren't alone. You are small but you are not alone. There is always a comfort deep down that you are part of it, and they get out to remember that, whether they realize it or not. And there are no drains.
-
-I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. I sipped Renee's latte, the ice melting inside it as my hand warmed it. I looked up and tried to find a star while under the street lamps. But they glared far too much.
-
-A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-I hummed a soft sylable in a bass, my eyes still closed, forgetting the world. I could still hear the wind so I tried to shut it out. And the street cars. And the silence. I thought about what I was looking for.
-
-But the latte was cold now and getting colder and wondered where it was, so I had to save it.
-
-Honestly you were just there, and I loved you. But really, we grew apart just like I grew apart. You were cautious and protective and it horrified me for a long time. 
-
-On my way back I passed by Jack and Andy's apartment and noticed the light was on. A fever of rage suddenly overtook me on my walk back. Who was Andrew. Such a bastard. I wanted to tear off his limbs and beat him with them.
-
-WHen I entered the apartment Renee and her friends Ethan and Marley were talking to an elder native named Farmer's Son. I simply gave a nod to their direction as I headed into the kitchen. They waved and nodded back but Farmer's Son had them pegged at something in their conversation. In the kitchen I overheard them talking.
+When I entered the apartment Renee and her friends Ethan and Marley were talking to an elder native named Farmer's Son. I gave a nod in their direction as I headed to the kitchen. They waved and nodded back but Farmer's Son had them pegged at something in their conversation that drew them in. I tried not to overhear them and shuffled around, but in a small apartment there were no secrets.
 
 "I'm sorry, there's nothing I can do." Farmer's Son said.
 
-"How many more times at the sweat lodge would it take?" Ethan asked, I could barely hear him.
+"How many more times at the sweat lodge would it take?" Ethan asked.
 
 "It's not a simple thing to take. I'm sure you can find a way without me."
 
-Renee chimed in, "but we've been practicing for years here. I've been twice already."
+Renee chimed in, "but we've been practicing pyote for years here. I've been twice already."
 
-Farmer's Son "Let me be honest with you." he said, his low voice sounding tired, "This is very deep. You don't need me to introduce you to anyone in Peru ((for ayahuesca)). You can go as tourists. Again thank you or holding this."
+Farmer's Son "Let me be honest with you." he said, his low voice sounding tired, "This is very deep. You don't need me to introduce you to anyone ((for ayahuesca)). But it's not my place to advocate for it on behalf of you. You have to understand, I can't advocate on behalf of the tourists. Hat is what they see you as."
+
+"It is though!" Renee said emphatically.
+
+"Respectfully, I'm sorry. Again, thank you for holding this."
 
 I barely heard the echo of him going down the stairs while Renee discussed something with Ethan and Marley as they left.
 
 "He called us tourists." Ethan told Renee blankly.
 
-"We are not tourists." Marley told her blankly.
+"We are not tourists." Marley reiterated.
 
-She waved them off and sounded out a goodbye to me. Renee went to lie on her bed from there, disappointed and ignoring me turning on a movie.
+=============
+
+What was that about? I asked
+
+
+=============
+
+Soon enough, she waved them off and sounded out a goodbye to me. Renee went to lie on her bed from there, disappointed and ignoring me turning on a movie.
 
 "Can you turn on the laundry again? I forgot to take out the clothes so they might have mold on them." She called out.
 

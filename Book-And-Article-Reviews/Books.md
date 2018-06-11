@@ -27,6 +27,16 @@
 
 
 
+
+
+
+
+
+
+Open to Desire: The Truth About What the Buddha Taught - Mark Epstein
+
+All Quiet on the Western Front - Erich Maria Remarque
+
 300 Arguments: Essays - Sarah Manguso
 
 The Picture of Dorian Gray - Oscar Wilde
