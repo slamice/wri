@@ -15,6 +15,28 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+300 Arguments: Essays - Sarah Manguso
+
+The Picture of Dorian Gray - Oscar Wilde
+
+The Art of Living: The Classical Manual on Virtue, Happiness and Effectiveness - Epictetus, Sharon Lebell
+
+Nature, Man and Woman - Alan W. Watts
+
+The War of Art: Break Through the Blocks and Win Your Inner Creative Battles - Steven Pressfield, Shawn Coyne
+
 How to Think About Exercise - Damon Young
 
 The Little Book of Letting Go: A Revolutionary 30-Day Program to Cleanse Your Mind, Lift Your Spirit and Replenish Your Soul - Hugh Prathe

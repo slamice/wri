@@ -1,35 +1,30 @@
 CHAPTER 5
 
-Once a month Renee invited some conspiritors over for a drum circle. A few natives combined with her friends and conspirators gathered together on these nights. Incense was lit, something like hymns were sung. I was invited but kindly excused myself on those nights. It was an opportunity to find a clean apartment after coming back, at least the living room.
+A few nights later Selina virtually hit me up for a coffee. "Hello fellow human!" She cheerfully gleed at me through the phone. Selina didn't think "you guys" made any feministic sense, so she always opted for "Hello kindly people" or "Greetings fellow homosapiens."
 
-
-
-
-A few days later Selina virtually hit me up for a coffee ((headache)) that night. "Hello fellow human!" She cheerfully gleed at me through the phone. Selina didn't think "you guys" made any feministic sense, so she always opted for "Hello kindly people" and "Greetings fellow homosapiens."
-
-"What's up?"
+"Hey."
 
 "You should come out." she whispered, "I'm at Cup O'Joe."
 
-"At the coffee shop?" I could hear her red face.
+"At the coffee shop?"
 
-"A cough-ee-shop?"
+"A cough-ee-shop?" I could hear her red face.
 
 "Are you high?"
 
 "I may be high. It is a definite possibility."
 
-"I'll venture out then."
+"I'll venture there then," and hung up.
 
-And I hung up.
+Once a month Renee invited some conspiritors over for a drum circle. A few natives combined with her friends and conspirators sat around a huge drum with their respective clubs. Incense was lit, hymnish things were sung. I was invited but kindly excused myself on those nights. It was interesting to find a clean apartment after coming back, at least the living room would be.
 
 Renee had an eigthies Romcom on while she picked up clothes. I sacked on a pair of jeans, ignoring her critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
 
-"Without helping me clean?"
+"You can't just finish help me out with cleaning?"
 
 "I think you have it handled."
 
-"You never stay. Actually you never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
+"You never stay. You never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
 
 "It'll only be until you're done. There is no other girl."
 
@@ -41,14 +36,13 @@ She paused the film for a second "Can you get me a latte then? French roast."
 
 "Sure."
 
-I couldn't and still can't count the number of times I walked up and down those streets. I could point to where I found five dollars in change, where various throw up was spewed. Constructions laid out, miserably distorted. An oven left to starve on the side of the road, not before they stuffed it with empty bottles yet to be recycled.
+I still can't count the number of times I walked up and down those streets. I could point to where I found five dollars in change, where various throw up was spewed. Construction projects were laid out, miserably distorted around the blocks. I passed an oven was left to starve on the sidewalk, not before they stuffed it with empty bottles yet to be recycled.
 
-I remember that night distinctly because it was like any other night. The cold tried to creep into my jacket, into my pants. The down and out bars hid in the shadows of construction. Cool as they were, they served mac and cheese types of things but little else. There were no windows so I couldn't see the people potentially dying from such a fire hazard inside. The two sushi places on the way I passed were idly populated. A bit further along, the projects were trying to project on to me, non discreet and brooding. The people who lived there almost all had projects. Brutal two day jobs, brutal childcare for their oh so many children and brutal laziness. Distanced, there were convenient stores far too expensive to be convenient. The arrangement was all a maze of zoning left over from a previous era.
+((I remember that night distinctly because it was like any other night.)) The cold tried to creep into my jacket, into my pants. 
 
-A few girls sexed by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. I was disgusted to think so, but hardly guilty. Also there was a native homeless lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive that someone tried to talk her down to five.
+The down and out bars hid in the shadows behind car garages. Cool as they were, they served mac and cheese types of things, beer and little else. There were no windows so I couldn't see the people potentially dying from such a fire hazard inside. The two sushi places on the way I passed were idly populated. A bit further along, the projects were trying to project on to me, non discreet and brooding. The people who lived there almost all had projects. Brutal two day jobs, brutal childcare for their oh so many children and brutal laziness. Distanced, there were convenient stores far too expensive to be convenient. The arrangement was all a maze of zoning left over from a previous era.
 
-A cow hummed in my pocket and it was my father. Crawling over my phone was his number, so I hesitated a bit. The mistakable conversations we had with each other were not riveting and were very brief. The surprise came when any of them lasted longer than 10 minutes. Our relationship could be taken lightly with a few exclaimations, barely a few grams.
-
+A few girls sexed by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. I was disgusted to think so, but hardly guilty. Also there was a native American homeless lady selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive that someone tried to talk her down to five.
 
 At about that time I paced myself slower trying to time how late I'd be. I remember going in a haze, the buildings around me didn't exist as I stared at the ground or nothing. That's when I lifted a penny off the world and put the grimy thing in my pocket. This was money on the ground, pure value. Over the years I made quite a heap. Probably around sixty dollars. The change was all in a small jar. I never really felt I needed it though. It's the one thing I don't leave someone. Because no one wants the small, immediate minute pennies.
 
@@ -72,13 +66,9 @@ Selina's eyes were at half mast with a very visible hazy red in their corners "I
 
 "How's Renee? She never comes out."
 
-"Yea she's not feeling too well tonight."
+"Yea she's doing her Drum circle tonight. The nativities."
 
-"Oh, what's wrong?"
-
-"Well we don't know exactly but her mono is acting up again." I shifted in my seat uncomfortably. Our conversation breaks were laggy but not substantial.
-
-I pushed the envelope and the coffee mug against my cheek.
+Selina frowned at that. I pushed the envelope and the coffee mug against my cheek.
 
 "What are you doing?"
 
@@ -88,17 +78,17 @@ An eyebrow raised a chuckle, "then why order anything with coffee?"
 
 "A latte is thicker so it'll keep me warmer."
 
-I drank it as my head slowly began to hurt. The milk was heavy and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness would be there to weigh down the rest of my day.
+The coffee was particularly strong, and since I very rarely drank coffee my head began to hurt. The milk was heavy and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness would be there to weigh down the rest of my day.
 
-"Adrian's not working tonight looks like."
+"Adrian's not working tonight looks like." I mentioned casually as I watched someone take a bit of avocado toast.
 
-"She's playing tonight. At the Claybourne Whatever. It's the new place near Main and Clinton." Her high was coming down very slowly.
+"She's playing tonight. At the Claybourne Whatever. It's the new place near Main and Clinton."
 
-"Yea I heard about it. She plays a lot."
+"Yea I heard about it. She plays a lot. You don't want to go? I'd totally be up for it."
 
-"She's really good. You don't want to go? I'd totally be up for it."
+She shrugged, "Kind of, but just wanted to take it easy tonight. Take it easy."
 
-I shrugged, "Kind of, but just wanted to take it easy tonight. Take it easy. I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
+"Yea, me too", I said. "I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
 
 ((heart problems, kind of important part here, move to another section?))
 
@@ -106,9 +96,9 @@ I shrugged, "Kind of, but just wanted to take it easy tonight. Take it easy. I s
 
 "I don't know but it sounds like a heart thing to me. I got checked up and they said they it's nothing they can find or detect, and that I shouldn't worry about it."
 
-"You sure?"
+"You sure? Sounds serious."
 
-"Yea but you can never be too sure."
+"Yea, it's not a big deal they are rare and only last a second. But you can never be too sure."
 
 Selina coughed and clutched her chest. Her fits were minor asthma leftover from her childhood. "So annyoing..."
 
@@ -126,13 +116,13 @@ I looked around aimlessly. People worked away on their computers. Some were laug
 
 "No, why?"
 
-"I don't know I started seeing her around more often."
+"I don't know I started seeing her around more often. She comes here right?"
 
-Selina started to look a bit frazzled. Upset wasn't quite the word, but her high was wearing off pretty quickly.
+Selina started to look a bit frazzled. Upset wasn't quite the word, but her high was wearing off pretty quickly then.
 
 "I don't understand why everyone wants to know about how Gala is. Is she so pretty? Or so interesting? She's cool but I get that five times a week. I don't even talk to her that often at The Meatloaf."
 
-Both Gala and Selina but worked at a soup kitchen sometimes. It's how they met. They called it The Meatloaf because it was the main thing they served for the homeless. More recently they put an egg in the middle of the meatloaf so it would look fancier and save on the price of actual meat.
+Both Gala and Selina worked at a soup kitchen together every otehr week. It's how they met. They called it The Meatloaf because it was the main thing they served for the homeless. More recently they put an egg in the middle of the meatloaf so it would look fancier and save on the price of meat.
 
 (("You know Meat loaf gets really made when people think his name is one word."
 
@@ -142,13 +132,22 @@ On my way out I ordered Renee's latte. ((Selina's haze started to brighten up, )
 
 I tried to change the subject, "I'm getting worried about my visa."
 
-(("Why?"
+"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it. We exist." she said dryly. "It's been a while though?"
 
-"Because I'm suffering here. It's just so beauracratic. It's been a year and..."))
+"It's just so beauracratic. It's been a year and will probably take longer." I said, shrugging.
 
-"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it. We exist." she said dryly.
+"Why don't you marry Renee?"
 
-((Start to talk about potential marriage to Renee))
+"I don't think we're quite there yet."
+
+"So it's a commitment thing? Like responsibility stuff?"
+
+I looked at Selina, "I think mentally we're not there yet. We both have our reservations."
+
+
+
+
+
 
 The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments that were half finished had already been bought. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. Basterdized Bauhaus. The same sky's they'd be under has been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they needed to do to need to do.
 

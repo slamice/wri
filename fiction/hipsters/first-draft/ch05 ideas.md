@@ -1,3 +1,15 @@
+"How's Renee?"
+
+"Yea she's not feeling too well tonight."
+
+"Oh, what's wrong?"
+
+"Well we don't know exactly but her mono is acting up again." I shifted in my seat uncomfortably. Our conversation breaks were laggy but not substantial.
+
+
+================
+
+
 The fruit flies hovered over the old juicer. It was Renee's present to me.
 
 ===============

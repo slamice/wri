@@ -133,6 +133,16 @@ I'll be honest and tell you their conversation was crap. It would have been more
 
 ----
 
+I walked to the bus stop and found Andy standing there, checking his nonexistant watch.
+
+
+
+
+
+
+
+
+
 Andy surveyed the death in the landscape. The people there moved but they went unnoticed, as if they were just a part of the old buildings flailing or coming loose. We stood at the bus stop in silence except for Andy's loud hacking coughs.
 
 He gave me an eye, and asked me to care. "Where's the bus? Where will it take us?"
@@ -149,11 +159,11 @@ The whole bulky thing started to tear up in front of me. The eyes welled and rod
 
 "To hell with you." He whispered at me. "You're going to burn."
 
-"You go to hell, asshole." I told him, and stood a few meters away form him at the bus stop.
+"You go to hell, asshole." I told him, and stood a few meters away from him at the bus stop.
 
 A few minutes passed by. I snuck a few looks at him and he coughed up a few at me. The bus was late.
 
-A few moments later Andy started asking randoms basiing by in their blankets and thick holey robes if they had any crack. This annoyed me to no end but I tried to ignore it.
+A few moments later, I hoped for kicks, Andy started asking randoms basiing by in their blankets and thick holey robes if they had any crack. This annoyed me to no end but I tried to ignore it.
 
 "Any crack? Anyone?" Andy yelled drunkenly. "Any crack Om?"
 
@@ -181,24 +191,31 @@ Alex immediately lost interest and turned away, but as Andy watched him go he sa
 
 "What?!" Alex turned around excitedly, "What did you tell me? Do you know who I am? I'm Alex, I own all of Manhattan. I own your ass too."
 
-They were face to face, all pock marks and acne on both were clearly visible in a standstill. Before the brawl occured though I ran over and stepped between them.
+They were face to face, all pock marks and acne on both were clearly visible in a standstill. The brawl started and they were tugging at eachother. Alex gripped Andy's collar, Andy trying to shove him away. I tried to come between them, pushing them off eachother. Alex was all wirey and Andy was sedated enough to take a step back.
 
 "Hey," I yelled, nervous as hell. "Listen no no, this is not happening." I turned to the man, "Listen he doesn't want crack. Really he doesn't he's so drunk and doesn't know what he's saying."
 
 To Andy, "You don't want crack man. You've never had it and you're too drunk to try it anyway."
 
-They slowly backed away from each other, but not before I noticed Alex repocket what appeared to be a gun.
+They slowly backed away from each other, but not before I noticed Alex repocket what appeared to be a large blade. We kept quiet and watched him until he disappeared behind a wall a long block away.
 
+Andy huffed, avoiding my eye. "Thanks." He said in a small voice.
 
+"You calm now?"
 
+"I'm good. I was calm before."
 
+We stood, thinking about what just happened, until Andy pointed at my leg. There was a long rip in my jeans, with a small gash the rest of my leg missed. "You've got a thing." 
 
+"What the hell? From his knife?"
 
+"Hope he sterilized the knife then." Andy said defiantly.
 
+I couldn't believe him. "You fucking dumbass. You'll have to get a life one day Andy, before you lose it."
 
-I looked at Andy and he said nothing. The silence was only broken once his bus came minutes later. "Renee is a whore." Andy said to me passively, smiling as he got on.
+I looked at Andy and he said nothing. His heart was only half in it for another round of fighting. The silence was only broken once the bus came minutes later. Andy looked back at me said, smiling as he got on, "Renee is a whore." 
 
-"You're a whore." I called back after him.
+"You're a whore." I sneered.
 
 He didn't look at me until the bus started moving. We stared at eachother, wth a pact for our feelings to be forever unresolved.
 
