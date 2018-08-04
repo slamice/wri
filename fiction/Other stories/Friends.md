@@ -1,3 +1,14 @@
+Title: Friends
+
+Possible other title: The-eternal-possibility-that-wanders-touching-everyone
+
+
+
+-------------
+
+
+
+
 
 He felt he had little in common with her but that look, the one she made when she stared at him. He could match it. And that they knew how alone they were in the world and it was a solemn feeling. They shared that and they could lie against each other and not say a word, holding hands even, facing oblivion. And that was it.
 
@@ -346,3 +357,59 @@ I didn't go to her wedding because I didn't want to see her marrying this man.
 
 :::: It's about discovering the person you made to be so beautiful be so different from what your imagination construed.
 
+
+
+----------------------
+
+
+The eternal possibility that wanders touching everyone
+
+He ran. She called.
+
+She called a taxi.
+
+They sat. She talked. He listened. She sighed. He consoled. She played with her spoon.
+
+She expensed the meal. He paid the tip.
+
+She was pregnant. He congratulated her. She lost the baby. He was sorry.
+
+They walked back to the hotel. She leaned in. He held her. She
+
+
+
+
+
+She disappeared forever. He walked home.
+
+-----
+
+Lying on the bed together dreaming of life in college
+
+((But)) You can't masturbate to that kind of memory. You probably shouldn't((, at the very least)).
+
+-----
+
+He felt he had little in common with her but that look, the one she made when she stared at him. He could match it. And that they knew how alone they were in the world and it was a solemn feeling. They shared that and they could lie against each other and not say a word, holding hands even, facing oblivion. And that was it.
+
+-----
+
+He didn't know if she was like that with anyone else. But tried to forget she was any different. He tried to ward off thoughts of what sex with her husband was like with her.
+
+
+
+-----
+
+She bundled herself up under her hat and knit boots.
+
+As they walked back from Times Square she held his arm. He felt her small breast wedged up against his arm through their jackets. She stared at the ground. Her smile was distant but somehow made her cuter instead of lost.
+
+He tried not to stare at her too long in case she noticed. His heart kept telling him she was beautiful. She never noticed though, busy with her phone, busy with her thoughts of work, of the next day.
+
+"I miss you" he whispered.
+
+"Me too." she whistled out, her voice was wound up tight on a string.
+
+-------
+
+He got in the subway and it whisked him far into queens. Someone sat opposite to him. A beautiful curly haired blonde with leg warmers and a soft shy skin tone. They didn't talk and never met each other again.

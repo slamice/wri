@@ -1,14 +1,135 @@
 CHAPTER 4
 
-Every other day I woke up late and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it. "Fucking tap tap tap. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
+Every other day I woke up late and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it.
 
-She was still asleep when I headed out, her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in a corner of Greenpoint. When Renee was late or had mono once a week they accomodated for it. In between smoke breaks and relabeling medicine she'd call or text me about dinner or a movie or gossip. I volunteered briefly out of curiousity but the personalities there were too strong for me. I decided to listen to Renee's tales of the doctors and the far more bizarre patients at a distance. One of the benefits were the first few bottles and boxes of newly imported medicine. She brought home elixirs and herbs promising to revitalize the liver, iron to lighten eyes, tumeric to hydrate you for weeks or mud to clean your digestion. I tried them all and used some of them as spices occassionally.
+"Fucking tap tap tap. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
 
-It came to the point where I couldn't wait for the letter, so the ritual was before work I crept down there to the receptionist. She bore a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She'd hobble busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone 3000 miles away. It stuck in her pride from then on, adding more weight, and a huge grin that dangerously firted with tipping her over.
+She was still asleep when I headed out, her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accomodated her. benefits were the first few bottles and boxes of newly imported medicine. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear up our digestion tracts. I tried them all but still felt pretty dirty.
+
+On my way down my old clamshell phone rang. Even when turned way down its deep bassy ring still begged to be heard against my leg.
+
+Usually I was too lazy to take it out I just hit hard against my pocket until it calmed down. But that day I took it out and my dad's number crawled across the screen.
+
+"Yea?" I wiped my clean chin.
+
+He coughed some static into the phone then replied loudly, "Hey son! Long time no talking! That's how you say hello to your dad?"
+
+"Oh, hello Dad."
+
+"Why hello son!"
+
+"Hi Dad."
+
+"How's the NEW YORK?"
+
+"Better than the old one I guess."
+
+He faked a light laugh, which I appreciated. "Ah, as GOOD or BETTER?"
+
+"Better." I replied.
+
+"Ok, that's great. Better is very good. You enjoying it there computer scientist guy?"
+
+"Enjoying it, is that the question? It's hard here."
+
+I could hear my Dad breathing heavy into the phone. "Did you run or something Dad?"
+
+"Yes son, I did run. I'm always running everywhere getting things for the family."
+
+"Ah ok."
+
+"So work is good? How is your position? Pay raise?"
+
+
+
+
+
+
+I swear I didn't know anything about my aunts, uncles or cousins. Only that they were 'doing fine'. Any operations, epileptic seizures, sometimes even deaths were swept somewhere. Not under a run but in his pocket, ready to strategically come out at the right biting arguments. Well, barely arguments, because my nods were only accompanying his lectures like dutiful claps throughout them.
+
+They were weak and dry and overbearing.
+
+We came to a long pause. These were frequent and unbearable. It's not funny, but I can think of so many things to say now but nothing would change. I am positive he would hang up everytime.
+
+"What about the visa situation. Is it done?"
+
+"It's not yet honestly. They are still processing it."
+
+I hadn't recently, but I did try them a month prior and that was its eternal state, "PROCESSING". It was in their inbox. They could see the envelope, one in a sea of lives at their post office. They could touch it, taste it, smell it. That's what they said over the phone. But the queue was long, they even had to cut a hole in the ceiling to fit the height of the stack. ((Hilarious.)) So they still hadn't opened it.
+
+"You have to try to call them. They should give you an update."
+
+"I did call them. I told you I called them. But they don't answer. And when they did answer they said they will contact me when they are through."
+
+"You don't want to come home to visit?"
+
+"It's taking a long time. They told me they will give me an update when its finished. How's business?"
+
+"Well we have to take care of a lot of things son, a lot of things."
+
+"How's business, Dad?
+
+"It's work son. Contracts and people and a lot of bullshit." He sighed heavily into the phone. "Your brother is helping a lot. He has school but he is helping still. You talked to him?"
+
+"Not too recently."
+
+"Please give him a call son." His voice became business like, sincere. "How about your Mom. Do you want to talk your Mom?"
+
+"I kind of have to go I'm busy right now."
+
+"I see son. You are busy."
+
+"I'll call her later, seriously. You can't imagine what it's like here."
+
+"Ok, well let us know son, we are waiting."
+
+I nodded in the right places and waited.
+
+"Call your mother son."
+
+"I will."
+
+A few I love you's were exchanged, and we hung up. I don't remember who hung up first, but it was probably me.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Down to the limo receptionist for me daily ritual. She bore a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She'd hobble busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone three thousand miles away. It stuck in her pride from then on, adding more weight, and a huge grin that dangerously firted with tipping her over.
 
 She gave me the mail in a heap. "Read 'em and weep!" she laughed hard.
 
-Another week and no visa. The government shrugged and said nothing. They weren't thinking of me, they didn't miss me.
+The US government shrugged and said nothing. Anotehr week without a visa. They weren't thinking of me, they didn't miss me.
+
+
 
 The hues on a winter subway are all the variations of black you can imagine. The people transform into them but they're all really the same still. The bizarre silence mingled with coughs and low groans, the sniffles.
 

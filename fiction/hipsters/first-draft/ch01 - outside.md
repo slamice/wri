@@ -24,7 +24,7 @@ My next guess was Matt never shows up. He was usually late and occasionally we'd
 
 "Isn't that one of those things you have for the rest of your life?"
 
-"Something you gave her?" Jack pulled out a small bottle and rubbed the lotion into his dotted eczema hands. We all noticed.
+"Something you gave her?" We all noticed when Jack itched his eczema hands, rubbed them against his stuble. After it he'd pull out a small bottle and dot lotion all over them to continue the cycle.
 
 To me Mono sounded like the most convenient disease to get yourslef out of anything. You sit in bed until you're awake to sit in bed.
 

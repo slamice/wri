@@ -1,7 +1,58 @@
+
+
+
+
+
+
+
+
+
 Ch1. Moving to the City
 
 
 
+
+
+
+
+
+
+Act of forgetting by side ppl is a choice and a violent one. S choice to destroy a ppl you chose to be ignorant over.
+
+------------------------
+
+Your bed is most comfortable when you're not in it
+
+------------------------
+
+"We know, through very kind, unobtrusive means, that you live with your uncle. A very quiet man."
+
+"We barely hear him!"
+
+"Electricity is highly valued but is it mostly classified..."
+
+"Stupendously!" Josslyn made her hands out to look like an  explosion.
+
+"And we wouldn't be asking you if we didn't mean it in the most sincere way possible... We could revolutionize the BySide. With just a touch of it we can improve our lives ten fold."
+
+"Eight million folds!"
+
+"If..." Mr. Husk stopped dramatically. Josslyn popped open a latch from the wall and pulled out a long two pronged cord.
+
+"We could have just a little bit?"
+
+Zain looked at the cord, "you want to steal electricity from us?"
+
+"... Just a bit?" Offered Josslyn.
+
+
+
+
+
+
+-----------
+
+Mr. Husk. "There is no such thing as a secret. When something is out in the world it will be discovered. Its just a matter of time. But fortunately people are lazy and don't look that hard."
 
 
 ---------

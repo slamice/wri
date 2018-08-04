@@ -1,43 +1,166 @@
-The Romp
+Are their names ok? Should we say The Fervent One's name
 
-She had it. It was something she was in posetion of. She craddled it with disgust. Tender love and care was an understatement.
+Matt?
 
-She had boredom beyond belief. Illogically discomforted. ((Imagine that in your wind pipe and shove it. - maybe no?))
+Know more about The Toadies?
 
-Not only that, but she was frustrated. With her life, with hr family, her cholesterol, her future, her past, the frustrating stuff. And she wanted it bad. If only her frustrations were ecstacy, then she would be queen of kingdom come.
+The government why did they give up on them?
 
-But this woman set herself up to be disappointed. One brutal puncture in her life after another. This was even after she absorbed a mountain of self help books like a blob. Everyday her realizations threw her to the floor and screamed several personal epiphanies at a time. She was shocked and overjoyed that ¨Yea, that cookie from the cafe -meant- something" and "she didnt have to be a boat at sea, she could dock!". But then reality showed its knuckles to her and said shut up before I let logic bite you. For a mean one, and doesnt care about what dream you told your mom about on the phone last Saturday.
 
-So she was alone, sobbing inside.
 
-She lived in an apartment only a mother could love sarcastically. The woman was a mess, and her apartment made the man. Her lamp shade a towel, her coffee table a box of unpacked highschool trinkets, her castle a burnt pile of rubble.
 
-Her work was mentally crippling and challenging. All she had left was a building frustration in a frustrating building. She was crippled by the fact her work was exhaustingly boring beyond belief. Everyday she pushed papers, and thats it. In fact, she was asked about her progress everyday.
 
-"So, hows the paper pushing coming along?"
 
-The difficulty of the job was to stay awake. It was a struggle when work was slow, when there werent many papers to push. She dreaded the laptop, for that reason. Nothing moved her in an office full of dead flies, except for the dead flies. Silence may have been bliss but it was killing her. She suffered.
 
-The modern day frustrations. Monotonous and plentiful. She had friends but were the kind who would get you lilacs but you dont know how to take care of lilacs and they die and then they ask you "Where are the lilacs?" And you say they died and their face tell you your face is dumb. Thats it, all she had were selfish flower people.
 
-Really, she was done. She looked out at the city. Some buildings were legs tripping over eachother. Others meandering pebbles. Everyday she walked through crowds, so many faces. They werent faceless . They all had them but couldnt face them. So many dorks... And they never seemed to pay the price of humiluating themselves through habit! Or improved their stature or walked their dogs more YOU MORONS.
 
-Everyday she stood in a subway trains while backs hugged her at rush hour. Walls hugged her at the water cooler. The elevator gave her a wet kiss on the 9th floor.
 
-Everyday with the humidity in a gusto wind, the heat off the sidewalk, the cold biting her, munching her comfort on the way home. She was weather's dinner, just another shank. The sweet sweat the sauce. Lamb Shankily she daydreamed kicking the ass of everyday weather for a more stable climate. She would shove all her sweaters and flip flops in its face "ha!" She'd scream.
 
-I mean it when I say she had it. And since you cant really unhave something, semantics got in the way too, so she was pissed. Properly pissed. Not improperly irritated.
 
-But really, what could she do? She sat in front of her desk pushing paper after paper, occassionally pulling. The office was all a buzz with telephone rings, hellos and nice days. "Hurumph¨ she mumbled in a moan. Hurumph indeed. She stared mindlessly at her hands, her fingers, her nails, etc.
+A couple flew up the stairs of the Saint Marks hotel. They burst into the hotel room like a bomb like a train like a typhoon, soon to burst more. 
 
-A quick rush of blood to her head almost scalded her brain. Did she seriously have to fight her own body now? She'd been doing it forever. Far before puberty, if that's what you were thinking. More like when gravity didn't matter. Those were good times, hanging out, wobming.
+The lighting was as dim as the man and it was about to go out. "No time for words" the woman whispered.
 
-Altogether, the agony was too much. There was the physical then the absolute abstract. How many peices of herself were left to give?
+"What?" the man asked.
 
-She got up, and stormed out of the office even when people ignored her as a dilemma, a nuisance only convenient in certain points in time. This wasn't a video game, and those people would still exist in the world in the end, and that still wasn't enough of a good punishment, so honestly God had his hands full and a few more people falling off the sides of those could use a good kick.
+The woman combed her fingers through her ink black hair then shook it apart in a mess. Her sharp eyes peered into his blank blue ones seductively.
 
-So she did, and the papers flew off their desks and into their faces, computers smashed with punches and goliath kicks. The office went suddenly silent and the only sounds left were her violence and their violent awkward glares. No one picked up the phone for security, not yet, too many people were in surprise, shock and some in awe, wondering why she wouldn't be a good person and just jump out the window in a quarter to third life crisis, wherever the math fit in for those who forgot how old she actually was.
+"Tonight's the night." She whispered.
 
-There was a clear path to the elevator that bore no reseblance to the massive mess behind her, the prefect capitalist brick in ruins. Everything was torn out of capitalism's love for simple geometry by the seams. It was, what those seems may be, an awkward occurance to removing modern life drudgery. Many would like to claim they couldn't hurt the machine but even those who say it loudest know they didn't. Because community and love is hard. But everyone had to admit, after she set the fire in the kitchen and the desks in ten seconds flat that she made a pretty deep charred dent in it all.
+He grabbed her by the ankles and swung her in a circle. Letting go sent her flyinghead first into the wall above the bed, leaving a large dent. She ricocheted off it and landed on the mattress intact.
 
-The blaze perked everyone up and in a panic they shuffled into eachother down the staircases to get some exercise finally. The elevator opened for her as if on queue, and she went down the seven flights without a wicked thought in her head, only ones with drive and power, fast enough to break through a wall.
+She looked up at him. "What an -animal-" she thought. Pieces of plaster trickled down over her like city cleaners emptying a fountain half full of pennies.
+
+He coughed a little and asked "What?".
+
+"Youre such a brute." she mewed, teasing the concrete out of her bangs. She looked over his look. His head was a pencil eraser to his staunch body. His muscles were bulbous. All his angles were in the all right places. He was symmetric. Even though he was as dumb as the weights he lifted, he'd do.
+
+"What are you going to do to me, honey?"
+
+The man's blank stare said it all. He thought for a bit and was done for the year. "You know you want it." He recited.
+
+"Then put one on and let's go." She whispered as she gestured him to the bed.
+
+Looking somehow more confused, he asked "Put what on?"
+
+"The rubber." She said flatly.
+
+"Nope. No rubbers tonight." He shook his head, then nodded.
+
+"You can't be serious?" She dusted herself off as she got up.
+
+"I can be serious all night." He said, his stance unchanged.
+
+More furious than disappointed, she pushed herself up and wound up her leg as she approached him. "Well then... Can't... We... Just... Be..." 
+
+He tried to grab her, but her foot had already launched into his stomach. Before he could gasp in any air after the blow he heard the window glass shatter behind him. He fell the full six flights down hard into the dark sidewalk below.
+
+"Friends?!" She screamed down at him. He slowly got to his feet and looked up at her. When he found her he made a phone sign with his hand, which bloodied it from his head wound. He stumbled away as passerbys walked around him.
+
+The window took a chunk of the wall with it. The open facade concept gave her a beautiful view of Midtown. It gave her a lot of perspective.
+
+She was bored beyond belief. Illogically discomforted. Not only that, but she was frustrated. With her life, with her family, her cholesterol, her future, her past, the frustrating stuff. And she wanted to ignore it all bad. If only her frustrations were ecstacy, then she would have been queen of kingdom Come.
+
+The woman looked out into the city as she fished out her phone.
+
+"Jane I _really_ need-"
+
+"Oh My God. What did I tell you?"
+
+"Oh come on. We can't still be doing this name thing. Not after the night I had." She kicked a few bricks down and they fell onto a fire hydrant below. "I've had a damn rough night..."
+
+"Rough night...?" The stern voice on the phone waited.
+
+"I had a rough night... The Ephemeral One." She sighed.
+
+"Thank you. What happened The Fervent One?" The voice on the phone now relaxed in her ear. It consoled her, it pet her with concern.
+
+The Fervent One sat down on the dusty ((dirty?)) sheets and began. "I swear I have no damn luck with anything. First the firing. Then another guy... _Another_ guy... Can you believe this?"
+
+"Ah, I'm so sorry but I'm at work." The Ephemeral One lowered her voice.
+
+"Oh my god why are you whispering it's eleven o'clock. It's Friday night for fuck's sake Jane!" The Fervent One yelled.
+
+"The Ephemeral One!" The Ephemeral One shot back.
+
+"Yea, yea, right sorry. The Ephemeral One. Your _majesty_."
+
+The Fervent One could hear The Ephemeral Ones' eye roll through the phone.
+
+"You have to call it a night. This is beyond ridiculous. No one is that behind. No one is that cruel to make you work on a Friday night."
+
+The difficulty of The Ephemeral One's job wasn't the hours, it was trying to stay awake. She was crippled by the fact her work was exhaustingly boring beyond belief. She was often stuck in the office paper pushing, but to what end she didn't know. Everyday she pushed papers. It was a struggle when work was slow and there weren't many papers to push. She dreaded her laptop for that reason. She suffered.
+
+"Let's cut to the punchline. Let's get a drink tonight. I'm paying."
+
+The Ephemeral One took off her glasses, closed her eyes and massaged deep into them.
+
+"We'll talk about Toadies." The Fervent One said in a sing song voice.
+
+The Ephemeral One's eyes open, and looked out the window next to her. "Actually, yes, we need to talk about them."
+
+--
+
+Twenty or so blocks up and two hours or so drinks later, the two stumbled out of the bar with The Fervent One laughing and baulking, barely able to speak over the slight buzz that occupied The Ephemeral One's head. The Fervent One held a beer bottle wrapped in a paper bag, and they moved in a tipsy two-step down the sidewalk.
+
+"Wh-What did you tell her?"
+
+"Nothing! I didn't say anything."
+
+"But she asked you to if you wanted to learn how to, what was it... Jazz dance? Hip hop?" The Fervent one laughed, "you told her you were going to dance to that hiphop pop garbage?"
+
+"I don't know... I don't know what I was thinking... I don't know what _you_ were thinking with that guy before you called me. What is he, like the tenth?"
+
+"He... Was the twelfth." The Fervent One spat, "These men, none of them are keepers I swear."
+
+As they walked towards Alphabet City, they turned down an alley and emerged at a deserted intersection. In unison they saw one. A massive pile of Toadies. A pyramid of trenchcoated bodies.
+
+"Oh my god, we forgot to talk about The Toadies." The Ephemeral One surprised at herself. The Fervent One made an exageratted gasp at her thinking they finally got to the butt of a joke, "The Toadies!" She whispered.
+
+"Here!" The Ephemeral One yelled, "Here let me show you!" And she ran to the pile stumbling.
+
+"Ah, J-," The Fervent One caught herself, then running after her, "The Ephemenant One!" She giggled.
+
+They made it to the foot of the pile with The Ephemeral One looking for the exposed face of any Toadie. "They're really heavy to move," She tried to flip one over and almost tripped on herself. Even if she weren't intoxicated, The Toadies were heavy.
+
+The Fervent One took a swig from her bottle, then pointed to the top of the pile. "What about that one there?" She suddenly began climbing, digging her heels into the bodies and sockets, grabbing at their trench coats with bemusement.
+
+This was all to The Ephemeral One's horror. The scene sobered her up quickly. "That's horrible! What are you doing?!"
+
+"You wanted to show me right?" The Fervent One made it to the top and tried to find something to see in the distance worth climbing for. But remembering her beer, She sat down on the top Toadie's stomach. "Come on!" she yelled down.
+
+Taking off her shoes The Ephemeral One was careful to dig her feet into any nook she found, avoiding stepping on any eye or sliding into any socket on The Toadie's faces. She took her place next to her friend and they sat like two seagulls on a pile of garbage. "Look!" She pointed at the face of a Toadie and turned, "They were not like this before."
+
+The Fervent one squinted her cat like eyes and cocked her head slightly. Then she took a quick swig from her bottle. "Yea that's pretty gross."
+
+"Its horrible, whats happening to them?"
+
+"It's _almost_ as gross as the first time they showed up." Trying her huge grin at The Ephemeral One again.
+
+The Ephemeral One shot her an angry, disappointed look, but she slowly nodded. "it's disgusting... We don't know what to do about it and no one cares at all."
+
+"I don't think that's true." The Feverent One looked at The Toadie's face. "Do you remember Matt The Barber? Before he quit? All his theories?"
+
+The Ephemeral One sighed in frustration but then smiled at herself. "I miss Matt. He really cared."
+
+"Not enough, that bastard. Look at them now. Seriously, it's giving my hopes up. The poor things, out here for years and now they're looking sickly. And where is Matt? We'll never know, that secret idiot. He can't hide the fact he abandoned them. Maybe he was a farmer? His real job? He's probably back on a farm upstate somewhere so he could have just piled hay on top of them and forget they existed."
+
+"They're not that easy to forget." The Ephemeral One said, taking a sip from the bottle.
+
+The Fervent One took the bottle back and drank a glug, smacking audibly. "I know. No matter how hard I try I can't... Why is that?"
+
+The Fervent One stopped and gave it some thought. "That's a really good question."
+
+"You know I've been fishing for guys, for money, for jobs for years. You know that. But The Toadies have always been there for me."
+
+"Like a plant? Or a piece of furniture-"
+
+They suddenly dropped the conversation when they heard a sound from behind a lamp post on the far right corner of the intersection. They looked suspiciously down at the darkness at something they tried to imagine. Like a ruffled shadow.
+
+"Come out and show yourself, fuckhead!" The Fervent One threw down her bottle on the street. The bottle smashed on impact. The Ephemeral One in disbelief stared back at her friend in shock, but she only shrugged. 
+
+Then they heard two steps.
+
+Their nerves stood on end when a trench coated figure emerged out into the street light. They stared at it intently, and it looked back up at them.
+
+"Please don't cuss." The figure said.

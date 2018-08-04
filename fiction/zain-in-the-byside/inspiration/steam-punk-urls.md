@@ -18,3 +18,7 @@ Inventions:
 https://weburbanist.com/2013/07/08/bizarre-inventions-15-idiotic-ideas-from-the-past/3/
 
 https://www.fastcodesign.com/3039304/design-fail-19th-century-edition-18-patents-that-didnt-change-the-world
+
+https://olddesignshop.com/
+
+http://gyujtemeny.imm.hu/gyujtemeny/armchair-library-chair-with-steps/6620

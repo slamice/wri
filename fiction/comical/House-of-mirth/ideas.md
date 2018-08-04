@@ -14,3 +14,7 @@ In her delerium she tripped on the sidewalk and stumbled across to the house, bu
 "GIRTH" a gaunt servant appeared before her, "GIRTH. HOUSE OF GIRTH." he yelled.
 
 And on the third word she lept up, in a cold sweat.
+
+-----------
+
+Pumpadors. Pompadors ((maybe just dors?)) with pumps (shoes)

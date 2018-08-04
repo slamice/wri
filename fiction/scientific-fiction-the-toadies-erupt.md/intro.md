@@ -23,7 +23,7 @@ A detective is cursing in a roundabout way.
 
 
 Characters:
-- The ferverent (passionate intensity) one
+- The Fervent (passionate intensity) one
 - The ephemeral (lasting a very short time) one
 - The indirectly cursing detective.
 - Megalopygidae Caterpillar (mustache catapilla)
@@ -40,7 +40,7 @@ Characters:
 
 
 
-"We live in a dystopia" Said the ferverent one.
+"We live in a dystopia" Said the Fervent one.
 
 "What the crap is this crap?" said the more ephemeral one.
 

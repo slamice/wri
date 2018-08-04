@@ -3,3 +3,4 @@ Scientific Fiction is the unearthing of fiction with science. It is the ultimate
 In fact, Scientific Fiction makes alternative facts look like alternative facts. In all honesty, Scientific Fiction is the real alternative facts.
 
 
+*Cartoon for Adults*

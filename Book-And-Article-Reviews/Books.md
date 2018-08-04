@@ -28,10 +28,59 @@
 
 
 
+Wilson Baker - The Mezzanine
 
+Brothers Karamosov - Fyodor Dostoevsky (https://archive.org/details/brotherskaramazov2_1606_librivox?q=brothers+karamozov)
 
+Write it down and make it happen - Henriette Klauser
 
+http://booksfromjapan.jp/
 
+A Treatise of Human Nature - David Hume
+
+The Out of sync  - Carol Kranowitz
+
+The tales of earth sea - Ursula K. Le Guin
+
+Animal Spirits: How Human Psychology Drives the Economy, and Why It Matters for Global Capitalism - Robert J. Shiller
+ 
+The Idiot - Elif Batuman
+
+Daily Rituals - Mason Curry
+
+State of Grace - Joy Williams
+
+On the Pleasure of Hating - William Hazlitt
+
+Misinformation and Mass Audiences - Brian G. Southwell, Emily A. Thorson, Laura Sheble
+
+Reading Lolita in Tehran: A Memoir in Books - Azar Nafisi
+
+The Rough Patch: Marriage and the Art of Living Together - Daphne de Marneffe
+
+On the Shortness of Life - Seneca
+
+Money and Magic: A Critique of the Modern Economy in the Light of Goethe's Faust - Hans Christoph Binswange
+
+Ernest Hemingway on Writing - Ernest Hemingway
+
+A Passage to India - E.M. Forster
+
+Naomi - Tanizaki
+
+Gold: The Race for the World’s Most Seductive Metal - Matthew Hart
+
+The Theoretical Minimum: What You Need to Know to Start Doing Physics - Leonard Susskind, George Hrabovsky
+
+Enchiridion - Epictetus, George Long
+
+The New Gold Standard: 5 Leadership Principles for Creating a Legendary Customer Experience Courtesy of the Ritz-Carlton Hotel Company - Joseph A. Michelli
+
+Weapons of Math Destruction - Cathy O'Neil
+
+John Williams - Stoner
+
+Programming & Metaprogramming in the Human Biocomputer: Theory & Experiments - John C. Lilly
 
 Open to Desire: The Truth About What the Buddha Taught - Mark Epstein
 
