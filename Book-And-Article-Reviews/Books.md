@@ -22,11 +22,13 @@
 
 
 
+Raymond Chandler - Under the Volcano
 
+Benjamin Walter One - Way Street and Other Writings
 
+Dennis Cooper - Closer
 
-
-
+Dennis Cooper - Wrong
 
 Wilson Baker - The Mezzanine
 

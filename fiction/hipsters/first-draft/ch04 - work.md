@@ -1,18 +1,18 @@
 CHAPTER 4
 
-Every other day I woke up late and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams. It was far too loud and she hated waking up in the morning to it.
+Every other day I woke up late and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams.
 
-"Fucking tap tap tap. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a huge razor to the floor.
+"Fucking tap tap tap. I hate waking up to that shit. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a giant razor to the floor.
 
 She was still asleep when I headed out, her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accomodated her. benefits were the first few bottles and boxes of newly imported medicine. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear up our digestion tracts. I tried them all but still felt pretty dirty.
 
-On my way down my old clamshell phone rang. Even when turned way down its deep bassy ring still begged to be heard against my leg.
+On my way down my old clamshell phone rang. Even when turned way down its deep bassy sound rang like a cow begging to be heard against my leg.
 
-Usually I was too lazy to take it out I just hit hard against my pocket until it calmed down. But that day I took it out and my dad's number crawled across the screen.
+Usually I was too lazy to take it out and just hit hard against my pocket until it calmed down. But that day I saw his number crawl across the screen.
 
-"Yea?" I wiped my clean chin.
+"Yea?" wiping my smooth chin.
 
-He coughed some static into the phone then replied loudly, "Hey son! Long time no talking! That's how you say hello to your dad?"
+Dad coughed some static into the phone then replied loudly, "Hey son! Long time no talking! That's how you say hello to your Dad?"
 
 "Oh, hello Dad."
 
@@ -40,22 +40,11 @@ I could hear my Dad breathing heavy into the phone. "Did you run or something Da
 
 "So work is good? How is your position? Pay raise?"
 
-
-
-
-
-
-I swear I didn't know anything about my aunts, uncles or cousins. Only that they were 'doing fine'. Any operations, epileptic seizures, sometimes even deaths were swept somewhere. Not under a run but in his pocket, ready to strategically come out at the right biting arguments. Well, barely arguments, because my nods were only accompanying his lectures like dutiful claps throughout them.
-
-They were weak and dry and overbearing.
-
 We came to a long pause. These were frequent and unbearable. It's not funny, but I can think of so many things to say now but nothing would change. I am positive he would hang up everytime.
 
 "What about the visa situation. Is it done?"
 
-"It's not yet honestly. They are still processing it."
-
-I hadn't recently, but I did try them a month prior and that was its eternal state, "PROCESSING". It was in their inbox. They could see the envelope, one in a sea of lives at their post office. They could touch it, taste it, smell it. That's what they said over the phone. But the queue was long, they even had to cut a hole in the ceiling to fit the height of the stack. ((Hilarious.)) So they still hadn't opened it.
+"It's not yet honestly. They are still processing it." It was its eternal state. I knew after a year that they had it on their desk but hadn't opened it yet.
 
 "You have to try to call them. They should give you an update."
 
@@ -83,7 +72,7 @@ I hadn't recently, but I did try them a month prior and that was its eternal sta
 
 "Ok, well let us know son, we are waiting."
 
-I nodded in the right places and waited.
+I nodded in the right places and held on patiently.
 
 "Call your mother son."
 
@@ -91,43 +80,21 @@ I nodded in the right places and waited.
 
 A few I love you's were exchanged, and we hung up. I don't remember who hung up first, but it was probably me.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 Down to the limo receptionist for me daily ritual. She bore a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She'd hobble busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone three thousand miles away. It stuck in her pride from then on, adding more weight, and a huge grin that dangerously firted with tipping her over.
 
 She gave me the mail in a heap. "Read 'em and weep!" she laughed hard.
 
-The US government shrugged and said nothing. Anotehr week without a visa. They weren't thinking of me, they didn't miss me.
+The letter was absent, and I could feel the government silently shrug. Another week without the visa. They weren't thinking of me, they didn't miss me.
+
+***
+
+
+
+
+
+
+
+
 
 
 
@@ -137,21 +104,25 @@ Every so often the Torah shows up. Someone pulls it out, reads it (sometimes aud
 
 As we headed up I look down at the stairs to avoid watching the climbing asses dancing in front of me. Even at 9:30am So many people were ((still)) heading to work. The army of commuters dispersed and I followed my usual route to our 43rd street office and found a hulking Michael out front with a white stub between his fingers.
 
-He was an interesting case. At six foot five he was bound to represent something, which he did. The man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion javelin thrower, so he decided to move on to a different challenge behind a desk punching keys. ((maybe a boxer?))
+He was an interesting case. At six foot five the man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion javelin thrower, so he decided to move on to a different challenge behind a desk punching keys. ((maybe a boxer?))
 
 He also decided to take up the challenge of smoking, practicing twice daily.
 
 "Hey Om."
 
-"There's a gym cruise." I told him.
+"Good morning."
+
+"Kind of late for morning."
+
+"You know about the gym cruise?" I asked.
 
 "Gym cruise?"
 
-"The gym is advertising a buy in. It means free food and a ride around Liberty island for whoever wants to hear a lecture on how great it'll be to pay hundreds of dollars a month to a gym they won't go to."
+"The gym is advertising a buy in. It means free food and a ride around Liberty island for whoever wants to hear a lecture on how great it'll be to pay hundreds of dollars a month to a gym you won't go to."
 
-Michael itched his beard, "I think I've got to take care of my kid that night."
+Michael itched his neck, "I think I've got to take care of my kid that night."
 
-"You have to take care of your kids every night. It's a free cruise, a free something. Think about it. I don't want to go alone." 
+"You have to take care of your kid every night. It's a free cruise, a free something. Think about it. I don't want to go alone." 
 
 "You're not taking your girl?"
 
@@ -161,14 +132,21 @@ Michael itched his beard, "I think I've got to take care of my kid that night."
 
 "Let me know what you decide."
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 Mik, the man who hired me, came from a long line of Belgian fashioners, doctors and big businessers. I was straight out of college, interviewing a few days before my graduation. He made me my first offer and I gladly accepted it.
-
-
-
-
-
-
-
 
 I could mention the Dans and Stans of the office but they stuck out in no particular way. Each with their 'own sense of humor', identical patents pending. The only thing I felt there then was the clock eating away at us diligently as we ran around trying to ignore the bitemarks.
 
