@@ -84,3 +84,108 @@ His window didn't face teh street but an alley that he never saw anyone in. It w
 ------
 
 The BySide is poor because so much money goes into concealing, spying and maintenance. Tearing down old buildings doesn't help them.
+
+
+
+
+--------------
+
+
+
+Zain and the by side
+
+Zain
+
+
+Zain s parents
+
+
+Zain s uncle
+
+
+Nyc mayor
+
+
+Mr. Husk
+
+
+Mr. Husk daughter
+
+
+By side mayor
+
+
+
+Stuff in book:
+
+
+Three lane street bustling
+
+
+Upside down walking with trolleys in the middle
+
+
+Eating extinct animals
+
+
+
+----
+
+"You eat Dodos"?
+
+"Well you didn't want them so we took them back. They're so friendly you almost don't want to."
+
+The dodo cocked its head and looked closely at Zain, then nipped a bit at his belt. Other dodos laid dormant.
+
+----
+
+
+Traveling through train tunnels, Zain feels the wind of the passing train
+
+----
+
+
+The mayor and one of the other inventors are arrested.
+
+
+
+After arresting the mayor, deputy mayor banishes Zain from the Byside and Husk and Penelope from communicating with the outside by signature.
+
+Husk looks at it before signing,
+
+Deputy mayor says "husk you're as blind as I am you know you can't read that now."
+
+
+
+Mr. Husk moves his shop and house.
+
+(But because by side people's sight is bad in the light, Mr. Husk writes a note on the bottom only to contact Zain under extreme circumstances.)
+
+----
+
+
+Things at school and home don't change too much. But Zain's parents work a bit less, Zain works a bit more to help them, and they spend time together. Zain is a bit street smarter at school, and focuses on his studies missing the interruptions.
+
+
+
+For a year Zain doesn't see anything. He ponders the world and introduces a new kid so he's not alienated.
+
+One night, in bed, Zain sees thinks he sees the rare pigeon again. He runs to the window and opens it, but it's just a normal pigeon.
+
+Out of habit or just a tick, he knocks on the wall.
+
+*knock KnOck knock knock knock*
+
+And hears nothing until, a moment later,
+
+CLANK CLANK
+
+Penelope climbs into his window from a rope.
+
+"I can't believe you didn't notice we painted her!" Penelope says about the pigeon.
+
+"What about the rules?!"
+
+Mr. Husk peers into the window,
+
+"Some things... Are more important."
