@@ -43,9 +43,7 @@ I immediately went back out, making sure the cat didn't escape. Just around the 
 
 
 
-Calls Gala for the letter.
-
-Invites her to the cruise
+Invites Gala to the cruise
 
 
 

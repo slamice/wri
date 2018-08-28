@@ -1,5 +1,27 @@
 Chapter 7
 
+
+Gala
+
+
+"You know what my favourite thing is?"
+
+She leaned in closer, "I'll tell you"
+
+"Whispering. It makes me feel.. So comfortable." She purred.
+
+
+Our hug smelled like liquorice ((sambuca?)) and was just as strong.
+
+
+
+
+
+
+
+
+
+
 Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl from the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
 Alone, I threw away the other ticket and went to the dock on a Wednesday after work. Someone knighted me with a plastic leigh on my head as I stepped aboard.

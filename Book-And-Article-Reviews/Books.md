@@ -10,6 +10,66 @@
 
 
 
+In Praise of Prejudice - Theodore Dalrymple
+
+The David Foster Wallace Reader
+
+The Good Citizen: A History of American Civic Life - Michael Schudson
+
+Lust and Other Stories - Susan Minot
+
+Hagakure: The Book of the Samurai - Tsunetomo Yamamoto
+
+Toxic Parents: Overcoming Their Hurtful Legacy and Reclaiming Your Life - Susan Forward, Craig Faustus Buck
+
+
+The Feminine Mystique - Betty Friedan
+
+Lieh-tzu: A Taoist Guide to Practical Living - Liezi, Eva Wong
+
+The Master Algorithm: How the Quest for the Ultimate Learning Machine Will Remake Our World - Pedro Domingos
+
+Free: The Future of a Radical Price - Chris Anderson
+
+Program or Be Programmed: Ten Commands for a Digital Age - Douglas Rushkoff, Leland Purvis
+
+Jerry Cleaver - Immediate Fiction
+
+Dave King's Self - Editing for Fiction Writers
+
+Mystery and Manners - O'Connor, Flannery
+
+The Hero Within: 6 Archetypes We Live By Prose, Francine. Reading Like a Writer - Pearson, Carol S. 
+
+Make Your Words Work - Provost, Gary
+
+The Scene Book: A Primer for the Fiction Writer - Scofield, Sandra
+
+Master Class in Fiction Writing: Techniques from Austen, Hemingway, and Other Greats - Sexton, Adam. 
+
+Stein On Writing: A Master Editor of Some of the Most Successful Writers of Our Century Shares His Craft Techniques and Strategies - Stein, Sol
+
+
+Steinbeck, John - How to Grow a Novel: The Most Common Mistakes Writers Make and How to Overcome Them
+[Between May 31 and October 26, 1938, before John Steinbeck began each day's work on the first draft of The Grapes of Wrath, he warmed up by penning a journal entry. An annotated version of that writing journal was published as Working Days.]
+
+Daybook: The Journey of an Artist - Truitt, Anne
+
+If You Want to Write: A Book about Art, Independence and Spirit - Ueland, Brenda
+
+Vogler, Christopher - The Writers Journey: Mythic Structure for Writers, 3rd Edition
+
+The Writing of Fiction - Wharton, Edith
+
+“Budd Schulberg, ‘On the Waterfront’ Writer, Dies at 95,” New York Times, August 6, 2009 [One writer’s mission
+over 6.5 decades: how Schulberg used fiction to say what he wanted people to hear about society--the whole while
+entertaining audiences and winning awards] - Weiner, Tim
+
+A Writer’s Diary: Being Extracts from the Diary of Virginia Woolf - Woolf, Leonard
+
+The Sound on the Page: Great Writers Talk about Style and Voice in Writing - Yagoda, Ben
+
+Creating a Character: A Physical Approach to Acting - Yakim, Moni, Muriel Broadman, and Stella Adler
 
 
 
@@ -21,6 +81,121 @@
 
 
 
+
+Write Away - George, Elizabeth
+
+What Writers Need to Know About What Editors Do - Gross, Gerald C. Editors on Editing
+
+Jr. A Field Guide to Writing Fiction - Guthrie, A.B.(Alfred Bertram)
+
+The Art and Craft of Novel Writing - Hall, Oakley
+
+A Writer’s Coach: An Editor's Guide to Words That Work - Hart, Jack
+
+The Triggering Town - Hugo, Richard
+
+On Writing - King, Stephen
+
+Bird by Bird: Some Instructions on Writing and Life - Lamott, Annie
+
+Dear Genius: The Letters of Ursula Nordstrom - Marcus, Leonard (editor) [famous children’s books editor]
+
+The Fiction Editor, the Novel, and the Novelist: A Book for Writers, Teachers, Publishers, and Anyone Else Devoted to Fiction - McCormack, Thomas
+
+Writing the Fiction Synopsis: A Step by Step - McCutcheon, Pam
+
+Writing for Your Life: A Guide and Companion for the Inner Worlds - Metzger, Deena
+
+The Heroine's Journey The Heroine’s Journey Workbook - Murdock, Maureen
+
+
+
+
+
+A Writer's Time: Making the Time to Write - Atchity, Kenneth
+Art and Fear: Observations on the
+
+Perils and Rewards of Artmaking - Bayles, David, and Ted Orland
+
+The Artful Edit: On the Practice of Editing Yourself - Bell, Susan
+
+Essays on Creativity - Bradbury, Ray. Zen in the Art of Writing 
+
+Becoming a Writer - Brande, Dorothea
+
+Self-Editing for Fiction Writers, Second Edition: How to Edit Yourself Into Print - Browne, Renni, and Dave King
+
+Writing Fiction - Burroway, Janet
+
+From Where You Dream: The Process of Writing Fiction - Butler, Robert Olen
+
+The Hero with a Thousand Faces - Campbell, Joseph
+
+How to Write Science Fiction & Fantasy - Card, Orson Scott
+
+Immediate Fiction: A Complete Writing Course - Cleaver, Jerry
+
+Toxic Feedback: Helping Writers Survive and Thrive de Botton, Alain. How Proust Can Change Your Life - Cole, Joni
+
+Screenplay The Screenwriter's Workbook - Field, Syd
+
+Aspects of the Novel - Forster, E.M.
+
+
+
+
+
+
+Be a Hero: The Essential Survival Guide to Active-Shooter Events - John Geddes, Alun Rees
+
+Television - Toussaint
+
+Goncharov - Oblomov
+
+Books by Robert McKee
+
+How to Write a Damn Good Novel - James N. Frey 
+
+How to Write a Damn good novel
+
+The Temptation to Exist - Emil M. Cioran, Richard Howard
+
+Peer Hultberg - Requiem
+
+The Way We Never Were: American Families and the Nostalgia Trap - Stephanie Coontz
+
+Bookys by Hannah Arendt
+
+You Can't Go Home Again - Thomas Wolfe
+
+Mindset - Carol Dweck
+
+Start With Why - Sinek
+
+Hot Seat: The Startup CEO Guidebook - Dan Shapiro
+
+Product Strategy for High Technology Companies - Michael E. McGrath
+
+Unusual Structures:
+* Hopscotch - Cortázar, Julio
+* Outline - Cusk, Rachel
+* Dept. of speculation - Offill, Jenny
+* Wolf in white van - Darnielle, John
+* Pale fire - Nabokov, Vladimir Vladimirovich
+* Saunders, George - Lincoln in the Bardo : a novel
+* How to be Both  - Ali Smith
+* The collected stories of Jean Stafford - Jean Stafford
+* Barthelme, Donald - Sixty stories
+
+Analysis patterns : reusable object models - Martin Fowler
+
+Banker to the Poor: Micro-Lending and the Battle Against World Poverty - Muhammad Yunus
+
+Something Happened - by Joseph Heller
+
+Simplicity parenting - Kim John Payne
+
+I Could Tell You Stories: Sojourns in the Land of Memory - Patricia Hampl
 
 Raymond Chandler - Under the Volcano
 
