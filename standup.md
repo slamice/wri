@@ -18,6 +18,22 @@ Second thing is, I don't think it'll help because then I'll feel left out.
 
 
 
+What the hell is petroleum jelly?
+
+I have eczema so I was told to out petroleum jelly on my hands.
+
+Sounds like something I would put on if I wanted to light myself on fire.
+
+Vaseline is.... Petroleum jelly
+
+Theres nothing natural about this stuff
+
+
+It says on it, 100 percent. PURE. Petroleum jelly.
+
+
+
+
 
 
 - Why do we do checkups? Does it make any sense?
