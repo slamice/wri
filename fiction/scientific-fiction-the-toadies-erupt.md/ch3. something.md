@@ -96,7 +96,3 @@ Later, The Ephemeral One sat on her couch waiting for the sun to come up. After 
 She knew she was tired, but still grabbed at her purse. The detective's card only had his name and number on it. Her fingers trailed over his title, feeling the grooves in the letters. She thought of wedding invitations, something so formal it felt fake. But the wedding were real, she thought.
 
 The was no ringtone after she dialed his number. Immediately after she put the phone to her ear, she heard him answer.
-
-"Yes?"
-
-

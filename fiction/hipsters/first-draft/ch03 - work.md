@@ -1,4 +1,39 @@
-CHAPTER 4
+I rubbed the peanut butter ((stain?)) into my jeans
+
+
+
+
+
+
+
+
+
+You knew it was fresh because a guy (owner?) was eating an acai bowl in front of it.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+CHAPTER 3
 
 Every other day I woke up late and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams.
 

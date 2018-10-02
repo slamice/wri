@@ -10,6 +10,59 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+Station Eleven - Emily St. John Mandel
+
+Noam Chomsky books
+
+Power Rules: How Common Sense Can Rescue American Foreign Policy - Leslie H. Gelb
+
+Against Happiness: In Praise of Melancholy - Eric G. Wilson
+
+The Looming Tower: Al-Qaeda and the Road to 9/11 - Lawrence Wrigh
+
+Total Leadership: Be a Better Leader, Have a Richer Life - Stewart D. Friedman
+
+Everything for Everyone: The Radical Tradition That Is Shaping the Next Economy - by Nathan Schneider
+
+Lord Arthur Savile's Crime - Oscar Wilde
+
+Anthony Bourdain - Kitchen Confidential
+
+Ray Dalio - Principles
+
+The Corrections - Jonathan Franzen
+
+The Secret of Our Success - Joseph Henrich
+
+Death and the Dervish - Selimović, Meša
+
+The fortress - Selimović, Meša
+
+Interfaces of the Word: Studies in the Evolution of Consciousness and Culture - Walter J. Ong
+
+
+The Power and the Glory - Graham Greene
+
+Children of Light - Robert Stone
+
+A Flag for Sunrise - Robert Stone
+
+Dog Soldiers - Robert Stone
+
+Enchanted Hunters: The Power of Stories in Childhood - Maria Tatar
+
+The Classic Fairy Tales - Maria Tatar
+
 In Praise of Prejudice - Theodore Dalrymple
 
 The David Foster Wallace Reader
