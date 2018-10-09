@@ -15,10 +15,11 @@
 
 
 
+Y: The Descent of Men - Steve Jones
 
+Daily Afflictions: The Agony of Being Connected to Everything in the Universe - Andrew Boyd
 
-
-
+Plainsong - Kent Haruf
 
 Station Eleven - Emily St. John Mandel
 

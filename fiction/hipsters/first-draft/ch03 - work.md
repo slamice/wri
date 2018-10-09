@@ -1,6 +1,107 @@
-I rubbed the peanut butter ((stain?)) into my jeans
+CHAPTER 3
+
+Every other day I woke up and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams.
+
+"Fucking tap tap tap. I hate waking up to that shit. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a giant razor to the floor.
+
+After my toast I rubbed the smudge of peanut butter into my jeans and headed out while Renee slept. Her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accomodated her. benefits were the first few bottles and boxes of newly imported medicine. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear out our digestion tracts. I tried them all but still felt pretty dirty. "You're hard to cleanse" she said.
+
+Down to the limo receptionist below us for my daily ritual. She bore a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She'd hobble busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone three thousand miles away. It stuck in her pride from then on, adding more weight, and a huge grin that dangerously firted with tipping her over.
+
+She gave me the mail in a heap. "Read 'em and weep!" she laughed hard.
+
+Among the junk adverts the visa was absent, and I could feel the government silently shrug.
+
+After climbing the stairs trying to avoid glaring ((staring?)) asses in front of me. The army of commuters dispersed. I followed my usual route to the 43rd street office and found a hulking Michael out front with a white stub between his fingers.
+
+He was an interesting case. At six foot five the man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion thrower, so he decided to move on to a different challenge behind a desk punching keys with me. He also decided to take up the challenge of smoking, practicing twice daily.
+
+"Hey Om."
+
+"Good morning."
+
+"Kind of late for morning."
+
+"You know about the gym cruise?" I asked.
+
+"Not really but I read about it."
+
+"Some gym is advertising a buy in. It means free food and a ride around Liberty Island for whoever wants to hear a lecture on how great it'll be to pay hundreds of dollars a month to a gym you won't go to."
+
+Michael itched his neck, "I think I've got to take care of my kid that night."
+
+"You have to take care of your kid every night. A free something. Think about it. I don't want to go alone." 
+
+"You're not taking your girl?"
+
+"She won't go."
+
+"That's kind of weird isn't it? Turning down a free cruise?" He puffed away looking out at the street.
+
+"Let me know what you decide."
+
+Michael sat across from me and Mik, the man who hired me, sat in an office closely behind us. The man was always smiling, well dressed and wore designer glasses. He came from a long line of Dutch fashioners, doctors and big businessers. He took me straight out of college, days before my graduation. He dolled out an offer and I accepted it immediately ((to stay in the country)).
+
+I could feel the glare off the screen hit my eyes, ricocheting off them to some corner in the ceiling. Sales' phones would jerk us awake, if only for a bit.
+
+"Omar." Mik sounded behind me. "Can you come here for a second?"
+
+The office stood as a monument to self gratification on the thirty second floor. Mik stood facing the street like a king.
 
 
+
+
+
+
+I stared at my screen until the end of the day.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+"Hey Gala?" I spoke softly, almost whispered. A whisper you'd use to wake someone up, then gently hold her hand and press it just a bit so her body could acclumate ((enter? adjust?)) back to reality.
+
+She breathed a dreamy "Yea?" when she answered, her voice about to float away.
+
+The I don't know what I said. Words spilled into the receiver, a mess of a place. "There's a thing on Thursday night" and "" were somewhere in there. I wasn't sure if I made sense. Maybe I sounded too eager. I let the words hang in the air, sick and deliberate.
+
+"What? Ok sure. I don't work that night. Sounds fun."
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+==============
 
 
 
@@ -33,15 +134,8 @@ You knew it was fresh because a guy (owner?) was eating an acai bowl in front of
 
 
 
-CHAPTER 3
 
-Every other day I woke up late and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams.
 
-"Fucking tap tap tap. I hate waking up to that shit. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a giant razor to the floor.
-
-She was still asleep when I headed out, her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accomodated her. benefits were the first few bottles and boxes of newly imported medicine. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear up our digestion tracts. I tried them all but still felt pretty dirty.
-
-On my way down my old clamshell phone rang. Even when turned way down its deep bassy sound rang like a cow begging to be heard against my leg.
 
 Usually I was too lazy to take it out and just hit hard against my pocket until it calmed down. But that day I saw his number crawl across the screen.
 
@@ -115,11 +209,7 @@ I nodded in the right places and held on patiently.
 
 A few I love you's were exchanged, and we hung up. I don't remember who hung up first, but it was probably me.
 
-Down to the limo receptionist for me daily ritual. She bore a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She'd hobble busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone three thousand miles away. It stuck in her pride from then on, adding more weight, and a huge grin that dangerously firted with tipping her over.
 
-She gave me the mail in a heap. "Read 'em and weep!" she laughed hard.
-
-The letter was absent, and I could feel the government silently shrug. Another week without the visa. They weren't thinking of me, they didn't miss me.
 
 ***
 
@@ -137,35 +227,7 @@ The hues on a winter subway are all the variations of black you can imagine. The
 
 Every so often the Torah shows up. Someone pulls it out, reads it (sometimes audibly) for a while then puts it away with a kiss. It's shortly followed by mentos or gum.
 
-As we headed up I look down at the stairs to avoid watching the climbing asses dancing in front of me. Even at 9:30am So many people were ((still)) heading to work. The army of commuters dispersed and I followed my usual route to our 43rd street office and found a hulking Michael out front with a white stub between his fingers.
-
-He was an interesting case. At six foot five the man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion javelin thrower, so he decided to move on to a different challenge behind a desk punching keys. ((maybe a boxer?))
-
-He also decided to take up the challenge of smoking, practicing twice daily.
-
-"Hey Om."
-
-"Good morning."
-
-"Kind of late for morning."
-
-"You know about the gym cruise?" I asked.
-
-"Gym cruise?"
-
-"The gym is advertising a buy in. It means free food and a ride around Liberty island for whoever wants to hear a lecture on how great it'll be to pay hundreds of dollars a month to a gym you won't go to."
-
-Michael itched his neck, "I think I've got to take care of my kid that night."
-
-"You have to take care of your kid every night. It's a free cruise, a free something. Think about it. I don't want to go alone." 
-
-"You're not taking your girl?"
-
-"She won't go."
-
-"That's kind of weird isn't it? Turning down a free cruise?"
-
-"Let me know what you decide."
+As we headed up I look down at the stairs to avoid watching the climbing asses dancing in front of me. Even at 9:30am So many people were ((still)) heading to work. 
 
 
 
@@ -181,15 +243,7 @@ Michael itched his neck, "I think I've got to take care of my kid that night."
 
 
 
-Mik, the man who hired me, came from a long line of Belgian fashioners, doctors and big businessers. I was straight out of college, interviewing a few days before my graduation. He made me my first offer and I gladly accepted it.
 
-I could mention the Dans and Stans of the office but they stuck out in no particular way. Each with their 'own sense of humor', identical patents pending. The only thing I felt there then was the clock eating away at us diligently as we ran around trying to ignore the bitemarks.
-
-Explaining why my work was lackluster is pretty difficult. What did I want out of it? I went to school to do it, a determination to "succeed" ((succeed)). But what I really wanted was to live the way I wanted to live. To be free from the work and grind each of these cogs assaulted on each other. So I worked, and project timelines slipped, untli I was knee deep in requests and changes that I didn't relate to.
-
-Honestly I hated my job. Briefly, we worked on curriculums for school children, and our most recent project was randomly generating educational paint by number pictures.
-
-With Michael as an exception, I didn't find much leeway with my fellow employees. At lunch they'd argue how much of a pain it was to wash dishes. In the day they would scream about how there were no good snacks.In the evening they would try to make excuses for leaving early.
 
 
 
