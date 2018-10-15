@@ -48,11 +48,17 @@ Haven must have seen me come in. After I sat down he sounded behind me "Can you 
 
 On cue Haven stood facing the street like a king, his hands in his pockets stupid dramatic. He stood as a monument to self gratification on the thirty second floor. 
 
+I could feel the glare off the screen hit my eyes, ricocheting off them to some corner in the ceiling. Sales' phones would jerk us awake, if only for a bit.
+
+"Can you come here for a second?" Haven sounded behind me.
+
+The office stood as a monument to self gratification on the thirty second floor. Haven stood facing the street like a king, his hands in his pockets stupid dramatic.
+
 "Hey Haven."
 
-He glanced back at me and twisted his face, getting his smile ready. "So how's it going?"
+He glanced behind him, twisting his face getting his smile ready then put it on. "So how's it going?"
 
-"It's alright." I said keeping eye contact. It was important to maintain eye contact.
+"It's alright." I said keeping eye contact. It was important I maintained eye contact.
 
 "And work?"
 
@@ -67,6 +73,13 @@ Did my expression give me away? Haven sensed it but kept watching me. He was onl
 My words escaped me, "Yes of course."
 
 Later I slouched, worshiping my screen until the end of the day. Was super proud of that.
+
+
+"I see you here, do you see yourself here longterm?"
+
+"Yes of course I do."
+
+Later I slouched, staring at ((worshiping?)) my screen until the end of the day. Was super proud of that.
 
 ***
 
@@ -109,8 +122,6 @@ She paused her film "Can you get me an iced latte then? French roast."
 "Sure."
 
 The cold tried to creep into my jacket, into my pants. The streets were an old story. I could point to where I found ten dollars in change, where various throw up was spewed. Construction projects were laid out, a miserable mess around each block. I passed an oven left to starve on the sidewalk, the empty bottles that stuffed it taken by the homeless ghosts of the night.
-
-
 
 The down and out bars hid in the shadows behind car garages or narrow nooks, all made of oaks and cedar. Cool as they were, they served mac and cheese types of things, beer and little else. There were no windows so I couldn't see the people potentially dying from a fire hazard inside.
 
@@ -239,21 +250,159 @@ She nodded again, licked her lips then nodded again.
 
 
 
+=======
+Nights were stay at home nights for Renee more or less. But once a month Renee invited some conspiritors over for a drum circle. A few natives combined with her friends sat around a huge frame drum with their respective clubs. Incense was lit, what sounded like hymnish things were sung. I was invited but kindly excused myself on those nights. It was interesting to find a clean apartment after coming back, at least the living room would be.
+
+Renee had an eigthies romcom on while we picked up clothes. Selina interrupted it virtually with a hit me up for a coffee. "Hello fellow human!" She cheerfully gleed at me through the phone. Selina didn't think "you guys" made any feministic sense, so she always opted for "Hello kindly people" or "Greetings fellow homosapiens."
+
+Renee kept glancing at me to ignore it but I answered anyway.
+
+"Hey."
+
+"You should come out." she whispered, "I'm at Cup O'Joe."
+
+"At the coffee shop?"
+
+"A cough-ee-shop?" I could hear her red face.
+
+"Are you high?"
+
+"I may be high. It is a definite possibility."
+
+"I'll venture there then," and hung up.
+
+I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
+
+"You can't just leave, finish helping me out with cleaning?"
+
+"I think you have it handled."
+
+"You never stay. You never stay home anymore with me." Renee puttered. "Or are you meeting another girl to stay home with?"
+
+"It'll only be until you're done. There is no other girl."
+
+"Do you like Selina?"
+
+"Please not again. Please."
+
+She paused the film for a second "Can you get me an iced latte then? French roast."
+
+"Sure."
+
+I still can't count the number of times I walked up and down those streets. I could point to where I found ten dollars in change, where various throw up was spewed. Construction projects were laid out, miserably distorted around the blocks. I passed an oven was left to starve on the sidewalk, not before they stuffed it with empty bottles yet to be recycled.
+
+((I remember that night distinctly because it was like any other night.)) The cold tried to creep into my jacket, into my pants. 
+
+The down and out bars hid in the shadows behind car garages. Cool as they were, they served mac and cheese types of things, beer and little else. There were no windows so I couldn't see the people potentially dying from such a fire hazard inside. The two sushi places on the way I passed were idly populated. A bit further along, the projects were trying to project on to me, non discreet and brooding. The people who lived there almost all had projects. Brutal two day jobs, brutal childcare for their oh so many children and brutal laziness. Distanced, there were convenient stores far too expensive to be convenient. The arrangement was all a maze of zoning left over from a previous era.
+
+A few girls sexilyed by me, some in tattered jeans, others in what looked like just shirts, shorts hidden in the midst. I was disgusted to think so, but hardly guilty. There was a Native American selling original symmetric artwork. She yelled twenty for each piece and I wondered if it was offensive that someone tried to talk her down to five.
+
+At about that time I paced myself slower trying to time how late I'd be. I remember going in a haze, the buildings around me didn't exist as I stared at the ground or nothing. That's when I lifted a penny off the world and put the grimy thing in my pocket. This was money on the ground, pure value. Over the years I made quite a heap. Probably around sixty dollars. The change was all in a small jar. I never really felt I needed it though. It's the one thing I don't leave someone. Because no one wants the small, immediate minute pennies.
+
+It was late but the dark cafe was still pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped mildly as they played cards or board games in corners. Each table had a giant pinecone on it.
+
+Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
+
+"How's that going?" I concerned as bitterly as my gingerbread coffee.
+
+"I don't know, what do you think of him?"
+
+"I don't know him."
+
+"He's a good guy, you'd like him." Every other word from Selina was lightly hurkled with a distant tired smile. "He's a university radio station coordinator. His friend works at Happy Blue Cat so we got to watch so many old documentaries. Rare ones about doctors in the sixties and bikes."
+
+"Like stunt bikes?"
+
+"All kinds of bikes. Hmm." And then, "Are you alright?"
+
+"I'm totally fine. Absolutely nothing happened."
+
+"How's Renee? She never comes out."
+
+"Yea she's doing her drum circle tonight. The nativities."
+
+Selina frowned at that. I pushed the envelope and the coffee mug against my cheek.
+
+"What are you doing?"
+
+"It keeps me warm. Warm cheekies. I don't even like coffee."
+
+An eyebrow raised a chuckle, "then why order anything with coffee?"
+
+"A latte is thicker so it'll keep me warmer."
+
+The coffee was particularly strong, and since I very rarely drank coffee my head began to hurt. The milk was heavy and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness would be there to weigh down the rest of my day.
+
+"Adrian's not working tonight looks like." I mentioned casually as I watched someone take a bit of avocado toast.
+
+"She's playing tonight. At the Claybourne Whatever. It's the new place near Main and Clinton."
+
+"Yea I heard about it. She plays a lot. You don't want to go? I'd totally be up for it."
+
+She shrugged, "Kind of, but just wanted to take it easy tonight. Take it easy."
+
+"Yea, me too", I said. "I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
+
+((heart problems, kind of important part here, move to another section?))
+
+"Oh my god is it a heart problem?! You never told me about this."
+
+"I don't know but it sounds like a heart thing to me. I got checked up and they said they it's nothing they can find or detect, and that I shouldn't worry about it."
+
+"You sure? Sounds serious."
+
+"Yea, it's not a big deal they are rare and only last a second. But you can never be too sure."
+
+Selina coughed and clutched her chest. Her fits were minor asthma leftover from her childhood. "So annyoing..."
+
+"Heart problems maybe, not dangerous at all." I smiled at her, "let's be honest, who doesn't have problems with their heart? My mom is no exception." I said casually.
+
+"Oh my god is your mom ok? I don't know anything about your mom."
+
+"She's fine, they think it's something small ((would he say benign?)). Nothing to be worried about. ((why mention it then?))"
+
+"You're dumping a lot of stuff on me tonight I don't know if I can mentally take it."
+
+I looked around aimlessly. People worked away on their computers. Some were laughing, others sulking into their conversations.
+
+"You see Gala at all?"
+
+"No, why?"
+
+"I don't know I started seeing her around more often. She comes here right?"
+
+Selina started to look a bit frazzled. Upset wasn't quite the word, but her high was wearing off pretty quickly then.
+
+"I don't understand why everyone wants to know about how Gala is. Is she so pretty? Or so interesting? She's cool but I have this conversation five times a week. I don't even talk to her that often at The Meatloaf."
+
+=======
+Both Gala and Selina worked at a soup kitchen together every other week. It's how they met. They called it The Meatloaf because it was the main thing they served for the homeless. More recently they put an egg in the middle of the it so it would look fancier and save on the price of meat.
+
+(("You know Meat loaf gets really made when people think his name is one word."
+
+"Who would call themselves Meatloaf anyway? Why would you do that to yourself?" She forgot about Gala at that moment.))
+
+On my way out I ordered Renee's latte. ((Selina's haze started to brighten up, ))
+
+It was obviously the wrong topic in every way. I tried to change the subject, "I'm getting worried about my visa."
+
+"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it. We exist." she said dryly. "It's been a while though?"
+
+"It's just so beauracratic. It's been a year and will probably take longer." I said, shrugging.
+
+"Why don't you marry Renee?"
+
+"I don't think we're quite there yet."
+
+"So it's a commitment thing? Like responsibility stuff?"
+
+I looked at Selina, "I think mentally we're not there yet. We both have our reservations."
 
 
+=======
+She nodded again, licked her lips then nodded again.
 
-
-
-
-
-
-
-
-
-
-
-
-
+((~~~~~Talk about playing in band where Om lights the guitar on fire))
 
 
 
