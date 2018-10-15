@@ -6,14 +6,15 @@
 
 
 
+THe Human Stain - Philip Roth
 
+Black Is a Country: Race and the Unfinished Struggle for Democracy - Nikhil Pal Singh
 
+The Internet of Money - Andreas M. Antonopoulos
 
+Consider the Fork: How Technology Transforms the Way We Cook and Eat - Bee Wilson, Annabel Lee
 
-
-
-
-
+The Happiness Hypothesis: Finding Modern Truth in Ancient Wisdom - Jonathan Haidt
 
 Y: The Descent of Men - Steve Jones
 

@@ -1,34 +1,34 @@
 CHAPTER 3
 
-Every other day I woke up and shaved, tapping my razor handle against my hand to vomit out the hair. I used to tap the sink, but Renee heard it in her dreams.
+Every other day I woke up and shaved, tapping my razor handle against my hand to vomit out the hair. But it began to sneak into Renee's dreams. "Fucking tap tap tap. I hate waking up to that shit. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a giant razor to the floor.
 
-"Fucking tap tap tap. I hate waking up to that shit. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a giant razor to the floor.
+After my toast I rubbed the smudge of peanut butter into my jeans and headed out while Renee slept. Her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accomodated her. Benefits were the first few bottles and boxes of newly imported products. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear out our digestion tracts. I tried them all but still felt pretty dirty.
 
-After my toast I rubbed the smudge of peanut butter into my jeans and headed out while Renee slept. Her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accomodated her. benefits were the first few bottles and boxes of newly imported medicine. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear out our digestion tracts. I tried them all but still felt pretty dirty. "You're hard to cleanse" she said.
+"You're hard to cleanse" she said.
 
-Down to the limo receptionist below us for my daily ritual. She bore a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She'd hobble busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone three thousand miles away. It stuck in her pride from then on, adding more weight, and a huge grin that dangerously firted with tipping her over.
+Down to the limo receptionist below us for my daily ritual. Besides her sarcastic demeanor she bore a velodrome of overweight and an amputated leg. They cut it off years ago after a pretty cool accident. She'd hobble busily on her new metal calf sending drivers all across the city. During one crisis, she dispatched someone three thousand miles away. It stuck in her pride from then on, adding more weight, and a huge grin that dangerously flirted with tipping her over.
 
 She gave me the mail in a heap. "Read 'em and weep!" she laughed hard.
 
 Among the junk adverts the visa was absent, and I could feel the government silently shrug.
 
-After climbing the stairs trying to avoid glaring ((staring?)) asses in front of me. The army of commuters dispersed. I followed my usual route to the 43rd street office and found a hulking Michael out front with a white stub between his fingers.
+Downtown I climbed the subway stairs emerging from the void, trying to avoid the army of commuters' glaring asses in front of me. I followed my usual route to the 43rd street office and found a hulking Kevin out front with a white stub between his fingers.
 
-He was an interesting case. At six foot five the man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion thrower, so he decided to move on to a different challenge behind a desk punching keys with me. He also decided to take up the challenge of smoking, practicing twice daily.
+He was an interesting case. We coded together since I joined. At six foot five the man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion thrower, so he decided to move on to a different challenge behind a desk punching keys with me. He also decided to take up the challenge of smoking, practicing twice daily with ones he rolled himself.
 
 "Hey Om."
 
 "Good morning."
 
-"Kind of late for morning."
+"Kind of late for morning." He looked down the long valley thick with cars and sidewalk, a lost look in his eyes.
 
 "You know about the gym cruise?" I asked.
 
-"Not really but I read about it."
+"Not really but I read a bit about it."
 
-"Some gym is advertising a buy in. It means free food and a ride around Liberty Island for whoever wants to hear a lecture on how great it'll be to pay hundreds of dollars a month to a gym you won't go to."
+"Some gym is advertising to buy in and they want to impress people. So it means free food and a boat around Liberty Island for whoever wants to hear a lecture on how great it'll be to pay hundreds of dollars a month to a place they won't go to."
 
-Michael itched his neck, "I think I've got to take care of my kid that night."
+Kevin itched his neck, "I think I've got to take care of my kid that night."
 
 "You have to take care of your kid every night. A free something. Think about it. I don't want to go alone." 
 
@@ -36,29 +36,280 @@ Michael itched his neck, "I think I've got to take care of my kid that night."
 
 "She won't go."
 
-"That's kind of weird isn't it? Turning down a free cruise?" He puffed away looking out at the street.
+"That's kind of weird isn't it? Turning down a free cruise?" He puffed away.
 
 "Let me know what you decide."
 
-Michael sat across from me and Mik, the man who hired me, sat in an office closely behind us. The man was always smiling, well dressed and wore designer glasses. He came from a long line of Dutch fashioners, doctors and big businessers. He took me straight out of college, days before my graduation. He dolled out an offer and I accepted it immediately ((to stay in the country)).
+Up, through the elevator. A Keycard swipe. Crashing at my desk. I could feel the dull light off the screen hit my eyes then ricocheting to some corner in the ceiling. Sales' phones a few feet away jerked us awake all day, but only for a bit.
 
-I could feel the glare off the screen hit my eyes, ricocheting off them to some corner in the ceiling. Sales' phones would jerk us awake, if only for a bit.
+Haven, the man who hired me, sat in an office closely behind us. The man was always smiling, well dressed and wore designer glasses. He came from a long line of Dutch fashioners, doctors and big businessers. He plucked me straight out of college days before my graduation, dolling out an offer. I accepted it immediately.
 
-"Omar." Mik sounded behind me. "Can you come here for a second?"
+Haven must have seen me come in. After I sat down he sounded behind me "Can you come here for a second?"
 
-The office stood as a monument to self gratification on the thirty second floor. Mik stood facing the street like a king.
+On cue Haven stood facing the street like a king, his hands in his pockets stupid dramatic. He stood as a monument to self gratification on the thirty second floor. 
+
+"Hey Haven."
+
+He glanced back at me and twisted his face, getting his smile ready. "So how's it going?"
+
+"It's alright." I said keeping eye contact. It was important to maintain eye contact.
+
+"And work?"
+
+"It's been fine, kind of slow."
+
+"That's a funny, hmm, that's funny. Why do you think that is?"
+
+Did my expression give me away? Haven sensed it but kept watching me. He was only a few years older, which made him think he had an incredible power over me. He held his chin in his hand, then closed his eyes.
+
+"You'll let me know if anything is wrong at home, at work, anything right?"
+
+My words escaped me, "Yes of course."
+
+Later I slouched, worshiping my screen until the end of the day. Was super proud of that.
+
+***
+
+Nights were stay at home nights for Renee more or less. But every other week Renee invited some conspiritors over for a drum circle. A few natives combined with her friends sat around a huge frame drum with their respective clubs. Incense was lit and what sounded like hymnish things were sung. I was invited but kindly excused myself on those nights. It was interesting to find a clean apartment after coming back, at least the living room was.
+
+Renee had an eigthies romcom on while we put away clothes. Selina interrupted it virtually with a hit me up for a coffee. Renee kept glancing at me to ignore it but I answered anyway.
+
+"Hello fellow human!" She cheerfully sang into the phone. Selina didn't think "you guys" made any feministic sense, so she always opted for "Hello kindly people" or "Greetings fellow homosapiens."
+
+"Hey."
+
+"You should come out." she whispered, "I'm at Cup O'Joe."
+
+"At the coffee shop?"
+
+"A cough-ee-shop?" I could hear her red red face.
+
+"Are you high?"
+
+"I may be high. It is a definite possibility."
+
+"I'll venture there then," and hung up.
+
+I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
+
+"You can't just leave, finish helping me out with cleaning."
+
+"I think you have it handled."
+
+"You never stay. You're never home wiht me anymore." Renee pouted, "Or are you meeting another girl to stay home with?"
+
+"It'll only be until you're done. There is no other girl."
+
+"Do you like Selina?"
+
+"Please not again. Please."
+
+She paused her film "Can you get me an iced latte then? French roast."
+
+"Sure."
+
+The cold tried to creep into my jacket, into my pants. The streets were an old story. I could point to where I found ten dollars in change, where various throw up was spewed. Construction projects were laid out, a miserable mess around each block. I passed an oven left to starve on the sidewalk, the empty bottles that stuffed it taken by the homeless ghosts of the night.
+
+
+
+The down and out bars hid in the shadows behind car garages or narrow nooks, all made of oaks and cedar. Cool as they were, they served mac and cheese types of things, beer and little else. There were no windows so I couldn't see the people potentially dying from a fire hazard inside.
+
+At about that time I paced myself slower trying to time how late I'd be. Puttering in a light haze, the buildings around me didn't exist as I stared at the ground or nothing. That's when I lifted a penny off the world and put the grimy thing in my pocket. Over the years I made quite a heap. Probably around sixty dollars. I never really felt I needed it though. No one wants the small, immediate minute pennies, but I do.
+
+It was late but the dark cafe was still pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped as they played cards or board games in corners. Each table had a giant pinecone on it.
+
+Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
+
+"How's that going?" I was as concerned as my gingerbread coffee was bitter.
+
+"I don't know, what do you think of him?"
+
+"I don't know him."
+
+"He's a good guy, you'd like him." Every other word from her was lightly hurkled with a distant tired smile. "He's a university radio station coordinator. His friend works at Happy Blue Cat so we got to watch so many old documentaries. Rare ones about doctors in the sixties and bikes."
+
+"Like stunt bikes?"
+
+"All kinds of bikes." And then, "Are you alright?"
+
+"I'm totally fine. Absolutely nothing happened."
+
+"How's Renee? She never comes out."
+
+"Yea she's doing her drum circle tonight. The nativities."
+
+Selina shrugged. I pushed the envelope and the coffee mug against my cheek.
+
+"What are you doing?"
+
+"It keeps me warm. Warm cheekies. I don't even like coffee."
+
+An eyebrow raised a chuckle, "then why order anything with coffee?"
+
+"A latte is thicker so it'll keep me warmer."
+
+It was particularly strong, and since I rarely drank coffee my head began to hurt. The milk was thick and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness would be there to weigh down the rest of my day.
+
+"Adrian's not working tonight looks like." I mentioned casually looking over the register, watching a someone take a bite of avocado toast.
+
+"She's playing tonight. At the Claybourne Whatever. It's the new place near Main and Clinton."
+
+"Yea I heard about it. She plays a lot. You don't want to go? I'd totally be up for it."
+
+She winced, "Kind of, but just wanted to take it easy tonight. Take it easy."
+
+"Yea, me too", I said. "I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
+
+((heart problems, kind of important part here, move to another section?))
+
+"Oh my god is that a heart problem?! You never told me about this."
+
+"I don't know but it sounds like a heart thing to me. I got checked up and they said it's nothing they can find or detect, and that I shouldn't worry about it."
+
+"You sure? Sounds serious."
+
+"Yea, it's not a big deal they are rare and only last a second. But you can never be too sure."
+
+Selina coughed and clutched her chest. Her fits were minor asthma leftover from her childhood. "So annyoing..."
+
+"Heart problems maybe, not dangerous at all." I smiled at her, "let's be honest, who doesn't have problems with their heart? My mom is no exception." I said casually.
+
+"Oh my god is your mom ok? I don't know anything about your mom."
+
+"She's fine, my dad says it's something small ((would he say benign?)). Nothing to be worried about. ((why mention it then?))"
+
+"You're dumping a lot of stuff on me tonight I don't know if I can mentally take it."
+
+I looked around aimlessly. People worked away on their computers. Some were laughing, others sulking in their conversations.
+
+"You see Gala at all?"
+
+"No, why?"
+
+"I don't know I started seeing her around more often. She comes here right?"
+
+Selina started to look a bit frazzled. Upset wasn't quite the word, but her high was wearing off pretty quickly then.
+
+"I don't understand why everyone wants to know about how Gala is. Is she so pretty? Or so interesting? She's cool but I have this conversation five times a week. I don't even talk to her that often at The Meatloaf."
+
+Both Gala and Selina worked at a soup kitchen together every other week. It's how they met. They called it The Meatloaf because it was the main thing they served for the homeless. More recently they put an egg in the middle of the it so it would look fancier and save on the price of meat.
+
+(("You know Meat loaf gets really made when people think his name is one word."
+
+"Who would call themselves Meatloaf anyway? Why would you do that to yourself?" She forgot about Gala at that moment.))
+
+On my way out I ordered Renee's latte. ((Selina's haze started to brighten up, ))
+
+It was obviously the wrong topic in every way. I tried to change the subject, "I'm getting worried about my visa."
+
+"Welcome to the world my friend." Selina raised her mug. "Where the proletariot never sleeps and we're drowning in our disappointment. It's us against it. We exist." she said dryly. "It's been a while though?"
+
+"It's just so beauracratic. It's been a year and will probably take longer." I said, shrugging.
+
+"Why don't you marry Renee?"
+
+"I don't think we're quite there yet."
+
+"So it's a commitment thing? Like responsibility stuff?"
+
+I looked at Selina, "I think mentally we're not there yet. We both have our reservations."
+
+She nodded again, licked her lips then nodded again.
+
+((~~~~~Talk about playing in band where Om lights the guitar on fire))
 
 
 
 
 
 
-I stared at my screen until the end of the day.
 
 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+((The conversation stopped)) We were done, obviously. I didn't feel like sitting another hour like that. My restlessness took me there, and soon enough took me outside with a wave.
+
+The detour I took on my way back was long. I went through a village of modern apartments complexes, still deserted. Apartments that were half finished had already been bought. The concreate jutted to the sky. I wondered for a moment what it was like to live on the top floor, to live on any floor. Soon there'll be rich toddlers. There'll be yoga pants. There'll be dogs running around everywhere here too. Dogs. My coworkers would love these places. The Basterdized Bauhaus practically laughing at them, I can almost hear it. The same sky's they'd be under has been around longer than birds, but to the new residents it'll be a nice touch and a simple distraction from what they really needed to do to need to do.
+
+But what makes a city? People. What were the people doing on the sixty seventh floor, what happened in the basement on the third Wednesday night of every month. What opened, what closed, who was creating something beautiful? These were some enlightned mother fuckers, right? That's what I thought. Worldly people. You know before I moved I heard the city did something to you. You know. But what I found concrete with garages or delis on every other corner... I was still there and I didn't find anything.
+
+I leaned against a giant metallic bird statue only a larger metallic mother bird statue could love. Renee's latte felt only faintly warm in my hands as I sipped it. I looked up and tried to find a star while under the street lamps but they glared far too much.
+
+Trying to calm down, I hummed a soft sylable in a bass, my eyes still closed, forgetting the world. I could still hear the wind so I tried to shut it out. And the street cars. And the silence. I thought about what I was looking for.
+
+A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly. And the latte was cold now and getting colder and wondered where it was, so I had to save it.
+
+Honestly you were just there, and I loved you. But really, we grew apart just like I grew apart. You were cautious and protective and it horrified me for a long time. That's the closest I can give to an explanation.
+
+The straight silent street led me back. The light was on in Jack and Andy's apartment. A fever of rage suddenly surfaced. Who was Andy. Such a bastard. I wanted to tear off his limbs and beat him with them.
+
+When I entered the apartment Renee and her friends Ethan and Marley were talking to an elder native named Farmer's Son. I gave a nod in their direction as I headed to the kitchen. They waved and nodded back but Farmer's Son had them pegged at something in their conversation that drew them in. I tried not to overhear them and shuffled around, but in a small apartment there were no secrets.
+
+"I'm sorry, there's nothing I can do." Farmer's Son said.
+
+"How many more times at the sweat lodge would it take?" Ethan asked.
+
+"It's not a simple thing to take. I'm sure you can find a way without me."
+
+Renee chimed in, "but we've been practicing pyote for years here. I've been twice already."
+
+Farmer's Son ((rename, were not farmers)) "Let me be honest with you." he said, his low voice sounding tired, "This is very deep. You don't need me to introduce you to anyone ((for ayahuesca)). But it's not my place to advocate for it on behalf of you. You have to understand, I can't advocate on behalf of the tourists. Hat is what they see you as."
+
+"It is though!" Renee said emphatically.
+
+"Respectfully, I'm sorry. Again, thank you for holding this."
+
+I barely heard the echo of him going down the stairs while Renee discussed something with Ethan and Marley as they left.
+
+"He called us tourists." Ethan told Renee, everything wiped off his face.
+
+"We are not tourists." Marley reiterated.
+
+=============
+
+What was that about? I asked
+
+
+=============
+
+Soon enough, she waved them off and sounded out a goodbye to me. Renee went to lie on her bed from there, disappointed and ignoring me turning on a movie.
+
+"Can you turn on the laundry again? I forgot to take out the clothes so they might have mold on them." She called out.
+
+"Yea, sure."
+
+I immediately went outside and shut the door carefully, making sure the cat didn't escape. Just around the corner, under our bedroom window, I dumped Renee's forgotten cold latte in slow motion. The stream made a quick splash and settled in the cracks of concrete. It was ((fully)) empty, and soon I lurched back upstairs.
 
 
 
@@ -85,202 +336,4 @@ She breathed a dreamy "Yea?" when she answered, her voice about to float away.
 The I don't know what I said. Words spilled into the receiver, a mess of a place. "There's a thing on Thursday night" and "" were somewhere in there. I wasn't sure if I made sense. Maybe I sounded too eager. I let the words hang in the air, sick and deliberate.
 
 "What? Ok sure. I don't work that night. Sounds fun."
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-==============
-
-
-
-
-
-
-
-You knew it was fresh because a guy (owner?) was eating an acai bowl in front of it.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Usually I was too lazy to take it out and just hit hard against my pocket until it calmed down. But that day I saw his number crawl across the screen.
-
-"Yea?" wiping my smooth chin.
-
-Dad coughed some static into the phone then replied loudly, "Hey son! Long time no talking! That's how you say hello to your Dad?"
-
-"Oh, hello Dad."
-
-"Why hello son!"
-
-"Hi Dad."
-
-"How's the NEW YORK?"
-
-"Better than the old one I guess."
-
-He faked a light laugh, which I appreciated. "Ah, as GOOD or BETTER?"
-
-"Better." I replied.
-
-"Ok, that's great. Better is very good. You enjoying it there computer scientist guy?"
-
-"Enjoying it, is that the question? It's hard here."
-
-I could hear my Dad breathing heavy into the phone. "Did you run or something Dad?"
-
-"Yes son, I did run. I'm always running everywhere getting things for the family."
-
-"Ah ok."
-
-"So work is good? How is your position? Pay raise?"
-
-We came to a long pause. These were frequent and unbearable. It's not funny, but I can think of so many things to say now but nothing would change. I am positive he would hang up everytime.
-
-"What about the visa situation. Is it done?"
-
-"It's not yet honestly. They are still processing it." It was its eternal state. I knew after a year that they had it on their desk but hadn't opened it yet.
-
-"You have to try to call them. They should give you an update."
-
-"I did call them. I told you I called them. But they don't answer. And when they did answer they said they will contact me when they are through."
-
-"You don't want to come home to visit?"
-
-"It's taking a long time. They told me they will give me an update when its finished. How's business?"
-
-"Well we have to take care of a lot of things son, a lot of things."
-
-"How's business, Dad?
-
-"It's work son. Contracts and people and a lot of bullshit." He sighed heavily into the phone. "Your brother is helping a lot. He has school but he is helping still. You talked to him?"
-
-"Not too recently."
-
-"Please give him a call son." His voice became business like, sincere. "How about your Mom. Do you want to talk your Mom?"
-
-"I kind of have to go I'm busy right now."
-
-"I see son. You are busy."
-
-"I'll call her later, seriously. You can't imagine what it's like here."
-
-"Ok, well let us know son, we are waiting."
-
-I nodded in the right places and held on patiently.
-
-"Call your mother son."
-
-"I will."
-
-A few I love you's were exchanged, and we hung up. I don't remember who hung up first, but it was probably me.
-
-
-
-***
-
-
-
-
-
-
-
-
-
-
-
-The hues on a winter subway are all the variations of black you can imagine. The people transform into them but they're all really the same still. The bizarre silence mingled with coughs and low groans, the sniffles.
-
-Every so often the Torah shows up. Someone pulls it out, reads it (sometimes audibly) for a while then puts it away with a kiss. It's shortly followed by mentos or gum.
-
-As we headed up I look down at the stairs to avoid watching the climbing asses dancing in front of me. Even at 9:30am So many people were ((still)) heading to work. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-I asked Michael once why he worked. 
-
-"You call this work?" He asked me casually.
-
-"What else is it?"
-
-"It's de-evolution. We've reached our peak instead of riding horses, fighting wars or grinding things...  We've reached our peak, dancing in space and stuff. To sit. The last step is imminent, that we don't even leave our houses and do nothing. We're almost there. We're all apart of it." He smiled at me but I regretted the question.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 

@@ -10,11 +10,11 @@ Travis: "Let's start this meeting off with a bang, bang"
 
 Barry: We have definite Backend bloat.
 
-Singhyo: No we don't.
+Seung-hyo: No we don't.
 
 Barry: I don't think you're listening to me.
 
-Singhyo: No, I heard you.
+Seung-hyo: No, I heard you.
 
 
 ...
@@ -31,7 +31,6 @@ Dan W: Well, we need another front end dev.
 
 - In comes Travis "hello" Princess wave
 
-
 ~ Narrator: But little does _he_ know... ~
 
 Kevin: What skills do you have?
@@ -42,7 +41,6 @@ Kevin: You better... Or I'll see you in hell.
 
 
 * webmaster
-
 
 
 ~ Narrator: He'll have to brave the startup ~
@@ -100,7 +98,7 @@ Travis: Well, technically it's Matt's fault.
 
 ================
 
-~ Narrator: And then all the way
+~ Narrator: And then all the way ~
 
 Travis: We're gonna build an army...
 
@@ -117,12 +115,6 @@ Travis in room, circling the chairs, drawing on the white board singing.
 
 ~ to know... ~
 
-'''The Travis''' - Typing background with aggresive typing sounds-
-
-
-
-
-- Travis trains ppl like a boot camp while singing
-
+'''The Travis''' - Typing and background with aggresive typing sounds-
 
 Kevin whispers at the end of the trailer "bitches"

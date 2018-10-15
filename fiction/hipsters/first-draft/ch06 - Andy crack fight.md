@@ -221,6 +221,10 @@ He didn't look at me until the bus started moving. We stared at eachother, wth a
 
 ------
 
+"You're not making me out to be a liar?"
+
+------
+
 Almost stabbing of Andrew
 
 maybe more about Renee habits
