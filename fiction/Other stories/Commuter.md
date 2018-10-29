@@ -1,8 +1,8 @@
 A Commuter
 
-Noisily burrowing into the Bronx, the train shook like a heavyset man as it threw itself into high gear late into the night.
+Noisily burrowing in the Bronx, the train shook like a heavyset man as it threw itself into high gear late into the night.
 
-Samir sank into his orange plastic seat. Other commuters drooped like him. The air was so thick with droops you heard them dripping off the seats puddling onto the floor. Some of the commuters' faces, pockmarked, stared blankly at nothing in particular. Others were lost in their headphones. A few bodies molded themselves around train poles, others' asses seeped into nearby creases.
+Samir sank into his orange plastic seat. Other commuters drooped like him. The air was so thick with droops you heard them dripping off the seats, puddling to the floor. Some of the commuters' faces, pockmarked, stared blankly at nothing in particular. Others were lost in their headphones. A few bodies molded themselves around train poles, others' asses seeped into nearby creases.
 
 Much before then he had fled alone with a million people on a boat, but could never quite grasp the country he landed on. He thought much about the America people told him about, most who've never been there. Were his expectations met? After escaping from the war, he laid on America numb and indifferent. An electrician with poor English and circumstances made him useless to the trade. It was just as well; he was too tired to move.
 
@@ -20,7 +20,7 @@ The announcer sang the last stop's "Wakefield-241 street" and the doors yawned o
 
 Samir's eyes swung past beam after beam in the dark corridor the train drifted in. He stayed dreamily in his seat, waiting for the train's turn to back track.
 
-The tunnel soon flooded with bright florescent light. Hundreds of white tiles fevered on the walls until they covered them and Samir's body twinged in puzzlement. His livid mind hadn't caught up with his environment yet, but it gradually grew curious and surprised. His stop somehow vanished.
+The tunnel soon flooded with bright florescent light. Hundreds of white tiles fevered on the walls until they covered them and Samir's body twinged in puzzlement. His mind hadn't caught up with his environment yet, but it gradually grew curious and surprised. His stop somehow vanished.
 
 Soon the tunnel opened and the conductor, in a heavy and muffled voice announced "South Kensington". Breaking open again, the doors welcomed an older gentleman out. A moment later a small crowd high heeled and loafered into the car, looking as high as risen loaves. They laughed in between half drunk coughs. One had an unlit cigarette dangling from his lip. They spoke as if their mouths were full of bread and they were choking it down, guffawing hard. In the corner, the straw hatted lady looked on at them unimpressed. Then away.
 
@@ -68,7 +68,7 @@ Despite the warning signs to avoid walking between cars, there for aesthetic and
 
 The possibility of a conversation had just leapt off a cliff, so Samir further muddled through this car.
 
-"New York?" He braved the car and the car hushed. The air opened its many eyes watching him, he knew they were on him, but most bore blank stares with barely any acknowledgement.
+"New York?" He braved and the car hushed. The air opened its many eyes watching him, he knew they were on him, but most bore blank stares with barely any acknowledgement.
 
 "New York City? Where?"
 
@@ -86,7 +86,7 @@ Samir somehow knew he couldn't stop. He wiped his hand on his pants for fear of 
 
 ***
 
-It must have been a good five hours since afterwards. He had hopped through each car, memorized their numbers but the situation remained the same everywhere. He got sick of the doors opening and closing. He tried talking to anyone, but most like the Spanish mother spoke little English, if any. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to his original car. And while heavily distracted with disappointment and confusion, sleep overtook him.
+It must have been a good five hours. He had hopped through each car, memorized their numbers but the situation remained the same everywhere. He got sick of the doors opening and closing. He tried talking to anyone, but most spoke little English, if any. He was tired of ducking by children, squeezing by businessmen. But mostly he was tired of sighing. Samir went back to his original car. And while heavily distracted with disappointment and confusion, sleep overtook him.
 
 Again slumped in a chair, he began to drift off to the rhythm of the car shaking as it ran on the tracks. In another hour it quieted. The crowds began thinning out.
 

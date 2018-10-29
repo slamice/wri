@@ -3,8 +3,9 @@
 
 
 
+The Chocolate War - Robert Cormier
 
-
+Assasination of New York
 
 THe Human Stain - Philip Roth
 

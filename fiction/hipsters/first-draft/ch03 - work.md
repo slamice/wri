@@ -2,7 +2,7 @@ CHAPTER 3
 
 Every other day I woke up and shaved, tapping my razor handle against my hand to vomit out the hair. But it began to sneak into Renee's dreams. "Fucking tap tap tap. I hate waking up to that shit. No one does that, it's incessant and tiring." she yawned at me, then mimed an exaggerated throw down of a giant razor to the floor.
 
-After my toast I rubbed the smudge of peanut butter into my jeans and headed out while Renee slept. Her hours sat much later in the day than mine. She worked at an aryuvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accomodated her. Benefits were the first few bottles and boxes of newly imported products. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear out our digestion tracts. I tried them all but still felt pretty dirty.
+After my toast I rubbed the smudge of peanut butter into my jeans and headed out while Renee slept. Her hours sat much later in the day than mine. She worked at an ayurvedic clinic deep in Greenpoint. When Renee was late or had mono once a week they accommodated her. Benefits were the first few bottles and boxes of newly imported products. In between smoke breaks and relabeling expired medicine she'd call or text me about dinner or a movie or gossip. She used to bring home elixirs and herbs promising to revitalize our livers, iron to lighten our eyes, mud smoothies to clear out our  tracts.
 
 "You're hard to cleanse" she said.
 
@@ -12,15 +12,15 @@ She gave me the mail in a heap. "Read 'em and weep!" she laughed hard.
 
 Among the junk adverts the visa was absent, and I could feel the government silently shrug.
 
-Downtown I climbed the subway stairs emerging from the void, trying to avoid the army of commuters' glaring asses in front of me. I followed my usual route to the 43rd street office and found a hulking Kevin out front with a white stub between his fingers.
+Downtown I climbed the subway stairs emerging for air, trying to avoid the army of commuters' glaring asses in front of me. I followed my usual route to the forty third street office and found a hulking Kevin out front with a white stub between his fingers.
 
-He was an interesting case. We coded together since I joined. At six foot five the man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next world champion thrower, so he decided to move on to a different challenge behind a desk punching keys with me. He also decided to take up the challenge of smoking, practicing twice daily with ones he rolled himself.
+He was an interesting case. We coded together since I joined. At six foot five the man spent his life chasing a medal in the olympic games, and he came out a world champion javelin thrower. After winning the gold he rejoiced. But four years later the world was looking for the next champion thrower, so he decided to move on to a different challenge behind a desk programming, punching keys with me. He also decided to take up the challenge of smoking, practicing twice daily with ones he rolled himself.
 
 "Hey Om."
 
 "Good morning."
 
-"Kind of late for morning." He looked down the long valley thick with cars and sidewalk, a lost look in his eyes.
+"Kind of late for morning." His gaze was locked down the long valley thick with cars and sidewalk, a lost look in his eyes.
 
 "You know about the gym cruise?" I asked.
 
@@ -40,25 +40,21 @@ Kevin itched his neck, "I think I've got to take care of my kid that night."
 
 "Let me know what you decide."
 
-Up, through the elevator. A Keycard swipe. Crashing at my desk. I could feel the dull light off the screen hit my eyes then ricocheting to some corner in the ceiling. Sales' phones a few feet away jerked us awake all day, but only for a bit.
+Up, through the elevator. A keycard swipe. Crashing at my desk. I could feel the dull light off the screen hit my eyes then ricocheting to some corner in the ceiling. Sales phones were picked up and thrown down a few feet away jerking us awake all day, but only for a bit.
 
-Haven, the man who hired me, sat in an office closely behind us. The man was always smiling, well dressed and wore designer glasses. He came from a long line of Dutch fashioners, doctors and big businessers. He plucked me straight out of college days before my graduation, dolling out an offer. I accepted it immediately.
+Haven, the man who hired me, sat in an office close behind us. The man was always smiling, well dressed and wore designer glasses. He came from a long line of Dutch fashioners, doctors and big businessers. He plucked me straight out of my college days before graduation and reeled me in with an offer.
 
 Haven must have seen me come in. After I sat down he sounded behind me "Can you come here for a second?"
 
-On cue Haven stood facing the street like a king, his hands in his pockets stupid dramatic. He stood as a monument to self gratification on the thirty second floor. 
+On cue he stood facing the street like a king, his hands in his pockets stupid dramatic. He stood as a monument to self gratification on the thirty second floor. 
 
 I could feel the glare off the screen hit my eyes, ricocheting off them to some corner in the ceiling. Sales' phones would jerk us awake, if only for a bit.
 
-"Can you come here for a second?" Haven sounded behind me.
-
-The office stood as a monument to self gratification on the thirty second floor. Haven stood facing the street like a king, his hands in his pockets stupid dramatic.
-
 "Hey Haven."
 
-He glanced behind him, twisting his face getting his smile ready then put it on. "So how's it going?"
+He glanced behind him, twisting his face, getting his smile ready. "So how's it going?"
 
-"It's alright." I said keeping eye contact. It was important I maintained eye contact.
+"It's alright." I said keeping, eye contact. It was important I maintained eye contact.
 
 "And work?"
 
@@ -72,20 +68,13 @@ Did my expression give me away? Haven sensed it but kept watching me. He was onl
 
 My words escaped me, "Yes of course."
 
-Later I slouched, worshiping my screen until the end of the day. Was super proud of that.
-
-
-"I see you here, do you see yourself here longterm?"
-
-"Yes of course I do."
-
-Later I slouched, staring at ((worshiping?)) my screen until the end of the day. Was super proud of that.
+Later when I came out Michael was already back. He nodded at me and I threw him a salute. Until the end of the day I worshiped the screen. Was super proud of that.
 
 ***
 
-Nights were stay at home nights for Renee more or less. But every other week Renee invited some conspiritors over for a drum circle. A few natives combined with her friends sat around a huge frame drum with their respective clubs. Incense was lit and what sounded like hymnish things were sung. I was invited but kindly excused myself on those nights. It was interesting to find a clean apartment after coming back, at least the living room was.
+Nights were stay at home nights for Renee more or less. But every other week she invited some conspirators over for a drum circle. A few natives combined with her friends sat around a huge frame drum with their respective clubs. Incense was lit and what sounded like hymnish things were sung. I was invited but kindly excused myself on those nights. It was interesting to find a clean apartment after coming back, at least the living room was. Renee had an eigthties romcom on while we put away clothes, a great change of pace.
 
-Renee had an eigthies romcom on while we put away clothes. Selina interrupted it virtually with a hit me up for a coffee. Renee kept glancing at me to ignore it but I answered anyway.
+An hour in though, Selina interrupted us virtually with a hit me up for a coffee. Renee kept glancing at me but I answered anyway.
 
 "Hello fellow human!" She cheerfully sang into the phone. Selina didn't think "you guys" made any feministic sense, so she always opted for "Hello kindly people" or "Greetings fellow homosapiens."
 
@@ -101,7 +90,7 @@ Renee had an eigthies romcom on while we put away clothes. Selina interrupted it
 
 "I may be high. It is a definite possibility."
 
-"I'll venture there then," and hung up.
+"I'll venture then," and hung up.
 
 I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out." I told her, "I'm meeting up with Selina."
 
@@ -109,7 +98,7 @@ I sacked on a pair of jeans, ignoring Renee's critical looks. "I need to go out.
 
 "I think you have it handled."
 
-"You never stay. You're never home wiht me anymore." Renee pouted, "Or are you meeting another girl to stay home with?"
+"You never stay. You're never home with me anymore." Her lip pouted, "Or are you meeting another girl to stay home with?"
 
 "It'll only be until you're done. There is no other girl."
 
@@ -121,15 +110,15 @@ She paused her film "Can you get me an iced latte then? French roast."
 
 "Sure."
 
-The cold tried to creep into my jacket, into my pants. The streets were an old story. I could point to where I found ten dollars in change, where various throw up was spewed. Construction projects were laid out, a miserable mess around each block. I passed an oven left to starve on the sidewalk, the empty bottles that stuffed it taken by the homeless ghosts of the night.
+The cold tried to creep into my jacket, into my pants. The streets were an old story. I could point to where I found ten dollars in change, where various throw up was spewed. Construction projects were laid out, a miserable mess around each block. An oven was left to starve on the sidewalk, the empty bottles that stuffed it taken by the homeless ghosts of the night.
 
-The down and out bars hid in the shadows behind car garages or narrow nooks, all made of oaks and cedar. Cool as they were, they served mac and cheese types of things, beer and little else. There were no windows so I couldn't see the people potentially dying from a fire hazard inside.
+The down and out bars hid in the shadows behind car garages or narrow halls and nooks, all made of oaks and cedar. Cool as they were, they served mac and cheese types of things, beer and little else. There were no windows so I couldn't see the people potentially dying from a fire hazard inside.
 
-At about that time I paced myself slower trying to time how late I'd be. Puttering in a light haze, the buildings around me didn't exist as I stared at the ground or nothing. That's when I lifted a penny off the world and put the grimy thing in my pocket. Over the years I made quite a heap. Probably around sixty dollars. I never really felt I needed it though. No one wants the small, immediate minute pennies, but I do.
+At about that time I paced myself slower trying to time how late I'd be. Puttering in a light haze, the buildings around me didn't exist as I stared at the ground or nothing. That's when I lifted a penny off the world and put the grimy thing in my pocket. Over the years I made quite a heap. Probably around sixty dollars. I never really felt I needed it though. No one wants the small, immediate, minute pennies. But I did.
 
-It was late but the dark cafe was still pretty active with many designers and artists slumped over tables and couches. Some yawned out conversations, others whooped as they played cards or board games in corners. Each table had a giant pinecone on it.
+It was late but the dark cafe was still pretty active with designers and artists slumped over all the tables  and couches. Some yawned out conversations, others whooped as they played cards or board games in corners. Each table had a giant pinecone on it.
 
-Selina's eyes were at half mast with a very visible hazy red in their corners "I got high with Jeremy tonight." She gleamed.
+Selina's eyes were at half mast with a skin of red fog over each "I got high with Jeremy tonight." She gleamed.
 
 "How's that going?" I was as concerned as my gingerbread coffee was bitter.
 
@@ -137,17 +126,17 @@ Selina's eyes were at half mast with a very visible hazy red in their corners "I
 
 "I don't know him."
 
-"He's a good guy, you'd like him." Every other word from her was lightly hurkled with a distant tired smile. "He's a university radio station coordinator. His friend works at Happy Blue Cat so we got to watch so many old documentaries. Rare ones about doctors in the sixties and bikes."
+"He's a good guy, you'd like him." She hurkled every other word with a distant tired smile. "He's a university radio station coordinator. His friend works at Happy Blue Cat so we got to watch so many old documentaries. Rare ones about doctors in the sixties and bikes."
 
 "Like stunt bikes?"
 
-"All kinds of bikes." And then, "Are you alright?"
+"All kinds of bikes." She slumped, "Are you alright?"
 
 "I'm totally fine. Absolutely nothing happened."
 
 "How's Renee? She never comes out."
 
-"Yea she's doing her drum circle tonight. The nativities."
+I slumped"Yea she's doing her drum circle tonight. The nativities."
 
 Selina shrugged. I pushed the envelope and the coffee mug against my cheek.
 
@@ -155,23 +144,21 @@ Selina shrugged. I pushed the envelope and the coffee mug against my cheek.
 
 "It keeps me warm. Warm cheekies. I don't even like coffee."
 
-An eyebrow raised a chuckle, "then why order anything with coffee?"
+An eyebrow raised a hardy chuckle in her, one I was all too used to "then why order anything with coffee?"
 
 "A latte is thicker so it'll keep me warmer."
 
-It was particularly strong, and since I rarely drank coffee my head began to hurt. The milk was thick and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness would be there to weigh down the rest of my day.
+It was particularly strong, and since I rarely drank coffee my head began to hurt. The milk was thick and felt heavy going down, would be heavy on my way home and when I went to bed. And when I woke up the heaviness would be there to weigh me down the rest of my day.
 
-"Adrian's not working tonight looks like." I mentioned casually looking over the register, watching a someone take a bite of avocado toast.
+A weird swallowed a bite of avocado toast. Looking over at the register I let drop, "Adrian's not working tonight looks like."
 
 "She's playing tonight. At the Claybourne Whatever. It's the new place near Main and Clinton."
 
 "Yea I heard about it. She plays a lot. You don't want to go? I'd totally be up for it."
 
-She winced, "Kind of, but just wanted to take it easy tonight. Take it easy."
+Selina winced, "Kind of, but I just wanted to take it easy tonight. Take it easy."
 
-"Yea, me too", I said. "I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
-
-((heart problems, kind of important part here, move to another section?))
+"Yea, me too", we sat with the silence,  "I started getting these weird spasms. My whole body would tense up for like a moment, then nothing."
 
 "Oh my god is that a heart problem?! You never told me about this."
 
@@ -183,15 +170,15 @@ She winced, "Kind of, but just wanted to take it easy tonight. Take it easy."
 
 Selina coughed and clutched her chest. Her fits were minor asthma leftover from her childhood. "So annyoing..."
 
-"Heart problems maybe, not dangerous at all." I smiled at her, "let's be honest, who doesn't have problems with their heart? My mom is no exception." I said casually.
+"Heart problems maybe, not dangerous at all." I smiled at her, "let's be honest, who doesn't have problems with their heart? My mom is no exception." I said forcing a smile.
 
 "Oh my god is your mom ok? I don't know anything about your mom."
 
-"She's fine, my dad says it's something small ((would he say benign?)). Nothing to be worried about. ((why mention it then?))"
+"She's fine, my dad says it's something small. Nothing to be worried about."
 
 "You're dumping a lot of stuff on me tonight I don't know if I can mentally take it."
 
-I looked around aimlessly. People worked away on their computers. Some were laughing, others sulking in their conversations.
+People worked away on their computers. Some were laughing, others sulking in their conversations.
 
 "You see Gala at all?"
 
@@ -199,9 +186,39 @@ I looked around aimlessly. People worked away on their computers. Some were laug
 
 "I don't know I started seeing her around more often. She comes here right?"
 
-Selina started to look a bit frazzled. Upset wasn't quite the word, but her high was wearing off pretty quickly then.
+Selina shook her hair in a hard itch. Upset wasn't quite the word, but her high was wearing off pretty quick then.
 
 "I don't understand why everyone wants to know about how Gala is. Is she so pretty? Or so interesting? She's cool but I have this conversation five times a week. I don't even talk to her that often at The Meatloaf."
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 Both Gala and Selina worked at a soup kitchen together every other week. It's how they met. They called it The Meatloaf because it was the main thing they served for the homeless. More recently they put an egg in the middle of the it so it would look fancier and save on the price of meat.
 
@@ -226,6 +243,25 @@ It was obviously the wrong topic in every way. I tried to change the subject, "I
 I looked at Selina, "I think mentally we're not there yet. We both have our reservations."
 
 She nodded again, licked her lips then nodded again.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ((~~~~~Talk about playing in band where Om lights the guitar on fire))
 
