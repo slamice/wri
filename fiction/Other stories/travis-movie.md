@@ -82,7 +82,7 @@ Another scene, lots of developers with Travis at the front of the room, chanting
 Travis: React! React! React!
 
 
-* Give away money (tango)
+* Give away money bug (tango)
 
 =================
 
@@ -115,6 +115,6 @@ Travis in room, circling the chairs, drawing on the white board singing.
 
 ~ to know... ~
 
-'''The Travis''' - Typing and background with aggresive typing sounds-
+'''The Travis''' - Typing and background with aggresive typing sounds, multiple corrections -
 
 Kevin whispers at the end of the trailer "bitches"
