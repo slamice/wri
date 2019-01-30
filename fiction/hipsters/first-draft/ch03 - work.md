@@ -215,164 +215,89 @@ Selina shook her hair in a hard itch. Upset wasn't quite the word, but her high 
 
 Both Gala and Selina worked at a soup kitchen together every other week. It's how they met. They called it The Meatloaf because it was the main thing they served for the homeless. More recently they put an egg in the middle of the it so it would look fancier and save on the price of meat.
 
+Chapters:
+1 (part one)  1 (part 2)
+2
+3 (Part 1)
 
+Continuation of chapter 3. Am looking to if this scene moves too fast and what should I elaborate on if it does. A reminder that Ethan and Marley were introduced already in chapter 2. I’m also wondering if you’re feeling Om’s loneliness along with everyone else’s.
 
+----------------------------------------------------------------------------------------
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-The still bitter night outside offered solice to the people that surrendered to it. Passerbys whooped laughs and flung arms around eachother in rough embraces.
+I looked beyond our reflections in the store glass. The still bitter night outside offered little solace to the people that surrendered to it. Passerbys whooped laughs and flung arms around each other in rough embraces.
 
 "I'm getting worried about my visa."
 
-"No surprise!" Selina raised circled thed mouth of her mug with her finger, "Welcome to the world my friend. Where the proletariot never sleeps and we're drowning in disappointment. It's us against them." Her eyelids hung low as she debated . "It's been a while though? That's a good thing right?"
+"No surprise!" Selina circled the mouth of her mug with her finger, "Welcome to the world my friend. Where the proletariat never sleeps and we're drowning in disappointment. It's us against them." Her eyelids hung low as she debated . "It's been a while though? That's a good thing right?"
 
-"It's just so beauracratic. It's been a year and a half and will probably take longer. I'm so restless."
+"It's just so bureaucratic. It's been a year and a half and will probably take longer. I'm so restless."
 
 Selina took a big sip. "Why don't you marry Renee?"
 
 "Like that's an option."
 
-"Isn't it? You've been together for a while." Selina licked her lips then nodded.
+"Isn't it? You've been together for a while."
 
 "I don't think we're quite there yet. I think mentally we're not there yet. We both have our reservations."
 
-The little squeels from every corner, the tiny hacked laughs of the groups, the exhuasted huffing of the coffee machine was all a steady kind of water torture. We were done, obviously. It was impossible to sit another hour brooding on my luck. My wandering mind took me away from the table with a few more words and a  wave. Selina's high triggered a shotty smirk and peace sign. On my way out I took Renee's latte, and my mission ended.
+Selina licked her lips then nodded.
 
-The detour I took on my way back was long. I went through a village of modern half finished apartment complexes. Some waiting for the paint to dry, some already bought. The concrete buildings jutted to the sky, each pillar a middle finger to what we used to be. I tried to find a star under the bright street lamps, but of course there were none.
+The little squeals from every corner, the tiny hacked laughs of the each booth, the exhausted huffing of the coffee machine was all a steady kind of water torture. We were done, obviously. It was impossible to sit another hour brooding on my luck. My wandering mind took me away from the table with a few more words and a wave. Selina's high triggered a shotty smirk and peace sign. On my way out I took Renee's latte, and my mission ended.
 
-((The basterdized Bauhaus laughing at us.))
+The long detour I took on my way back went through a village of a modern half finished apartment complex. Some waiting for the paint to dry, some already bought. The concrete buildings jutted to the sky, each pillar a middle finger to whatever stood there before it. The bastardized Bauhaus laughed at us. I sat trying to find a star under the bright street lamps, but of course there were none.
 
-So under a giant metallic bird statue only a larger metallic mother bird statue could love, I closed my eyes. I hummed a long sylable in a bass to forget the world.
+So under a giant metallic bird statue only a larger metallic mother bird statue could love, I closed my eyes. I hummed a long syllable in a bass to forget the world.
 
 But you crept in my mind and I loved you. You were cautious and protective and it horrified me for a long time. That's the closest thing I can give to an explanation.
 
-But still I heard the wind rustling loose dust, cars in the distance shouting, the silence of the city so loud it hurt to sit still. A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly. The latte had no warmth left and getting colder so I had to save it.
+And still I heard the wind rustling loose dust, cars in the distance shouting, the silence of the city so loud it hurt to sit still. A couple walked by me holding hands like people who still held hands. They were deftly upsetting and rearranged my stomach accordingly. The latte had no warmth left and getting colder so I had to save it.
 
+Some stupid street led me back. The light was on in Jack and Andy's apartment. A fever of rage in me suddenly surfaced. Who was Andy. Such a bastard. I wanted to tear off his limbs and beat him with them.
 
+The smell of sage took over the apartment. Renee and her friends Ethan and Marley were talking to an elder native named Pontiac's Son. I gave a nod in their direction as I headed to the kitchen. They waved and nodded back but Pontiac's Son had them pegged at something in their conversation that drew them in. I shuffled around making noise, but in such a small apartment there were no secrets.
 
-
-
-
-
-
-
-Some stupid street led me back. The light was on in Jack and Andy's apartment. A fever of rage suddenly surfaced. Who was Andy. Such a bastard. I wanted to tear off his limbs and beat him with them.
-
-When I entered the apartment Renee and her friends Ethan and Marley were talking to an elder native named Farmer's Son. I gave a nod in their direction as I headed to the kitchen. They waved and nodded back but Farmer's Son had them pegged at something in their conversation that drew them in. I tried not to overhear them and shuffled around, but in a small apartment there were no secrets.
-
-"I'm sorry, there's nothing I can do." Farmer's Son said.
+"I'm sorry, there's nothing I can do." Pontiac's Son said.
 
 "How many more times at the sweat lodge would it take?" Ethan asked.
 
 "It's not a simple thing to take. I'm sure you can find a way without me."
 
-Renee chimed in, "but we've been practicing pyote for years here. I've been twice already."
+Renee chimed in, "but we've been practicing ayahuasca for years here. I've been twice already."
 
-Farmer's Son ((rename, were not farmers)) "Let me be honest with you." he said, his low voice sounding tired, "This is very deep. You don't need me to introduce you to anyone ((for ayahuesca)). But it's not my place to advocate for it on behalf of you. You have to understand, I can't advocate on behalf of the tourists. Hat is what they see you as."
+Pontiac's Son lowered his voice, but it only made him sound tired. "Let me be honest with you. This is very deep. You don't need me to introduce you to anyone. But it's not my place to advocate for it. You have to understand, I can't advocate on behalf of tourists. That is what they see you as."
 
 "It is though!" Renee said emphatically.
 
 "Respectfully, I'm sorry. Again, thank you for holding this."
 
-I barely heard the echo of him going down the stairs while Renee discussed something with Ethan and Marley as they left.
+The door shut, and the three waited a few moments until they erupted.
 
 "He called us tourists." Ethan told Renee, everything wiped off his face.
 
 "We are not tourists." Marley reiterated.
 
-=============
+They went on for five more minutes before they said their goodbyes to me and Renee. And soon enough when they were out the door Renee waved them off, plopping onto her bed with a movie on soon.
 
-What was that about? I asked
+"Can you turn on the laundry machine? I forgot to take out the clothes this morning so wash them again in case they get mold on them." She called.
 
-
-=============
-
-Soon enough, she waved them off and sounded out a goodbye to me. Renee went to lie on her bed from there, disappointed and ignoring me turning on a movie.
-
-"Can you turn on the laundry machine again? I forgot to take out the clothes this morning so wash them again in case they get mold on them." She called out.
-
-"Yea, sure."
-
-
-From a window I watched the last of the cars sluggishly leave, no walkers left in sight. Only the lurking limos in the parking lot remained, sharks circling. 
+"Ok.” I said. But from a window I watched the last of the cars sluggishly leave, with Ethan a careful driver. No walkers left in sight. Only the lurking limos in the parking lot remained, sleeping sharks. 
 
 I immediately snuck outside and shut the door carefully, making sure the cat didn't escape. Just around the corner from the stairs, under our bedroom window, holding Renee's latte, I dialed.
 
+"Hey Gala?" I spoke softly, a whisper you'd use to wake someone you love up with. One where afterwards, you’d gently hold their warm hand and press it just a bit so they could acclimate back to reality.
 
+She breathed a dreamy "Yea?” into the receiver.
 
+“Gala?”
 
+She hummed a sleepy “Om?" A voice about to float away.
 
+Then I don't know what I said. Words spilled out and threw themselves together in a complete mess. "There's a thing on Thursday night" and "we’re somewhere in there.” I wasn't sure if I made sense. Maybe I sounded too eager. I let the words hang in the air, sick, forward and deliberate. “A cruise around Manhattan. Cheap fun. Drinks. Something."
 
+"What? Yea. I don't work that night. Yea. Sounds fun."
 
+“It’ll be fun.” I confirmed.
 
+“Thursday then. See you.”
 
-
-
-
-
-"Hey Gala?" I spoke softly, almost whispered. A whisper you'd use to wake someone up, then gently hold their hand and press it just a bit so her body could acclumate ((enter? adjust?)) back to reality.
-
-She breathed a dreamy "Yea?" when she answered, her voice about to float away.
-
-The I don't know what I said. Words spilled into the receiver, a mess of a place. "There's a thing on Thursday night" and "" were somewhere in there. I wasn't sure if I made sense. Maybe I sounded too eager. I let the words hang in the air, sick and deliberate. A cruise around Manhattan. Cheap fun. Drinks. Something."
-
-"What? Ok sure. I don't work that night. Sounds fun."
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
- I dumped Renee's forgotten cold latte in slow motion. The stream made a quick splash and settled in the cracks of concrete. It was ((fully)) empty, and soon I lurched back upstairs.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+((bad paragraph intro?)) In the cold concrete desert night I dumped Renee's cold latte in slow motion. The stream made a quick splash and settled in the cracks, a tiny lost river. And when it was empty, I lurched back upstairs.

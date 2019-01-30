@@ -1,17 +1,42 @@
 Chapter 7
 
 
-Gala
+Gala said she'd meet me there
 
 
-"You know what my favourite thing is?"
+Michael bailed hard, which wasn't a surprise. He predicted the crowd better than I did, people who already took advantage of the gym or their alcoholic events. The older men and women had tattoos covering their biceps and thighs, tired of the idle chatter strategy. Their expressions and the color in their faces both ran, drained from conversing a life of tans and cocktails. The tiny younger crowd was vivid, each member giggling but unsure. They wrestled with basic facts, looking out over at the city and neighborhood waters. As they climbed on board each were knighted with a plastic leigh. The buildings sipped the sky and the customer's plastic alcohol cups sipped them. There was a bit more to it but I wasn't paying too much attention. But I only hoped she came.
 
-She leaned in closer, "I'll tell you"
+The ship ebbed toward the ocean, toward the few islands we were set out to discover superficially. People snapped photos and looked pretty, vacant. Past the pineapple sandwiches and fruit rice, once the tiny paper umbrellas unfolded and the rum soaked brownies flowed, people opened up. The bartender popped his collar and gave me an endless flow of cranberry apple juice.
 
-"Whispering. It makes me feel.. So comfortable." She purred.
+A very tan woman turned towards me, someone I barely worked with. In sales maybe? She wore a flower dress, the only one prepared to feign for the occasion. She talked about her life, her trip to Puerto Rico, her fame as an athletics event organizer at a local gym years back. She cut our conversation short when a bulky French arm tattooed with a Mohican and a few snakes approached her. Thoroughly blurred, I went past them unobserved.
+
+The two girls from Tallahassee worked as designers at a robot company. The buff tattooed developer from Texas shunned beef after growing up on a pig farm. The two African event coordinators who together came upon a nude beach by accident. Besides shallow descriptions, I didn't find out any other details about anyone's jobs. Even the inviters were seldom found, only checking in with people to make sure they were still on the boat. The ship's aimless bobbing to no goal was perfect for us. Our mild conversations took all our attention from the cityscape view and ground it to dust.
+
+I found Gala huddled in one corner of the boat with hair dyed dark rust. She waved me over and introduced Giulia with rocky laughter. Their glasses clinked, waving them like flags.
+
+"She's Italian." Gala raised an eyebrow at me.
+
+"Stop it! You're not telling everyone I'm Italian."
+
+"She's studying to be an architect." Gala giggled.
+
+"See this building? It's really tall but has those empty floors in the middle. It's earthquake proof right now. That's actually earthquakePROOF"
+
+"Who built it? Tell him." I tried to look at Gala but her eyes flirted away from mine, only meeting them to fake a smile.
+
+"A Russian architect" she whimpered, "Don't ask me how I know. Hey, I'm Italian. Are you Italian" She stared, looking around aimlessly. It was impossible to tell how many drugs were involved in her demeanour. Perhaps none, even scarier. The sun was already setting down earlier and besides her eyes it got too dark to tell her expression, but you could feel her beaming violently.
+
+"No." I yelled over the growing chats around us. "Do you think I would fit in better if I did?" Gala flit her head up suddenly to look at me, like a bird, and then her head flew away.
+
+"I don't know I don't exactly fit it, like I'm not married yet all my family is married I work at the campaign and lots of people just bail on you... During work too, people don't even notice. My whole department, you know..." 
+
+She paused, then turned to Gala, "I mean did you see Tony? I've been working past eight all week and he's said nothing. I don't really get how he even has his job. The other day, see... He's never filled out Jonas's call forms WE ALL did can you believe _that_?"
+
+Gala shook her head without regard, only looking into her drink. "No, I can't."
+
+"You can't?" I asked her point blank. Gala looked offended, and as I parted myself to walk away she looked disgusted
 
 
-Our hug smelled like liquorice ((sambuca?)) and was just as strong.
 
 
 
@@ -22,39 +47,10 @@ Our hug smelled like liquorice ((sambuca?)) and was just as strong.
 
 
 
-Michael bailed hard on me. He finally brought up some believable excuse by ignoring me. I couldn't get Renee to follow me on either. Nothing about it enticed her. Her diet was about to hurl from the Hawaiian food she couldn't even think of eating and the alcohol she couldn't imagine drinking.
 
-Alone, I threw away the other ticket and went to the dock on a Wednesday after work. Someone knighted me with a plastic leigh on my head as I stepped aboard.
 
-The older men and women had tattoos covering their biceps and thighs, tired of the idle chatter strategy. Their expressions and the color in their faces both ran, drained from conversing a life of tans and cocktails. The tiny younger crowd was vivid, each member giggling but unsure. They wrestled with basic facts, looking out over at the city and neighborhood waters. The buildings sipped the sky and the customer's plastic alcohol cups sipped them. There was a bit more to it but I wasn't paying attention.
 
-A very tan woman turned towards me who looked like someone I barely worked with. She wore a flower dress, the only one prepared to feign for the occasion. She talked about her life, her trip to Puerto Rico, her fame as an athletics event organizer at a local gym years back. She cut our conversation short when a bulky French arm tattooed with a Mohican and a few snakes approached her. Out of the scene now, thoroughly blurred, I went past them unobserved.
-
-The ship ebbed toward the ocean, toward a few islands we were set out to discover superficially. People snapped photos and looked pretty, vacant. It wasn't awkward so much as it was limiting. Past the pineapple sandwiches and fruit rice, once the tiny paper umbrellas unfolded and the rum soaked brownies flowed, people opened up. The bartender popped his collar and gave me an endless flow of cranberry apple juice.
-
-The two girls from Tallahassee working as designers at a robot company. The heavily buff tattooed developer from Texas who shunned beef after growing up on a pig farm. The two African event coordinators who together came upon a nude beach by accident. Besides shallow descriptions, I didn't find out any other details about their jobs. Even the inviters were seldom found, only checking in with people to make sure they were still on the boat. The ship's aimless bobbing to no goal was perfect for us. Our mild conversations took all our attention from the cityscape view and ground it to dust.
-
-An Italian and Jewish pair of girls were huddled in one corner of the boat, discussing their ex boyfriends, their ex boyfriend's dogs and architecture.
-
-"This building is really tall but has those empty floors in the middle. It's earthquake proof right now. That's actually earthquakePROOF"
-
-"Who built it?"
-
-"A Russian architect" she whimpered, "Don't ask me how I know."
-
-The Italian girl chattered away an unrelated reply at full force, the other sipped strong alcohol through a straw, looking around aimlessly. It was impossible to tell how many drugs were involved in her demeanour. Perhaps none, even scarier.
-
-I approached. "Are you Italian? I'm Italian." She stared. The sun went down earlier and besides her eyes it got too dark to tell her expression, but you could feel her beaming violently.
-
-"No." I yelled over the growing chats around us. "Do you think I would fit in better if I did?" The Jewish girl flit her head up suddenly to look at me, like a bird, and then her head flew away.
-
-"I don't know I don't exactly fit it, like I'm not married yet all my family is married I work at a big company and lots of people just bail on you... During work too, people don't even notice. My whole department, you know," pause, a comment towards the bird "I mean did you see Tony? I've been working past eight all week and he's said nothing. I don't really get how he even has his job. The other day, see... He's never filled out Jonas's accountant forms WE ALL did can you believe _that_?"
-
-Her friend shook her head without regard, "No, I can't." she only looked at her drink.
-
-The ship shrugged and swung in slow motion back to the docks. The riders became excited, lively, bored, full, happy, tipsy, celebrating, a tiny bit seasick. A few final pictures took in the city lights and shadows. The pier welcomed them comely, giving in to their now witless jokes and non-existent drunk charms.
-
-Docked, everyone escaped in a different direction for blocks on end. No one knew anyone anymore except those they came with. I walked home alone, pondering nothing. Cleary though, almost as if it were yesterday. My phone rang, and I remember every detail about my phone conversation with my father on that walk. My thoughts lined up to play back set replies. After coughing a few times I answered.
+After coughing a few times I answered.
 
 "Hi Dad."
 
@@ -85,6 +81,28 @@ I thought for a second, wondering if carefully placing my words was necessary. "
 There was a relaxed tension in our conversation. My family hadn't been fully together in years since I left. ((Knowing they were waiting pushed me to stay...))
 
 My mother used to call me. Once a week I heard her thick Armenian accent telling me she misses me. She must miss us all, I said. My sister married, my brother out of the house. Our conversations became shallow slowly over the years, and soon enough they sounded like short words inscribed in code.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+The ship shrugged and swung in slow motion back to the docks. The riders became excited, lively, bored, full, happy, tipsy, celebrating, a tiny bit seasick. A few final pictures took in the city lights and shadows. The pier welcomed them comely, giving in to their now witless jokes and non-existent drunk charms.
+
+Docked, everyone escaped in a different direction for blocks on end. No one knew anyone anymore except those they came with. I walked home alone, pondering nothing. 
 
 I walked ten more blocks and past garbage after building after loiterer. The city lazily blinked as I got on the metro platform heading to my apartment.
 
@@ -171,6 +189,13 @@ A crowbar rapped the pangs of guilt rapped against my stomach walls, and I felt 
 "You want to know my name?"
 
 "No." She said.
+
+
+"You know what my favourite thing is?"
+
+She leaned in closer, "I'll tell you"
+
+"Whispering. It makes me feel.. So comfortable." She purred.
 
 We were half asleep though, and after we kissed a few times I gave her a fake number which she lazily swore she'd remember and didn't look back.
 
