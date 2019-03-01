@@ -1,7 +1,35 @@
+Berlin Alexanderplatz - Alfred Döblin
 
 
+Scott Meyer - Magic 2.0
 
 
+The Power Broker - Robert Moses
+
+Trivers, R. L. (1985) Social Evolution. Benjamin/Cummings
+
+William Perry - My Journey at the Nuclear Brink
+
+John Stuart Mill
+
+Business as a System of Power – Robert A Brady
+
+
+Martin Wolf - Fixing Global Finance
+
+Martin Wolf - Why Globalization Works 
+
+John Dewey's books (https://en.wikipedia.org/wiki/John_Dewey#Publications)
+
+David Barsamian (books by him)
+
+https://www.unicef.org/about/history/files/child_neglect_rich_nations.pdf
+	
+Taking the risk out of democracy : corporate propaganda versus freedom and liberty - Carey, Alex
+
+The wealthy banker's wife : the assault on equality in Canada - McQuaig, Linda
+
+Our Kind of Guys: The United States and the Indonesian Military - Alan Nairn
 
 The Chocolate War - Robert Cormier
 
