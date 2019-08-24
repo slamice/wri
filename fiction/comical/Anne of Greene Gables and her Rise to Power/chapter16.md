@@ -1,19 +1,3 @@
-- Descriptions of places
-
-- Check out more parodies
-
-
-
-
-
-
-
-
-
-
-
-
-
 Chapter 16. Diana Is Invited to Tea with Tragic Results
 
 Anne stared the summer sun down and now collected the rotting foliage, the trees fallen yellow tears shed from the weather's mirth to the earth. The Fall began, one Anne lest best forget.
@@ -157,3 +141,17 @@ Anne was so dismayed that she underestimated Mrs. Plebb's foolishness, Diana's s
 Marilla found her asleep that night, face down in a tear soaked pillow that she surely would have drowned from except the bed had so many holes from Matthew the Gorilla's insult to carpentry. The many bed holes drained the tears through.
 
 She turned Anne over, let a cloth soak on her face for an hour, brushed her curls from her face and then gave her a tummy tuck into the sheets. Anne dreamt wicked dreams, with tears that weren't hers.
+
+
+
+
+Critiques:
+==========
+
+- Better Descriptions of places
+- Check out more parodies
+- Make lanaguage consistent for the world.
+- Ground it with more logic (yea right)
+- Other characters are more logical
+- Don Juan/The joker of Seville: He's nonsensical
+

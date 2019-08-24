@@ -26,7 +26,7 @@ Anne popped both of her arms back in one at a time, but before Anne could mouth 
 
 "Where does it hurt? Tell me." Diana's mother insisted.
 
-"You could never dream where it hurts. Also my ankle. I can't Bare it. Please Diana, ask your dad to take me home in a gurney."
+"You could never dream where it hurts. Also my ankle. I can't bare it, it’s far too improper. Please Diana, ask your dad to take me home in a gurney."
 
 Marilla McPlebbers was out in the apple orchard eating when she heard the heavy wheels of a mobile stretcher drag on the path. On it was Anne, with Mr. Barrymore in front and Annes harem behind her all in a row, their faces as pale than skinned almonds.
 

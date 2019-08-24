@@ -80,6 +80,6 @@ At the end of the day Anne packed up all her quills and sharpeners, parephenalia
 
 The kids, exhausted by the length of this chapter, treaded off arms back to their houses through the various forests.
 
-Marilla couldn't get Anne to go to school, like anyone could, really. What could she learn from a flirt and a godfreid, whining incidiously into her ear. Mrs. Lynt's advice to her was to forget about it and just let her stay home. Kids these days can stay home from school, it's the modern age.
+Marilla couldn't get Anne to go to school, like anyone could, really. What could she learn from a flirt and a godfreid, whining incidiously into her ear. Mrs. Lyndt's advice to her was to forget about it and just let her stay home. Kids these days can stay home from school, it's the modern age.
 
 But Anne went back anyway, because of revenge, of course. Gilbert, Dilbert, whatever, had it coming soon enough.

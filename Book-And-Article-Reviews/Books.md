@@ -1,8 +1,52 @@
+Zahra Hankir - Our Women on the Ground: Essays by Arab Women Reporting from the Arab World
+
+Max-Neef, Manfred A - From the Outside Looking In: Experiences in Barefoot Economics
+Max-Neef, Manfred A- Human Scale Development (PDF)
+Max-Neef, Manfred - Real-Life Economics: Understanding Wealth Creation
+
+Edip Yuksel
+
+Edip Yuksel - Test Your Quranic Knowledge
+
+Witold Gombrowicz - (novels)
+
+David Montgomery - Rise and Fall of The American Labor Movement
+
+Blase Bonpane - Any books?
+
+Pitch Anything: An Innovative Method for Presenting, Persuading, and Winning the Deal - Oren Flaff
+
+David Foster Wallace - Broom of The System
+
+A Thousand Splendid Suns = 	Khaled Hosseini
+
+Sapiens: A Brief History of Humankind Hardcover – Yuval Noah Harari
+
+Tom Ferguson - Golden Rule: The Investment Theory of Party Competition and the Logic of Money-driven Political Systems
+
+Goodbye, yellow cat - Mati Unt
+
+Hello, yellow cat - Mati Unt
+
+Winners Take All: The Elite Charade of Changing the World - Anand Giridharadas
+
+Timothy Snyder - On Tyranny
+
+The Black Book Of Communism
+
+Thomas Ferguson - Golden Rule: The Investment Theory of Party Competition and the Logic of Money-driven Political Systems.
+
+A Paradise Built in Hell - Rebecca Solnit
+
+Rutger Bergman - Utopia for Realists (2017)
+
+Daniel Immerwahr - How to Hide an Empire: A History of the Greater United States
+
+Adam Smith - Wealth of Nations
+
 Berlin Alexanderplatz - Alfred Döblin
 
-
 Scott Meyer - Magic 2.0
-
 
 The Power Broker - Robert Moses
 

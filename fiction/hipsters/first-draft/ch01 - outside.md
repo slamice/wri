@@ -112,7 +112,7 @@ I nodded at a few more things he said muffled by the music and the crowd, then h
 
 Wandering the house, nothing was left untouched by a thick smoke haze. It moved seductively among the bodies. It was inhaled, caressed, played with. The dull fluorescent lights in the kitchen loved it, a light fog highlighting those drinking beers by the counters.
 
-Someone caught my eye and I was motioned me over. I recognized her as Jack's roommate Prof's latest craze. She was hard to forget with her teased out auburn hair framing her face, a soft tan dust with a freckle finish. Prof woo'ed her by leaving a note in an internet cafe then running away, `You make me want to be better one day, I could be so awesome with you.` She wasn't thoroughly disgusted and they began dating off and on. She hung out a few times with us but I had only a few takeaways about her.
+Someone caught my eye and I was motioned me over. I recognized her as Jack's roommate Prof's latest craze. She was hard to forget with her teased out auburn hair framing her face, a soft tan dust with a freckle finish. Prof woo'ed her by leaving a note in an internet cafe then running away, "You make me want to be better one day, I could be so awesome with you." She wasn't thoroughly disgusted and they began dating off and on. She hung out a few times with us but I had only a few takeaways about her.
 
 She exhaled a soft spoken "Hey."
 
